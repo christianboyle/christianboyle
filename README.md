@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kZOiGeyVu2qojEis-2ssMOg-t500x500.png">](https://soundcloud.com/djjayg-1/sickmode-rooler-too-hot-jay-g-hard-techno-edit-click-buy-for-full-free-dl?in=saxurn/sets/youv/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27tnzGzapczpqlJD-FvDOFg-t500x500.png">](https://soundcloud.com/jarvisuk/patreon-exclusive-down-with-the-sickness-jarvis-bootleg?in=saxurn/sets/youv/)
 
-**Artist**: Jay G 
+**Artist**: Jarvis 
 
-**Track**: Sickmode & Rooler - Too Hot ( Jay G Hard Techno Edit )free dl
+**Track**: [Patreon Exclusive] Down with the Sickness (Jarvis Bootleg)
 
-Last updated at 9/8/2025, 8:41:32 AM
+Last updated at 9/8/2025, 8:45:22 AM
