@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKV5SLJxh3NyqjMW-lozeuw-t500x500.jpg">](https://soundcloud.com/thirteenproductions/ttp025-gaz-summers-paul-dreamz?in=saxurn/sets/domestic/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ruGakSvzUn6c5gK-qJKnag-t500x500.jpg">](https://soundcloud.com/2summusic/underground-anthem-2sumflip?in=saxurn/sets/domestic/)
 
-**Artist**: Thirteen Productions(TinyT) 
+**Artist**: 2SUM 
 
-**Track**: TTP025-Gaz Summers & Paul Dreamz - Dancing in the sky- (Radio edit)
+**Track**: FLOSSTRADAMUS - UNDERGROUND ANTHEM (2SUM FLIP)
 
-Last updated at 9/8/2025, 9:16:15 AM
+Last updated at 9/8/2025, 9:20:10 AM
