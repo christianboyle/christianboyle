@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D8WKcfzYka8z0d6z-UysmKQ-t500x500.png">](https://soundcloud.com/darnturner/zoe-wees-dean-lewis-learn-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDvwykBB0Yy0UxJw-Jt6AaQ-t500x500.png">](https://soundcloud.com/dj-deeanork/deeanork-excalibur-radio-edit)
 
-**Artist**: DarnTurner 
+**Artist**: DeeAnork 
 
-**Track**: Zoe Wees & Dean Lewis -  Learn To Love - DarnTurner - 25 -
+**Track**: DeeAnork - Excalibur (Radio Edit) [AROS Records]
 
-Last updated at 9/8/2025, 8:07:49 AM
+Last updated at 9/8/2025, 8:08:49 AM
