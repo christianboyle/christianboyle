@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SU2u4rgg9jFA74B2-wQczlA-t500x500.png">](https://soundcloud.com/manifestdnb/justin-bieber-ghost-doshi-dimod-bootleg?in=saxurn/sets/oscillating-reaction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood?in=saxurn/sets/3a2/)
 
-**Artist**: Justin Bieber 
+**Artist**: Ninajirachi 
 
-**Track**: Justin Bieber - Ghost (DØSHI, DIMOD Bootleg) [FREE DOWNLOAD]
+**Track**: Sing Good
 
-Last updated at 9/8/2025, 9:30:26 AM
+Last updated at 9/8/2025, 9:33:23 AM
