@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P5zmg99yXJNFuXMs-4Edk9A-t500x500.png">](https://soundcloud.com/bass-n-babes/so-sus-singularity?in=saxurn/sets/two-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g7yYIIesU7Kstgec-3iqweA-t500x500.png">](https://soundcloud.com/rngrdj/all-of-the-lights-rngr-edit?in=saxurn/sets/two-milk)
 
-**Artist**: So Sus 
+**Artist**: RNGR, JOSHWA 
 
-**Track**: So Sus - Singularity
+**Track**: ALL OF THE LIGHTS (RNGR EDIT)
 
-Last updated at 9/8/2025, 11:04:01 AM
+Last updated at 9/8/2025, 12:33:10 PM
