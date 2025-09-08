@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMfJsKJHK5MfHXLN-zXwktQ-t500x500.jpg">](https://soundcloud.com/esca_kassel/takethat?in=saxurn/sets/youv/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UVT05DkT1bywslu9-C64aKg-t500x500.png">](https://soundcloud.com/sachsentrance/eskha-dj-caline-looking-at-me?in=saxurn/sets/youv/)
 
-**Artist**: Esca 
+**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: TAKE THAT
+**Track**: [PREMIERE] Eskha, DJ Caline - Looking at me
 
-Last updated at 9/8/2025, 8:31:46 AM
+Last updated at 9/8/2025, 8:35:56 AM
