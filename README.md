@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-548mWhQytWwVTOoS-bwAnfA-t500x500.png">](https://soundcloud.com/suitsidemusic/suitside-fck-off?in=saxurn/sets/three-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rMfJsKJHK5MfHXLN-zXwktQ-t500x500.jpg">](https://soundcloud.com/esca_kassel/takethat?in=saxurn/sets/three-milk)
 
-**Artist**: SUITSIDE 
+**Artist**: Esca 
 
-**Track**: F*CK OFF!
+**Track**: TAKE THAT
 
-Last updated at 9/8/2025, 3:51:03 PM
+Last updated at 9/8/2025, 3:55:48 PM
