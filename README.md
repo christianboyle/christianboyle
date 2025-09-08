@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mylv4dcUdXqpq4oo-yreY9Q-t500x500.jpg">](https://soundcloud.com/iifi/area-one-like-this-free-dl?in=saxurn/sets/one-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXWkG9lDV9Wl-0-t500x500.png">](https://soundcloud.com/bennicky/sober-david-rust-remix-feat?in=saxurn/sets/one-milk)
 
-**Artist**: AREA ØNE 
+**Artist**: Ben Nicky, Hix 
 
-**Track**: AREA ØNE - Like This [Free DL]
+**Track**: Sober (David Rust Remix) [feat. Tori Smith]
 
-Last updated at 9/8/2025, 10:14:16 AM
+Last updated at 9/8/2025, 10:18:42 AM
