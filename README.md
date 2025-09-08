@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SzzWAHa3y1pZgxJH-eYxoeA-t500x500.png">](https://soundcloud.com/gothlit/ashes-of-the-abyss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK9UhWBOxUq0ynzx-Z5OPiQ-t500x500.jpg">](https://soundcloud.com/sportmodemusic/hot)
 
-**Artist**: GothLit 
+**Artist**: SPORTMODE 
 
-**Track**: Ashes Of The Abyss
+**Track**: SPORTMODE - HOT
 
-Last updated at 9/8/2025, 4:18:25 PM
+Last updated at 9/8/2025, 4:20:11 PM
