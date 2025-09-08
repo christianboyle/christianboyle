@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D8WKcfzYka8z0d6z-UysmKQ-t500x500.png">](https://soundcloud.com/darnturner/zoe-wees-dean-lewis-learn-to?in=saxurn/sets/one-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mylv4dcUdXqpq4oo-yreY9Q-t500x500.jpg">](https://soundcloud.com/iifi/area-one-like-this-free-dl?in=saxurn/sets/one-milk)
 
-**Artist**: DarnTurner 
+**Artist**: AREA ØNE 
 
-**Track**: Zoe Wees & Dean Lewis -  Learn To Love - DarnTurner - 25 -
+**Track**: AREA ØNE - Like This [Free DL]
 
-Last updated at 9/8/2025, 10:10:41 AM
+Last updated at 9/8/2025, 10:14:16 AM
