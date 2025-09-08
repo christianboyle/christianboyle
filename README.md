@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-etWmq0yV7A1yF1ro-styLqA-t500x500.png">](https://soundcloud.com/kellarmusic/castles-in-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3qoNZdxakVCoHP8-kbNlZw-t500x500.png">](https://soundcloud.com/satoshijpn/nobrokeboys?in=saxurn/sets/one-milk)
 
-**Artist**: ANDATA & KELLAR 
+**Artist**: SATOSHI 
 
-**Track**: ANDATA & KELLAR - Castles In The Sky
+**Track**: Disco Lines & Tinashe - No Broke Boys (SATOSHI Remix)
 
-Last updated at 9/8/2025, 9:52:25 AM
+Last updated at 9/8/2025, 10:00:55 AM
