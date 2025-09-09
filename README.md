@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZZwz2XkIRrGjlTU-lrtN8g-t500x500.png">](https://soundcloud.com/dnbranger/mineral-shiden?in=saxurn/sets/two-milk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n3qoNZdxakVCoHP8-kbNlZw-t500x500.png">](https://soundcloud.com/satoshijpn/nobrokeboys?in=saxurn/sets/one-milk)
 
-**Artist**: Mineral 
+**Artist**: SATOSHI 
 
-**Track**: Mineral - Shiden
+**Track**: Disco Lines & Tinashe - No Broke Boys (SATOSHI Remix)
 
-Last updated at 9/9/2025, 9:53:39 AM
+Last updated at 9/9/2025, 11:12:28 AM
