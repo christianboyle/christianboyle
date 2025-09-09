@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NbT3YCCrflUVhgxy-QcoF2A-t500x500.png">](https://soundcloud.com/bannedwrldradio/zonedout-echoing-override-prod-phntmzn-br-27)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yK9UhWBOxUq0ynzx-Z5OPiQ-t500x500.jpg">](https://soundcloud.com/sportmodemusic/hot)
 
-**Artist**: BANNED WRLD RADIO 
+**Artist**: SPORTMODE 
 
-**Track**: zonedout - ECHOING OVERRIDE (prod. phntmzn bR)
+**Track**: SPORTMODE - HOT
 
-Last updated at 9/9/2025, 9:17:35 AM
+Last updated at 9/9/2025, 9:19:15 AM
