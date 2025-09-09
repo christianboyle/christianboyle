@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJV7czcmmdHQ3f3Q-TXIrkg-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/nanobii-fk-tatsunoshin-remix-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR1wFt67oVLZAKe2-nNjJmQ-t500x500.jpg">](https://soundcloud.com/ninajirachi/singgood?in=saxurn/sets/three-milk)
 
-**Artist**: nanobii x Tatsunoshin 
+**Artist**: Ninajirachi 
 
-**Track**: nanobii - F**K (Tatsunoshin Remix) [Extended Mix]
+**Track**: Sing Good
 
-Last updated at 9/9/2025, 6:01:50 AM
+Last updated at 9/9/2025, 8:39:22 AM
