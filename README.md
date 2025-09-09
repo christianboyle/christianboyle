@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AGpm8rlJLcABkc6r-PYzVrw-t500x500.png">](https://soundcloud.com/viperactive/viperactive-anxious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BJV7czcmmdHQ3f3Q-TXIrkg-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/nanobii-fk-tatsunoshin-remix-extended-mix)
 
-**Artist**: Viperactive 
+**Artist**: nanobii x Tatsunoshin 
 
-**Track**: Viperactive - Anxious
+**Track**: nanobii - F**K (Tatsunoshin Remix) [Extended Mix]
 
-Last updated at 9/8/2025, 4:25:51 PM
+Last updated at 9/9/2025, 6:01:50 AM
