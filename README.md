@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000460193649-1vlykz-t500x500.jpg">](https://soundcloud.com/edm-support-network/acapella-classic-house-vol-20-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0a1KBpvAPNRNzbTF-LnteCQ-t500x500.png">](https://soundcloud.com/highsynth1/the-star-out-now?in=saxurn/sets/1a1/)
 
-**Artist**: noteb 
+**Artist**: DRIFT 
 
-**Track**: Acapella Classic House Vol. 20 (FREE DOWNLOAD)
+**Track**: THE STAR (OUT NOW)
 
-Last updated at 9/10/2025, 9:22:05 AM
+Last updated at 9/10/2025, 9:23:11 AM
