@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZzuLE0zem6x70r68-3SE9pg-t500x500.jpg">](https://soundcloud.com/user-944688557/if-i-were-you?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fmz67r0sueYgq5vi-tqNvqA-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/jim-jonathan-shugz-everybodys-free-adc031?in=saxurn/sets/1a1/)
 
-**Artist**: Lee Ardis mark5 😎 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: : 🕺🏼 If I Were You 🕺🏼 :
+**Track**: Jim Jonathan & Shugz - Everybody's Free [ADC031]
 
-Last updated at 9/10/2025, 10:01:36 AM
+Last updated at 9/10/2025, 3:27:50 PM
