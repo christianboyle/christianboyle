@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b3fuuJGmH39KBr7y-I5eM6A-t500x500.png">](https://soundcloud.com/lifeofrileyofficial/life-of-riley-rosey-angel-will-you-lift-me-sample-ft-out-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S6rW1wPbfl5Jqy59-TvFoEg-t500x500.png">](https://soundcloud.com/climate-of-fear/kiabitterbabe)
 
-**Artist**: Life of Riley Official 
+**Artist**: Climate of Fear 
 
-**Track**: Life of Riley & Rosey - Angel Will You Lift Me (Sample FT Out Soon)
+**Track**: Kia b2b Bitter Babe - Climate of Fear - June '25
 
-Last updated at 9/10/2025, 9:03:56 AM
+Last updated at 9/10/2025, 9:05:12 AM
