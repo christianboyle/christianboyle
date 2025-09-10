@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8LJd3QkQUaQ24xFm-FdoG1Q-t500x500.jpg">](https://soundcloud.com/pixeldollmp3/unload-the-klip-x-boss-fight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V3z1bPPo3XNRuvDO-vwsshQ-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/swell-times-turn-it-up)
 
-**Artist**: Kliptic, Hol!, Pixel Doll 
+**Artist**: Swell Times 
 
-**Track**: Unload The Klip x Boss Fight (Pixel Doll Edit) [FREE DL]
+**Track**: Swell Times - Turn-it-up
 
-Last updated at 9/10/2025, 9:17:23 AM
+Last updated at 9/10/2025, 9:18:33 AM
