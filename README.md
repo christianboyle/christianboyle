@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zy7LckbIfkPCZDNx-DAJRpw-t500x500.jpg">](https://soundcloud.com/lysrgix/lysrgix-get-down-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhsWpQaYyovLVACt-eSg8iA-t500x500.png">](https://soundcloud.com/chillplanetmusic/taiga-hands-up)
 
-**Artist**: LYSRGIX 
+**Artist**: TAIGA 
 
-**Track**: Get Down [FREE DOWNLOAD]
+**Track**: TAIGA - Hands Up
 
-Last updated at 9/10/2025, 9:13:48 AM
+Last updated at 9/10/2025, 9:15:13 AM
