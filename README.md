@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gjoubl9N3TSr-0-t500x500.jpg">](https://soundcloud.com/schak/standing-still)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000460193649-1vlykz-t500x500.jpg">](https://soundcloud.com/edm-support-network/acapella-classic-house-vol-20-free-download)
 
-**Artist**: Schak 
+**Artist**: noteb 
 
-**Track**: Standing Still
+**Track**: Acapella Classic House Vol. 20 (FREE DOWNLOAD)
 
-Last updated at 9/10/2025, 9:20:44 AM
+Last updated at 9/10/2025, 9:22:05 AM
