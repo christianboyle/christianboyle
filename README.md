@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PaNodPc5ludMjqwa-jH11dw-t500x500.png">](https://soundcloud.com/madjestickasual/jeani-q-clear-the-dancefloor-mk-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QmRaI5eHQMZMceWF-LM9xsw-t500x500.png">](https://soundcloud.com/zentryc/free-dl-turn-it-up-final-damo-jxcn)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Zentryc 
 
-**Track**: Jeani Q - Clear The Dancefloor [MK PREMIERE]
+**Track**: [FREE DL] TURN IT UP - DAMØ & JXCN
 
-Last updated at 9/10/2025, 8:59:46 AM
+Last updated at 9/10/2025, 9:00:56 AM
