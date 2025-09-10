@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QmRaI5eHQMZMceWF-LM9xsw-t500x500.png">](https://soundcloud.com/zentryc/free-dl-turn-it-up-final-damo-jxcn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fW8yQ0BajDGYmcr1-2g63AQ-t500x500.jpg">](https://soundcloud.com/mark-smith-carnage/audioboyz-fly-away-radio-edit)
 
-**Artist**: Zentryc 
+**Artist**: Mark Smith (DJ Carnage) 
 
-**Track**: [FREE DL] TURN IT UP - DAMØ & JXCN
+**Track**: AudioBoyz - Fly Away [Radio Edit]
 
-Last updated at 9/10/2025, 9:00:56 AM
+Last updated at 9/10/2025, 9:01:56 AM
