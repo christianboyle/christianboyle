@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vhZtQ6zVHeaAQ0jz-aG4yzg-t500x500.jpg">](https://soundcloud.com/user-643553014/united-in-flames-w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PaNodPc5ludMjqwa-jH11dw-t500x500.png">](https://soundcloud.com/madjestickasual/jeani-q-clear-the-dancefloor-mk-premiere)
 
-**Artist**: NTS Latest 
+**Artist**: Madjestic Kasual 
 
-**Track**: United In Flames w/ JAMESJAMESJAMES & MALIBU 280825
+**Track**: Jeani Q - Clear The Dancefloor [MK PREMIERE]
 
-Last updated at 9/10/2025, 7:07:33 AM
+Last updated at 9/10/2025, 8:59:46 AM
