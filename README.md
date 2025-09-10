@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S6rW1wPbfl5Jqy59-TvFoEg-t500x500.png">](https://soundcloud.com/climate-of-fear/kiabitterbabe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V4X7vwR6WPLq6A0k-dRHX9g-t500x500.png">](https://soundcloud.com/felixiirc/62efb400-dd8d-4b71-be5f-38bf95f7d318)
 
-**Artist**: Climate of Fear 
+**Artist**: felix iirc 
 
-**Track**: Kia b2b Bitter Babe - Climate of Fear - June '25
+**Track**: hit it
 
-Last updated at 9/10/2025, 9:05:12 AM
+Last updated at 9/10/2025, 9:06:17 AM
