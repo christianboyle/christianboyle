@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EBbFVJSAQnSfxL9r-0uJSEg-t500x500.jpg">](https://soundcloud.com/1369official/victory-lap-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B2uw4C6n5EseGjbM-ayzCJA-t500x500.jpg">](https://soundcloud.com/edgedubzontwitter/edge-x-charpyy-code-138)
 
-**Artist**: 1369 
+**Artist**: Edge, CHARPYY 
 
-**Track**: VICTORY LAP (1369 REMIX)
+**Track**: Edge x CHARPYY - CODE 138
 
-Last updated at 9/11/2025, 10:00:29 AM
+Last updated at 9/11/2025, 1:46:19 PM
