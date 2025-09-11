@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MiGOq4BJxZ6m-0-t500x500.jpg">](https://soundcloud.com/riodayungog/different-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0dHHWoylyltnnSw-1LIOQQ-t500x500.png">](https://soundcloud.com/subcarbon/sevsky-x-vyhara-shadows-free-download)
 
-**Artist**: Rio Da Yung Og 
+**Artist**: SEVSKY, Vyhara 
 
-**Track**: Different Music
+**Track**: SEVSKY x Vyhara - Shadows [Free Download]
 
-Last updated at 9/11/2025, 9:47:17 AM
+Last updated at 9/11/2025, 9:48:22 AM
