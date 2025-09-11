@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Zo1gL0yO4HVFQEN-XX4ibw-t500x500.png">](https://soundcloud.com/sethdavidmusic/pink-panthress-illegal-seth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-scott-a-left)
 
-**Artist**: Seth David 
+**Artist**: JGS, DJ INTENT, SCOTT A 
 
-**Track**: PinkPantheress - Illegal (SETH DAVID & SEVSKY FLIP)
+**Track**: JGS, INTENT & SCOTT A - Left Outside Alone (Sample)
 
-Last updated at 9/11/2025, 9:44:32 AM
+Last updated at 9/11/2025, 9:45:47 AM
