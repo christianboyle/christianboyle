@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rYpU83lBzjGrvM7K-6eDVXg-t500x500.png">](https://soundcloud.com/sidepiece/cunty-sidepiece-treat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EBbFVJSAQnSfxL9r-0uJSEg-t500x500.jpg">](https://soundcloud.com/1369official/victory-lap-remix-1)
 
-**Artist**: SIDEPIECE 
+**Artist**: 1369 
 
-**Track**: CUNTY (SidePiece Treat)
+**Track**: VICTORY LAP (1369 REMIX)
 
-Last updated at 9/11/2025, 9:56:08 AM
+Last updated at 9/11/2025, 10:00:29 AM
