@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-scott-a-left)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MiGOq4BJxZ6m-0-t500x500.jpg">](https://soundcloud.com/riodayungog/different-music)
 
-**Artist**: JGS, DJ INTENT, SCOTT A 
+**Artist**: Rio Da Yung Og 
 
-**Track**: JGS, INTENT & SCOTT A - Left Outside Alone (Sample)
+**Track**: Different Music
 
-Last updated at 9/11/2025, 9:45:47 AM
+Last updated at 9/11/2025, 9:47:17 AM
