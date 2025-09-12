@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHVMjmNXAx9OJ9pi-QJ1Lsw-t500x500.png">](https://soundcloud.com/djhighness/gym-class-heroes-stereo-hearts-highness-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Fx3cqYtaitHY7TL-tTLsHA-t500x500.jpg">](https://soundcloud.com/zurglin/sub-focus-waiting-zurglin)
 
-**Artist**: ⚡️HIGHNESS 
+**Artist**: ZURGLIN 
 
-**Track**: Gym Class Heroes - Stereo Hearts ( Highness Remix ) SC CUT*
+**Track**: Sub Focus - Waiting [ZURGLIN Flip] (FreeDL)
 
-Last updated at 9/12/2025, 6:55:26 PM
+Last updated at 9/12/2025, 6:56:26 PM
