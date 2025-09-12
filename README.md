@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLO2F4BHaT0QFfOK-OR6iEA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/hixxy-re-con-i-can-wait-gzmo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tJFKkVYt6V0WOkyo-jO1pYA-t500x500.jpg">](https://soundcloud.com/cabxdm/l8nite)
 
-**Artist**: GZMO 
+**Artist**: cab, Jurni 
 
-**Track**: Hixxy & Re-Con - I Can Wait (GZMO Remix)
+**Track**: L8NITE
 
-Last updated at 9/12/2025, 10:27:50 AM
+Last updated at 9/12/2025, 10:29:25 AM
