@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUMca7FVNxAzFzVZ-wjOarA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-frankie-watch-epopea-mav666-remix-shvrs005)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MI7yyCdBxmNJHm7V-ZpmKhA-t500x500.png">](https://soundcloud.com/zentryc/free-dl-wtf-blurredmovement-x-jazzy-x-jowi)
 
-**Artist**: HATE, Frankie Watch 
+**Artist**: Zentryc 
 
-**Track**: Premiere: Frankie Watch — Epopea (MAV666 Remix) [SHVRS005]
+**Track**: [FREE DL] WTF - BLURRED x JAZZY x JOWI
 
-Last updated at 9/12/2025, 6:58:31 PM
+Last updated at 9/12/2025, 6:59:36 PM
