@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3dreMSByPd06JfTX-R1XrUg-t500x500.png">](https://soundcloud.com/saint-baek/47da510d-5075-4a14-922e-2dca35753f07)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LeAgfzTmgvE0rc5y-uVzs4g-t500x500.png">](https://soundcloud.com/culture-shock/all-the-things-she-said-culture-shock-version)
 
-**Artist**: SAINT MILLER 
+**Artist**: Culture Shock,  Sarah de Warren 
 
-**Track**: Control
+**Track**: All The Things She Said (Culture Shock Version)
 
-Last updated at 9/12/2025, 6:53:11 PM
+Last updated at 9/12/2025, 6:54:26 PM
