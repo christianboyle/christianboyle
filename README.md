@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naFYE992fX84tkT0-R4XmSg-t500x500.png">](https://soundcloud.com/purityleech/starlight-feat-emma-aibara-co-prod-4evr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUMca7FVNxAzFzVZ-wjOarA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-frankie-watch-epopea-mav666-remix-shvrs005)
 
-**Artist**: purityleech, Emma Aibara, 4evr 
+**Artist**: HATE, Frankie Watch 
 
-**Track**: Starlight (feat Emma Aibara co-prod 4evr)
+**Track**: Premiere: Frankie Watch — Epopea (MAV666 Remix) [SHVRS005]
 
-Last updated at 9/12/2025, 6:57:26 PM
+Last updated at 9/12/2025, 6:58:31 PM
