@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EaClA7EiX8mK-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/random-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNib19gX2NyhE1TT-tpLRrA-t500x500.png">](https://soundcloud.com/marc69-1/f-it-friday)
 
-**Artist**: Ste Willo 
+**Artist**: marc.k.b 
 
-**Track**: Random One
+**Track**: f it friday
 
-Last updated at 9/12/2025, 10:25:10 AM
+Last updated at 9/12/2025, 10:26:10 AM
