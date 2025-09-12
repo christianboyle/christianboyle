@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FZFdB4Pcdnr4579J-qNG1lA-t500x500.png">](https://soundcloud.com/loopacabra/dj-set-at-burning-man-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ml0zHDzm3lUQty1g-338yBw-t500x500.png">](https://soundcloud.com/bauti_music/skrillex-xereca-na-vara-bauti-flip)
 
-**Artist**: Loopacabra 
+**Artist**: bauti 
 
-**Track**: 🔥🔥🔥 LIVE AT BURNING MAN 2025 🔥🔥🔥
+**Track**: SKRILLEX - XERECA NA VARA (bauti flip)
 
-Last updated at 9/12/2025, 9:57:52 AM
+Last updated at 9/12/2025, 10:23:39 AM
