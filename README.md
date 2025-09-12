@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ml0zHDzm3lUQty1g-338yBw-t500x500.png">](https://soundcloud.com/bauti_music/skrillex-xereca-na-vara-bauti-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EaClA7EiX8mK-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/random-one)
 
-**Artist**: bauti 
+**Artist**: Ste Willo 
 
-**Track**: SKRILLEX - XERECA NA VARA (bauti flip)
+**Track**: Random One
 
-Last updated at 9/12/2025, 10:23:39 AM
+Last updated at 9/12/2025, 10:25:10 AM
