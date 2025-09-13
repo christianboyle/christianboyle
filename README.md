@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Zo1gL0yO4HVFQEN-XX4ibw-t500x500.png">](https://soundcloud.com/sethdavidmusic/pink-panthress-illegal-seth?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Fmz67r0sueYgq5vi-tqNvqA-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/jim-jonathan-shugz-everybodys-free-adc031?in=saxurn/sets/1a1/)
 
-**Artist**: Seth David 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: PinkPantheress - Illegal (SETH DAVID & SEVSKY FLIP)
+**Track**: Jim Jonathan & Shugz - Everybody's Free [ADC031]
 
-Last updated at 9/13/2025, 7:56:21 AM
+Last updated at 9/13/2025, 7:59:11 AM
