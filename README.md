@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MI7yyCdBxmNJHm7V-ZpmKhA-t500x500.png">](https://soundcloud.com/zentryc/free-dl-wtf-blurredmovement-x-jazzy-x-jowi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rpdBqYg2Ugw1KGsx-rPirMA-t500x500.png">](https://soundcloud.com/huskibass/tonez-alright)
 
-**Artist**: Zentryc 
+**Artist**: Tonez 
 
-**Track**: [FREE DL] WTF - BLURRED x JAZZY x JOWI
+**Track**: TONEZ - ALRIGHT (HUSKI BASS 022)
 
-Last updated at 9/12/2025, 6:59:36 PM
+Last updated at 9/12/2025, 7:00:36 PM
