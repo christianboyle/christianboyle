@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygsSD4nrewsBgG5w-ebbxjA-t500x500.jpg">](https://soundcloud.com/iamtrademarc/boizaliazzz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UG2uIwMwtXpk6XUX-jTsyng-t500x500.jpg">](https://soundcloud.com/gombocrec/manu-larrea-bitches-love-cake-free-download)
 
-**Artist**: Trademarc 
+**Artist**: Gomboc Records 
 
-**Track**: Boy's A Liar (Trademarc Edit)
+**Track**: Manu Larrea - BITCHES LOVE CAKE (Free Download)
 
-Last updated at 9/12/2025, 7:01:37 PM
+Last updated at 9/12/2025, 7:05:30 PM
