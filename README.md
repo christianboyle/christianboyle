@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kpQmmwKe08E4Lzis-N6DVmQ-t500x500.jpg">](https://soundcloud.com/raaynen/you-never-did)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HuNR1AiobwR2aG0H-sSa8zQ-t500x500.png">](https://soundcloud.com/stunnapossecult/hellgnar-stunna-posse-cult-mix)
 
-**Artist**: raynen 
+**Artist**: STUNNA POSSE 
 
-**Track**: you never did
+**Track**: HELLGNAR STUNNA POSSE CULT MIX
 
-Last updated at 9/14/2025, 6:45:12 AM
+Last updated at 9/14/2025, 6:47:03 AM
