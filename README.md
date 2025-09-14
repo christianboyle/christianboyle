@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Zo1gL0yO4HVFQEN-XX4ibw-t500x500.png">](https://soundcloud.com/sethdavidmusic/pink-panthress-illegal-seth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PuAtYzmADilcUaKO-mDsqzg-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/m-dee-21-klubb-efekt-let-him-go-sample)
 
-**Artist**: Seth David 
+**Artist**: DJ MOFF-EL MOFF-M DEE 21 
 
-**Track**: PinkPantheress - Illegal (SETH DAVID & SEVSKY FLIP)
+**Track**: M DEE 21 & Klubb Efekt-Let Him Go (Sample)
 
-Last updated at 9/14/2025, 6:40:02 AM
+Last updated at 9/14/2025, 6:42:07 AM
