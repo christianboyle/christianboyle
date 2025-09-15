@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4b4y6sbl9gZeyNBR-WAtfzQ-t500x500.png">](https://soundcloud.com/fatalenergyrecords/d-railed-philosophy-jona-d-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMiS0j8Dkw8FNRXi-xb6Bvw-t500x500.jpg">](https://soundcloud.com/darn84/dj-brisk-happy-hardcore-1)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: D-Railed - Philosophy (Jona D Remix)
+**Track**: DJ Brisk  - Happy Hardcore Foundation - Volume 2 (1999)
 
-Last updated at 9/15/2025, 8:45:48 AM
+Last updated at 9/15/2025, 8:46:58 AM
