@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XwQtAyYm0cKD79Yb-481qzw-t500x500.png">](https://soundcloud.com/saysosounds/masquenada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edlVmE7Hzwl9fqa4-eXlBJQ-t500x500.jpg">](https://soundcloud.com/officialflozone/gogogo)
 
-**Artist**: SAYSO 
+**Artist**: Flozone 
 
-**Track**: MAS QUE NADA (SAYSO Remix) - Sérgio Mendes [FREE DOWNLOAD]
+**Track**: GO!
 
-Last updated at 9/15/2025, 8:40:48 AM
+Last updated at 9/15/2025, 8:41:48 AM
