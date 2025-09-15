@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edlVmE7Hzwl9fqa4-eXlBJQ-t500x500.jpg">](https://soundcloud.com/officialflozone/gogogo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zLuSlIOBlm0R8my9-6ASTdg-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/gala-freed-from-desire-yannis)
 
-**Artist**: Flozone 
+**Artist**: Yannis G 
 
-**Track**: GO!
+**Track**: Gala - Freed From Desire (Yannis G Remix).wav
 
-Last updated at 9/15/2025, 8:41:48 AM
+Last updated at 9/15/2025, 8:42:48 AM
