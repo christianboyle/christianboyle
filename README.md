@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HuNR1AiobwR2aG0H-sSa8zQ-t500x500.png">](https://soundcloud.com/stunnapossecult/hellgnar-stunna-posse-cult-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Zo1gL0yO4HVFQEN-XX4ibw-t500x500.png">](https://soundcloud.com/sethdavidmusic/pink-panthress-illegal-seth)
 
-**Artist**: STUNNA POSSE 
+**Artist**: Seth David 
 
-**Track**: HELLGNAR STUNNA POSSE CULT MIX
+**Track**: PinkPantheress - Illegal (SETH DAVID & SEVSKY FLIP)
 
-Last updated at 9/14/2025, 6:47:03 AM
+Last updated at 9/15/2025, 6:15:40 AM
