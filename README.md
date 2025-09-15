@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WsjCETDa5xMMf7Oz-dyYNVg-t500x500.png">](https://soundcloud.com/soundsbyanon/fdb-anon-x-furtha-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryO2gndyy7DgmYZ1-F6r3ZA-t500x500.jpg">](https://soundcloud.com/onnelly2014/dmb-donnelly-paradise-2023)
 
-**Artist**: ANON, FURTHA, Young Dro 
+**Artist**: 🎶🏴󠁧󠁢󠁳󠁣󠁴󠁿DONNELLY🏴󠁧󠁢󠁳󠁣󠁴󠁿🎶 
 
-**Track**: FDB (ANON X FURTHA Remix)
+**Track**: DMB & DONNELLY - PARADISE 2023
 
-Last updated at 9/15/2025, 5:56:06 PM
+Last updated at 9/15/2025, 5:57:06 PM
