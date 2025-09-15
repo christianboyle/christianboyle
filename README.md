@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrH5vSfc3UdWOhy4-xcl7ww-t500x500.png">](https://soundcloud.com/hendy2017/hendy-ft-megan-over-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOYTHhlYG2CnwVX3-r5BUIw-t500x500.png">](https://soundcloud.com/monstercat/sportmode-flute-song-1)
 
-**Artist**: DJ Hendy 
+**Artist**: SPORTMODE 
 
-**Track**: Hendy Ft Megan - Over You
+**Track**: SPORTMODE - flute song
 
-Last updated at 9/15/2025, 5:58:11 PM
+Last updated at 9/15/2025, 5:59:11 PM
