@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ryO2gndyy7DgmYZ1-F6r3ZA-t500x500.jpg">](https://soundcloud.com/onnelly2014/dmb-donnelly-paradise-2023)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrH5vSfc3UdWOhy4-xcl7ww-t500x500.png">](https://soundcloud.com/hendy2017/hendy-ft-megan-over-you)
 
-**Artist**: 🎶🏴󠁧󠁢󠁳󠁣󠁴󠁿DONNELLY🏴󠁧󠁢󠁳󠁣󠁴󠁿🎶 
+**Artist**: DJ Hendy 
 
-**Track**: DMB & DONNELLY - PARADISE 2023
+**Track**: Hendy Ft Megan - Over You
 
-Last updated at 9/15/2025, 5:57:06 PM
+Last updated at 9/15/2025, 5:58:11 PM
