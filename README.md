@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zOhVlhhFwOcOiWTW-ozl4Pg-t500x500.jpg">](https://soundcloud.com/groove030/treknebelo-wtp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4b4y6sbl9gZeyNBR-WAtfzQ-t500x500.png">](https://soundcloud.com/fatalenergyrecords/d-railed-philosophy-jona-d-remix)
 
-**Artist**: Treknebelo 
+**Artist**: Fatal Energy Records 
 
-**Track**: Treknebelo - WTP
+**Track**: D-Railed - Philosophy (Jona D Remix)
 
-Last updated at 9/15/2025, 8:44:47 AM
+Last updated at 9/15/2025, 8:45:48 AM
