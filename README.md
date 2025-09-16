@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hOYTHhlYG2CnwVX3-r5BUIw-t500x500.png">](https://soundcloud.com/monstercat/sportmode-flute-song-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMiS0j8Dkw8FNRXi-xb6Bvw-t500x500.jpg">](https://soundcloud.com/darn84/dj-brisk-happy-hardcore-1)
 
-**Artist**: SPORTMODE 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: SPORTMODE - flute song
+**Track**: DJ Brisk  - Happy Hardcore Foundation - Volume 2 (1999)
 
-Last updated at 9/15/2025, 5:59:11 PM
+Last updated at 9/16/2025, 6:21:24 AM
