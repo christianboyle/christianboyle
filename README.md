@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65DH6YXZY288qGjQ-UL2F5Q-t500x500.png">](https://soundcloud.com/poomstyles/last-rhythm-last-rhythm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yEL16KmWn9NYsn7-bV1jSw-t500x500.jpg">](https://soundcloud.com/41rossco/16-9-25)
 
-**Artist**: PoomStyles 
+**Artist**: DJ.Rossco 
 
-**Track**: Last Rhythm - Last Rhythm  (Poomstyles Rmx)
+**Track**: Fiona&Garys Garden party🌿☘️⚘️🪻🌷🌼🌻🌺🌲🌳
 
-Last updated at 9/17/2025, 7:16:24 AM
+Last updated at 9/17/2025, 7:28:51 AM
