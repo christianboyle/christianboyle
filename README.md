@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yEL16KmWn9NYsn7-bV1jSw-t500x500.jpg">](https://soundcloud.com/41rossco/16-9-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZwK1TCUWJEC7zg9s-QyVq4A-t500x500.png">](https://soundcloud.com/hardcoreenergy/dj-hybrid-gone?in=hardcoreenergy/sets/dj-hybrid-ghetto-blaster-ep)
 
-**Artist**: DJ.Rossco 
+**Artist**: Hardcore Energy 
 
-**Track**: Fiona&Garys Garden party🌿☘️⚘️🪻🌷🌼🌻🌺🌲🌳
+**Track**: DJ Hybrid - Gone
 
-Last updated at 9/17/2025, 7:28:51 AM
+Last updated at 9/17/2025, 7:30:16 AM
