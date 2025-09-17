@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D0ZnuwFJFkUkbJ9z-tYLI2Q-t500x500.png">](https://soundcloud.com/hate_music/premiere-lpv-marinai-digitali-rawep15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000662048965-0cdzbt-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/cassie-me-and-you-taggys-makina-bootleg)
 
-**Artist**: HATE, LPV 
+**Artist**: TAGGY 
 
-**Track**: Premiere: LPV — Marinai Digitali [RAWEP15]
+**Track**: Cassie me and you!! taggys makina bootleg
 
-Last updated at 9/17/2025, 7:12:58 AM
+Last updated at 9/17/2025, 7:14:09 AM
