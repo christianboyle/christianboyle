@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N7qHJwtQIHnHnm6R-JwkyIw-t500x500.png">](https://soundcloud.com/shallnotfade/mia-lily-bittersweet-snf138)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N7ItSGuenFKR-0-t500x500.jpg">](https://soundcloud.com/zayok/lifes-too-short-to-be-this)
 
-**Artist**: Mia Lily 
+**Artist**: zayok, h3artch3rades 
 
-**Track**: Mia Lily - Bittersweet (SNF138)
+**Track**: Life’s too short to be this afraid
 
-Last updated at 9/17/2025, 7:10:54 AM
+Last updated at 9/17/2025, 7:11:59 AM
