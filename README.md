@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pslAzer90u1ItVeB-XRmGkw-t500x500.jpg">](https://soundcloud.com/allthereason/a-ap-rocky-flacko-all-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N7qHJwtQIHnHnm6R-JwkyIw-t500x500.png">](https://soundcloud.com/shallnotfade/mia-lily-bittersweet-snf138)
 
-**Artist**: All The Reason 
+**Artist**: Mia Lily 
 
-**Track**: A$AP ROCKY - FLACKO (ALL THE REASON REMIX)
+**Track**: Mia Lily - Bittersweet (SNF138)
 
-Last updated at 9/17/2025, 6:13:35 AM
+Last updated at 9/17/2025, 7:10:54 AM
