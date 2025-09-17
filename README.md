@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-geQnTjwtx1MV5juK-87uwOw-t500x500.jpg">](https://soundcloud.com/strobez-music/cantforgetyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OY2n1GWMGLr5NAUc-0Fyz7A-t500x500.jpg">](https://soundcloud.com/blazedini/hole-vinso)
 
-**Artist**: Strobez 
+**Artist**: Blazedini, Wenszy 
 
-**Track**: Can't Forget You
+**Track**: Hole +wenszy (vinso)
 
-Last updated at 9/17/2025, 7:33:22 AM
+Last updated at 9/17/2025, 7:34:22 AM
