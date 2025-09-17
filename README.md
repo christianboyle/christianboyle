@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fkwPxMzuDDJzmRRE-cvOLkQ-t500x500.png">](https://soundcloud.com/starkidsjapan/zoo-prod-poop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6XfLkyJzpgb7chJ-Gul2Sg-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/kesha-taggy-tike)
 
-**Artist**: ☆STARKIDS☆ 
+**Artist**: TAGGY 
 
-**Track**: Zoo (Prod. P.O.O.P)
+**Track**: Kesha (taggy & Tike)
 
-Last updated at 9/17/2025, 7:36:57 AM
+Last updated at 9/17/2025, 7:38:47 AM
