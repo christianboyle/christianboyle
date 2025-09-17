@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8iaQLSHAMiNJ64gC-2XOMIA-t500x500.png">](https://soundcloud.com/geckonl/xtc-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UG2uIwMwtXpk6XUX-jTsyng-t500x500.jpg">](https://soundcloud.com/gombocrec/manu-larrea-bitches-love-cake-free-download)
 
-**Artist**: Geck-o 
+**Artist**: Gomboc Records 
 
-**Track**: Geck-o - BRING THAT BEAT BACK!!! (XTC Love Mix)
+**Track**: Manu Larrea - BITCHES LOVE CAKE (Free Download)
 
-Last updated at 9/17/2025, 10:36:32 AM
+Last updated at 9/17/2025, 10:39:32 AM
