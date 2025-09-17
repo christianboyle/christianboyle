@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMiS0j8Dkw8FNRXi-xb6Bvw-t500x500.jpg">](https://soundcloud.com/darn84/dj-brisk-happy-hardcore-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pslAzer90u1ItVeB-XRmGkw-t500x500.jpg">](https://soundcloud.com/allthereason/a-ap-rocky-flacko-all-the)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: All The Reason 
 
-**Track**: DJ Brisk  - Happy Hardcore Foundation - Volume 2 (1999)
+**Track**: A$AP ROCKY - FLACKO (ALL THE REASON REMIX)
 
-Last updated at 9/16/2025, 6:21:24 AM
+Last updated at 9/17/2025, 6:13:35 AM
