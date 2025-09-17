@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UG2uIwMwtXpk6XUX-jTsyng-t500x500.jpg">](https://soundcloud.com/gombocrec/manu-larrea-bitches-love-cake-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Zo1gL0yO4HVFQEN-XX4ibw-t500x500.png">](https://soundcloud.com/sethdavidmusic/pink-panthress-illegal-seth)
 
-**Artist**: Gomboc Records 
+**Artist**: Seth David 
 
-**Track**: Manu Larrea - BITCHES LOVE CAKE (Free Download)
+**Track**: PinkPantheress - Illegal (SETH DAVID & SEVSKY FLIP)
 
-Last updated at 9/17/2025, 10:39:32 AM
+Last updated at 9/17/2025, 12:26:06 PM
