@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZzuLE0zem6x70r68-3SE9pg-t500x500.jpg">](https://soundcloud.com/user-944688557/if-i-were-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6XfLkyJzpgb7chJ-Gul2Sg-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/kesha-taggy-tike)
 
-**Artist**: Lee Ardis mark5 😎 
+**Artist**: TAGGY 
 
-**Track**: : 🕺🏼 If I Were You 🕺🏼 :
+**Track**: Kesha (taggy & Tike)
 
-Last updated at 9/17/2025, 10:19:55 AM
+Last updated at 9/17/2025, 10:22:35 AM
