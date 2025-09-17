@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OY2n1GWMGLr5NAUc-0Fyz7A-t500x500.jpg">](https://soundcloud.com/blazedini/hole-vinso)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fkwPxMzuDDJzmRRE-cvOLkQ-t500x500.png">](https://soundcloud.com/starkidsjapan/zoo-prod-poop)
 
-**Artist**: Blazedini, Wenszy 
+**Artist**: ☆STARKIDS☆ 
 
-**Track**: Hole +wenszy (vinso)
+**Track**: Zoo (Prod. P.O.O.P)
 
-Last updated at 9/17/2025, 7:34:22 AM
+Last updated at 9/17/2025, 7:36:57 AM
