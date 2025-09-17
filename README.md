@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N7ItSGuenFKR-0-t500x500.jpg">](https://soundcloud.com/zayok/lifes-too-short-to-be-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D0ZnuwFJFkUkbJ9z-tYLI2Q-t500x500.png">](https://soundcloud.com/hate_music/premiere-lpv-marinai-digitali-rawep15)
 
-**Artist**: zayok, h3artch3rades 
+**Artist**: HATE, LPV 
 
-**Track**: Life’s too short to be this afraid
+**Track**: Premiere: LPV — Marinai Digitali [RAWEP15]
 
-Last updated at 9/17/2025, 7:11:59 AM
+Last updated at 9/17/2025, 7:12:58 AM
