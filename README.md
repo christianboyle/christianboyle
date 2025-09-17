@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-il3xYKOeKEL2uzxx-5MynDg-t500x500.png">](https://soundcloud.com/dnzrecords/sound-source-99-feel-like)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8iaQLSHAMiNJ64gC-2XOMIA-t500x500.png">](https://soundcloud.com/geckonl/xtc-love)
 
-**Artist**: Sound Source 99 
+**Artist**: Geck-o 
 
-**Track**: Sound Source 99 - Feel Like
+**Track**: Geck-o - BRING THAT BEAT BACK!!! (XTC Love Mix)
 
-Last updated at 9/17/2025, 9:27:23 AM
+Last updated at 9/17/2025, 9:30:58 AM
