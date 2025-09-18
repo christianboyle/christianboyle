@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-paHh7KRD18CeoQoh-9PqsIw-t500x500.png">](https://soundcloud.com/alphaverbnl/everything-is-gonna-be-ok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OY2n1GWMGLr5NAUc-0Fyz7A-t500x500.jpg">](https://soundcloud.com/blazedini/hole-vinso?in=saxurn/sets/cruciform-sliding-technology)
 
-**Artist**: Alphaverb & Mindflux 
+**Artist**: Blazedini, Wenszy 
 
-**Track**: Everything (Is Gonna Be OK)
+**Track**: Hole +wenszy (vinso)
 
-Last updated at 9/18/2025, 9:01:26 AM
+Last updated at 9/18/2025, 9:05:52 AM
