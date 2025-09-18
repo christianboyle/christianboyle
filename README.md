@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLFzHYmN93UlkG66-fNAqyA-t500x500.png">](https://soundcloud.com/zentryc/free-dl-stay-up-all-night-damp-x-no-id)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UG2uIwMwtXpk6XUX-jTsyng-t500x500.jpg">](https://soundcloud.com/gombocrec/manu-larrea-bitches-love-cake-free-download?in=saxurn/sets/cruciform-sliding-technology)
 
-**Artist**: Zentryc 
+**Artist**: Gomboc Records 
 
-**Track**: [FREE DL] Stay Up All Night - DAMP x No-ID
+**Track**: Manu Larrea - BITCHES LOVE CAKE (Free Download)
 
-Last updated at 9/18/2025, 8:40:00 AM
+Last updated at 9/18/2025, 8:46:15 AM
