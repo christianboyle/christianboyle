@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o9zFMCmyFLyKR6sK-gsrmoQ-t500x500.jpg">](https://soundcloud.com/mellikmusic/mercy-mellik-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kP1g5RgyHnuOd4il-gcf7hw-t500x500.jpg">](https://soundcloud.com/dj4b/boom-boom-boom-boom-4b-remix-1)
 
-**Artist**: MELLIK 
+**Artist**: 4B 
 
-**Track**: Kayne West, Big Sean, Pusha T, 2 Chains - MERCY (MELLIK Remix) FREE DOWNLOAD
+**Track**: BOOM BOOM BOOM BOOM (4B REMIX)
 
-Last updated at 9/18/2025, 8:05:39 AM
+Last updated at 9/18/2025, 8:07:14 AM
