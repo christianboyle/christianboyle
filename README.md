@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UG2uIwMwtXpk6XUX-jTsyng-t500x500.jpg">](https://soundcloud.com/gombocrec/manu-larrea-bitches-love-cake-free-download?in=saxurn/sets/cruciform-sliding-technology)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gNzitULoLLdrtcyW-wNC23Q-t500x500.jpg">](https://soundcloud.com/strawberrygothcake/inaharu-tinkle-link-3?in=saxurn/sets/cruciform-sliding-technology)
 
-**Artist**: Gomboc Records 
+**Artist**: STRAWBERRY GOTHCAKE 
 
-**Track**: Manu Larrea - BITCHES LOVE CAKE (Free Download)
+**Track**: inaharu - TINKLE LINK!!!
 
-Last updated at 9/18/2025, 8:46:15 AM
+Last updated at 9/18/2025, 8:50:00 AM
