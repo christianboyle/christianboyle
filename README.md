@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kP1g5RgyHnuOd4il-gcf7hw-t500x500.jpg">](https://soundcloud.com/dj4b/boom-boom-boom-boom-4b-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UvOWrAidNUK8xQqG-OVQoBA-t500x500.png">](https://soundcloud.com/technowereld/premiere-vxbv-wet-leaves-pulzarva0042)
 
-**Artist**: 4B 
+**Artist**: Techno Wereld, VxBV 
 
-**Track**: BOOM BOOM BOOM BOOM (4B REMIX)
+**Track**: Premiere: VxBV - Wet Leaves [PULZARVA004.2]
 
-Last updated at 9/18/2025, 8:07:14 AM
+Last updated at 9/18/2025, 8:08:24 AM
