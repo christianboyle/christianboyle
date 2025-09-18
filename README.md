@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K5ipC66iuSggGoJm-KZ3vOA-t500x500.jpg">](https://soundcloud.com/mark-smith-carnage/audioboyz-ft-bounce-mechanix?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Wv9tmGmEF4neUIk-4FiLjQ-t500x500.png">](https://soundcloud.com/manifestdnb/chappell-roan-pink-pony-club-doshi-bootleg?in=saxurn/sets/1a1/)
 
-**Artist**: Mark Smith (DJ Carnage) 
+**Artist**: Chappell Roan 
 
-**Track**: AudioBoyz Ft Bounce Mechanix - Reason [Radio Edit]
+**Track**: Chappell Roan - Pink Pony Club (DØSHI Bootleg) [FREE DOWNLOAD]
 
-Last updated at 9/18/2025, 8:28:51 AM
+Last updated at 9/18/2025, 8:33:07 AM
