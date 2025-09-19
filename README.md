@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j27Z5aidkUmCnHzK-SLrg6Q-t500x500.jpg">](https://soundcloud.com/wwenszy/2night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfO1YPRhhxevzwKy-9Lrrvg-t500x500.png">](https://soundcloud.com/stargir1/keep-it)
 
-**Artist**: wenszy 
+**Artist**: Julia Forever 줄리아 
 
-**Track**: 2NIGHT
+**Track**: keep it *demo*
 
-Last updated at 9/18/2025, 9:02:11 PM
+Last updated at 9/18/2025, 9:03:11 PM
