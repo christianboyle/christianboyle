@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N3tU3zUYdgbUWejn-d2puGA-t500x500.png">](https://soundcloud.com/channiis/escape-prod-minty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GO2A6pPbDE8Kb3eY-pcN0sg-t500x500.jpg">](https://soundcloud.com/dougsuh/doug-suh-sumant-twilight-obsession)
 
-**Artist**: channie 
+**Artist**: doug suh, sumant, twilight 
 
-**Track**: escape prod minty
+**Track**: doug suh, sumant & twilight - obsession
 
-Last updated at 9/18/2025, 9:05:47 PM
+Last updated at 9/18/2025, 9:06:47 PM
