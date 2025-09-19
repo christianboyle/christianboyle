@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6XfLkyJzpgb7chJ-Gul2Sg-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/kesha-taggy-tike?in=saxurn/sets/cruciform-sliding-technology)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OY2n1GWMGLr5NAUc-0Fyz7A-t500x500.jpg">](https://soundcloud.com/blazedini/hole-vinso?in=saxurn/sets/cruciform-sliding-technology)
 
-**Artist**: TAGGY 
+**Artist**: Blazedini, Wenszy 
 
-**Track**: Kesha (taggy & Tike)
+**Track**: Hole +wenszy (vinso)
 
-Last updated at 9/18/2025, 11:03:40 AM
+Last updated at 9/18/2025, 9:00:41 PM
