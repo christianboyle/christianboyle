@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9e4P8APjxK4WtkVQ-TLcKcA-t500x500.jpg">](https://soundcloud.com/pitchweavr/2006pt?in=pitchweavr/sets/2006a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N3tU3zUYdgbUWejn-d2puGA-t500x500.png">](https://soundcloud.com/channiis/escape-prod-minty)
 
-**Artist**: kuriyai 
+**Artist**: channie 
 
-**Track**: 𝄇 ##2006.・.𓏲𝄢. 𝄡
+**Track**: escape prod minty
 
-Last updated at 9/18/2025, 9:04:47 PM
+Last updated at 9/18/2025, 9:05:47 PM
