@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfO1YPRhhxevzwKy-9Lrrvg-t500x500.png">](https://soundcloud.com/stargir1/keep-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9e4P8APjxK4WtkVQ-TLcKcA-t500x500.jpg">](https://soundcloud.com/pitchweavr/2006pt?in=pitchweavr/sets/2006a1)
 
-**Artist**: Julia Forever 줄리아 
+**Artist**: kuriyai 
 
-**Track**: keep it *demo*
+**Track**: 𝄇 ##2006.・.𓏲𝄢. 𝄡
 
-Last updated at 9/18/2025, 9:03:11 PM
+Last updated at 9/18/2025, 9:04:47 PM
