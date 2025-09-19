@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GO2A6pPbDE8Kb3eY-pcN0sg-t500x500.jpg">](https://soundcloud.com/dougsuh/doug-suh-sumant-twilight-obsession)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThqZ7EsLhoz0BBPI-oGqhzg-t500x500.png">](https://soundcloud.com/shoiyi/wenszy-tonight-remix-prod-tokkiya-shoiyi)
 
-**Artist**: doug suh, sumant, twilight 
+**Artist**: shoiyi 
 
-**Track**: doug suh, sumant & twilight - obsession
+**Track**: wenszy - tonight remix prod tokkiya + shoiyi
 
-Last updated at 9/18/2025, 9:06:47 PM
+Last updated at 9/18/2025, 9:08:26 PM
