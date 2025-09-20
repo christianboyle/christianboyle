@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfyVALIWiGY2DZsp-7m8wSw-t500x500.jpg">](https://soundcloud.com/joytimecollective/viperactive-one-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F5ycZVO467FdWTLy-sFUGZw-t500x500.jpg">](https://soundcloud.com/nobodyhardcore/findthestrength)
 
-**Artist**: Viperactive, Strobez, Vel Nine 
+**Artist**: Nobody (Justice Hardcore) 
 
-**Track**: Viperactive, Strobez, Vel Nine - One Time
+**Track**: Nobody - Find The Strength ⚠️OUT NOW⚠️
 
-Last updated at 9/20/2025, 9:43:40 AM
+Last updated at 9/20/2025, 9:44:40 AM
