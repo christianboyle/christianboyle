@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2hSKnbeuFxaoynN-HzMxqQ-t500x500.jpg">](https://soundcloud.com/djmarkblair/david-guetta-feat-akon-sexy-bitch-mark-blair-rave-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JXfaIobrbhfUzyv-MBbFdg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/fukumean)
 
-**Artist**: MARK BLAIR 
+**Artist**: Trapical Music 
 
-**Track**: DAVID GUETTA FEAT. AKON - SEXY BITCH (MARK BLAIR RAVE EDIT)
+**Track**: Gunna - fukumean (John Kroon Remix)
 
-Last updated at 9/22/2025, 9:01:25 AM
+Last updated at 9/22/2025, 9:02:30 AM
