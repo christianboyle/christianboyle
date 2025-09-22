@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RM4qIoiftxPpYZyq-6maqMQ-t500x500.jpg">](https://soundcloud.com/grayorangemusic/gray-tech-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GED9V1CqQYoMVCIl-hwcM5w-t500x500.jpg">](https://soundcloud.com/macca-88-1/macca-braveheart-the-name-of-my-dj)
 
-**Artist**: GRAYORANGE 
+**Artist**: Macca™ // MCA 
 
-**Track**: gray tech.wav
+**Track**: Macca  - Braveheart (The Name Of My DJ)
 
-Last updated at 9/22/2025, 9:04:10 AM
+Last updated at 9/22/2025, 9:06:55 AM
