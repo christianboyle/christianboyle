@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iTyvZDuqOgXV3m49-gryhvg-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/burnr-bury2k-we-got-fire-adc014-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ZH9BmExz2cmz8wUt-zHco3Q-t500x500.jpg">](https://soundcloud.com/audiochaserz/audio-chaserz-wish-i-could)
 
-**Artist**: AMSTERDAM DANCE CAPITAL 
+**Artist**: Audio Chaserz 
 
-**Track**: BURNR & BURY2K - We Got Fire [ADC014]
+**Track**: Audio Chaserz - Wish I Could (COMING SOON)
 
-Last updated at 9/22/2025, 9:25:31 AM
+Last updated at 9/22/2025, 9:27:41 AM
