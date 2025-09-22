@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-funElEcgGD7ldPvo-eXYdmg-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/pearce-m-beat-go-boom-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J9Ug7dS3QR17vftb-5yUQig-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/dj-freekfunk-pumpin-adc010-3)
 
 **Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: Pearce M - Beat Go Boom [ADC009]
+**Track**: DJ FREEKFUNK - PUMPIN' [ADC010]
 
-Last updated at 9/22/2025, 9:14:50 AM
+Last updated at 9/22/2025, 9:18:40 AM
