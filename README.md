@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JXfaIobrbhfUzyv-MBbFdg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/fukumean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RM4qIoiftxPpYZyq-6maqMQ-t500x500.jpg">](https://soundcloud.com/grayorangemusic/gray-tech-wav)
 
-**Artist**: Trapical Music 
+**Artist**: GRAYORANGE 
 
-**Track**: Gunna - fukumean (John Kroon Remix)
+**Track**: gray tech.wav
 
-Last updated at 9/22/2025, 9:02:30 AM
+Last updated at 9/22/2025, 9:04:10 AM
