@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N7WrW5Czw38yXvEI-6UZgoA-t500x500.jpg">](https://soundcloud.com/parasoxmusic/we-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n6YODiyqVG9HtUWI-A6ph7Q-t500x500.png">](https://soundcloud.com/fatalenergyrecords/orbit-let-me-in-original-mix)
 
-**Artist**: parasox 
+**Artist**: Fatal Energy Records 
 
-**Track**: WE IN
+**Track**: Orbit - Let Me In!!! (Original Mix)
 
-Last updated at 9/22/2025, 8:49:19 AM
+Last updated at 9/22/2025, 8:50:24 AM
