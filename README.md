@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yyi5Bc54fhg3BCH7-7fQ0qQ-t500x500.jpg">](https://soundcloud.com/yeschef444/loud-yes-chef-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2hSKnbeuFxaoynN-HzMxqQ-t500x500.jpg">](https://soundcloud.com/djmarkblair/david-guetta-feat-akon-sexy-bitch-mark-blair-rave-edit)
 
-**Artist**: Yes Chef 
+**Artist**: MARK BLAIR 
 
-**Track**: Mac Miller - Loud (YES CHEF Flip) FREE DL
+**Track**: DAVID GUETTA FEAT. AKON - SEXY BITCH (MARK BLAIR RAVE EDIT)
 
-Last updated at 9/22/2025, 8:55:59 AM
+Last updated at 9/22/2025, 9:01:25 AM
