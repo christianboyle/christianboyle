@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000094253246-w1e4ko-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/taggy-galactico)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658568431-eeryc5-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/like-a-prayer)
 
 **Artist**: TAGGY 
 
-**Track**: Taggy Galactico
+**Track**: Like A Prayer
 
-Last updated at 9/22/2025, 10:14:51 AM
+Last updated at 9/22/2025, 10:18:46 AM
