@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000658568431-eeryc5-t500x500.jpg">](https://soundcloud.com/steven-mctaggart/like-a-prayer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8iaQLSHAMiNJ64gC-2XOMIA-t500x500.png">](https://soundcloud.com/geckonl/xtc-love)
 
-**Artist**: TAGGY 
+**Artist**: Geck-o 
 
-**Track**: Like A Prayer
+**Track**: Geck-o - BRING THAT BEAT BACK!!! (XTC Love Mix)
 
-Last updated at 9/22/2025, 10:18:46 AM
+Last updated at 9/22/2025, 10:22:37 AM
