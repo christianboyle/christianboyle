@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3VnhTSHUy8YyMsaV-ozL9ZA-t500x500.jpg">](https://soundcloud.com/manjiofficial/manji-go-crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThqZ7EsLhoz0BBPI-oGqhzg-t500x500.png">](https://soundcloud.com/shoiyi/wenszy-tonight-remix-prod-tokkiya-shoiyi)
 
-**Artist**: Manji 
+**Artist**: shoiyi 
 
-**Track**: Manji - GO CRAZY [FREE DOWNLOAD]
+**Track**: wenszy - tonight remix prod tokkiya + shoiyi
 
-Last updated at 9/22/2025, 9:53:49 AM
+Last updated at 9/22/2025, 9:56:54 AM
