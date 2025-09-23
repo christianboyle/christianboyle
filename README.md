@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVXqQ4AB5wun0HcY-BNPyeg-t500x500.png">](https://soundcloud.com/dnzrecords/audioboyz-i-drove-all-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AOd5VGriuWeiQB7Q-UA162g-t500x500.jpg">](https://soundcloud.com/user-920663187/gerry-cinnamon-sometimes)
 
-**Artist**: AudioBoyz 
+**Artist**: CONNOR B 
 
-**Track**: AudioBoyz - I Drove All Night
+**Track**: Gerry Cinnamon - Sometimes (Connor B Bootleg)
 
-Last updated at 9/23/2025, 9:04:34 AM
+Last updated at 9/23/2025, 9:05:40 AM
