@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ar8LXc9mrvjt8LQr-zVzSWA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/da-tweekaz-sound-rush-save-my-soul)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKi7QfqIMdbhTpQF-gSLCvQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/primeshock-ft-sarah-anglionin-escape-esc)
 
-**Artist**: Da Tweekaz, Sound Rush 
+**Artist**: Primeshock, Sarah Anglionin 
 
-**Track**: Da Tweekaz & Sound Rush - Save My Soul
+**Track**: Primeshock ft. Sarah Anglionin - Escape (ESC)
 
-Last updated at 9/23/2025, 9:07:10 AM
+Last updated at 9/23/2025, 9:08:35 AM
