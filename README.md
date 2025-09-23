@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PMQm10KVhYv5b6Ab-1imzAA-t500x500.png">](https://soundcloud.com/dnbranger/c-du-623)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sA5EJsP5DLEYUTaC-BvzABQ-t500x500.jpg">](https://soundcloud.com/zacharystime/hydrate-final)
 
-**Artist**: C-DU 
+**Artist**: Zachary 
 
-**Track**: C-DU - 623
+**Track**: Skrillex, Flowdan, BEAM, PEEKABOO - Hydrate (Zachary Remix)
 
-Last updated at 9/23/2025, 9:16:51 AM
+Last updated at 9/23/2025, 9:17:51 AM
