@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yKi7QfqIMdbhTpQF-gSLCvQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/primeshock-ft-sarah-anglionin-escape-esc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EAXXNBOyeS83heRh-E1wvQA-t500x500.png">](https://soundcloud.com/technowereld/premiere-sterope-phantom-quartz-grd008)
 
-**Artist**: Primeshock, Sarah Anglionin 
+**Artist**: Techno Wereld, Sterope 
 
-**Track**: Primeshock ft. Sarah Anglionin - Escape (ESC)
+**Track**: Premiere: Sterope - Phantom Quartz [GRD008]
 
-Last updated at 9/23/2025, 9:08:35 AM
+Last updated at 9/23/2025, 9:11:55 AM
