@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izyU7eYe3s6dliU9-Fjq00A-t500x500.png">](https://soundcloud.com/1991_music/get-a-good-feeling-exclusive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KjHnXzx3FYzUglaN-o2SDmg-t500x500.png">](https://soundcloud.com/blxkmntn/hotone-remix)
 
-**Artist**: 1991 
+**Artist**: Denzel Curry 
 
-**Track**: Get A Good Feeling (Exclusive)
+**Track**: Hot One (BLXK MNTN Remix)
 
-Last updated at 9/23/2025, 8:31:05 AM
+Last updated at 9/23/2025, 8:32:35 AM
