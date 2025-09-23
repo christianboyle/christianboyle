@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8iaQLSHAMiNJ64gC-2XOMIA-t500x500.png">](https://soundcloud.com/geckonl/xtc-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Wv9tmGmEF4neUIk-4FiLjQ-t500x500.png">](https://soundcloud.com/manifestdnb/chappell-roan-pink-pony-club-doshi-bootleg)
 
-**Artist**: Geck-o 
+**Artist**: Chappell Roan 
 
-**Track**: Geck-o - BRING THAT BEAT BACK!!! (XTC Love Mix)
+**Track**: Chappell Roan - Pink Pony Club (DØSHI Bootleg) [FREE DOWNLOAD]
 
-Last updated at 9/22/2025, 10:22:37 AM
+Last updated at 9/23/2025, 6:04:47 AM
