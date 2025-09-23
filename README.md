@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e5gjzimPOjDpZYyI-jE5Ghg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/horyzon-amitav-in-my-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izyU7eYe3s6dliU9-Fjq00A-t500x500.png">](https://soundcloud.com/1991_music/get-a-good-feeling-exclusive)
 
-**Artist**: Horyzon, Amitav 
+**Artist**: 1991 
 
-**Track**: Horyzon & Amitav - In My Dreams
+**Track**: Get A Good Feeling (Exclusive)
 
-Last updated at 9/23/2025, 8:26:50 AM
+Last updated at 9/23/2025, 8:31:05 AM
