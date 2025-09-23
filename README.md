@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6UiDoTtuFiejmDj4-mnWilw-t500x500.jpg">](https://soundcloud.com/user-906092862/kick-your-legs-in-the-air-danny-doyle-rework-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tcel6qCd61nDdvbZ-y0Udwg-t500x500.png">](https://soundcloud.com/officialcelo/dabin-nurko-i-see-you-ft-skylar-grey-celo-remix)
 
-**Artist**:  Danny Doyle  
+**Artist**: CELO 
 
-**Track**: Kick Your Legs In The Air - Danny Doyle rework (Free Download)
+**Track**: DABIN & NURKO - I SEE YOU FT. SKYLAR GREY (CELO REMIX)
 
-Last updated at 9/23/2025, 9:01:49 AM
+Last updated at 9/23/2025, 9:03:14 AM
