@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EAXXNBOyeS83heRh-E1wvQA-t500x500.png">](https://soundcloud.com/technowereld/premiere-sterope-phantom-quartz-grd008)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PMQm10KVhYv5b6Ab-1imzAA-t500x500.png">](https://soundcloud.com/dnbranger/c-du-623)
 
-**Artist**: Techno Wereld, Sterope 
+**Artist**: C-DU 
 
-**Track**: Premiere: Sterope - Phantom Quartz [GRD008]
+**Track**: C-DU - 623
 
-Last updated at 9/23/2025, 9:11:55 AM
+Last updated at 9/23/2025, 9:16:51 AM
