@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hnuTjFUAkesCfBw-jmgdXQ-t500x500.png">](https://soundcloud.com/40ozcult/sweet-suffering)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SdivxuQHqICH6pky-w6y55A-t500x500.jpg">](https://soundcloud.com/bitbird/st-mary-misdom-take-me-away)
 
-**Artist**: INSIDIUS 
+**Artist**: St. Mary, Misdom 
 
-**Track**: INSIDIUS - SWEET SUFFERING
+**Track**: St. Mary, Misdom - Take Me Away
 
-Last updated at 9/23/2025, 8:36:01 AM
+Last updated at 9/23/2025, 8:38:06 AM
