@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y5BMABIWU4xRqQAH-fB8cVQ-t500x500.jpg">](https://soundcloud.com/jadudala/wreckno-hershe-jiggle-jadu265)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3m5keafe3e134YSx-dfhkpg-t500x500.jpg">](https://soundcloud.com/hartwiiig/hartwig-eclipse)
 
-**Artist**: Wreckno, HerShe 
+**Artist**: Hartwig 
 
-**Track**: Wreckno & HerShe - JIGGLE (JADŪ265)
+**Track**: Hartwig - Eclipse [FREE DL]
 
-Last updated at 9/23/2025, 8:40:01 AM
+Last updated at 9/23/2025, 8:43:17 AM
