@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0H7Q7jwXNwI5LKxx-cN5sNA-t500x500.png">](https://soundcloud.com/rollingbassrecords/release-the-titan-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qY3FIgeXMoSKSg3M-aJ14TQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-tourist-la-bamba)
 
-**Artist**: Soul Valient, Kenetic Kannibalz, Rolling Bass Records 
+**Artist**: DJ Tourist 
 
-**Track**: RELEASE THE TITAN
+**Track**: DJ Tourist - La Bamba
 
-Last updated at 9/23/2025, 8:48:02 AM
+Last updated at 9/23/2025, 8:49:07 AM
