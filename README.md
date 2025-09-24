@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XjszTYgO8sFz3eb9-45kHKQ-t500x500.png">](https://soundcloud.com/dredlokmusic/nelly-here-comes-the-boom-dredlok-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KLYiNUoAqU8e6ulP-avgxrw-t500x500.jpg">](https://soundcloud.com/dairemusicx/daire-lets-go-master)
 
-**Artist**: Dredlok 
+**Artist**: DAIRE 
 
-**Track**: Nelly - Here Comes the Boom (Dredlok Flip)
+**Track**: DAIRE - Lets Go (Free Download)
 
-Last updated at 9/24/2025, 6:24:59 AM
+Last updated at 9/24/2025, 6:25:59 AM
