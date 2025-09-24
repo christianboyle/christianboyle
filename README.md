@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yfyVDq8ktE9r8pgG-Sxpsqw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/finally-htid-has-come-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KT7mZpUnkP16voPs-MQet8Q-t500x500.png">](https://soundcloud.com/rudeservice/diskwiet-eastwood-1)
 
-**Artist**: Dj Des 
+**Artist**: Diskwiet 
 
-**Track**: Finally HTID Has Come Back ...... Home ( Buzzing )
+**Track**: Diskwiet - Eastwood
 
-Last updated at 9/24/2025, 9:01:22 AM
+Last updated at 9/24/2025, 9:02:42 AM
