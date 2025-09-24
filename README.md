@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-piXtOzz1k9yptzmD-ixIpdw-t500x500.jpg">](https://soundcloud.com/iamgeoofficial/crankthat?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-I2nOVS5EAUsMEpbv-rIRjlA-t500x500.jpg">](https://soundcloud.com/deanmichaelburns89/dmb-ab-memory?in=saxurn/sets/1a1/)
 
-**Artist**: GEO 
+**Artist**: DMB, A+B 
 
-**Track**: CRANK THAT (GEO HARD TECHNO REMIX)
+**Track**: DMB & A+B - Memory
 
-Last updated at 9/24/2025, 11:00:54 AM
+Last updated at 9/24/2025, 11:05:15 AM
