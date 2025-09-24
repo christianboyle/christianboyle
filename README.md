@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KT7mZpUnkP16voPs-MQet8Q-t500x500.png">](https://soundcloud.com/rudeservice/diskwiet-eastwood-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JXfaIobrbhfUzyv-MBbFdg-t500x500.jpg">](https://soundcloud.com/trapicalmusic/fukumean)
 
-**Artist**: Diskwiet 
+**Artist**: Trapical Music 
 
-**Track**: Diskwiet - Eastwood
+**Track**: Gunna - fukumean (John Kroon Remix)
 
-Last updated at 9/24/2025, 9:02:42 AM
+Last updated at 9/24/2025, 9:05:08 AM
