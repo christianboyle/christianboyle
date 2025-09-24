@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SKcPj4fk9iezR61F-P1kLwg-t500x500.jpg">](https://soundcloud.com/industrialsounds/rolbac-feat-karlmars-nevermind-unseen-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-I2nOVS5EAUsMEpbv-rIRjlA-t500x500.jpg">](https://soundcloud.com/deanmichaelburns89/dmb-donnelly-coming-on-strong)
 
-**Artist**: Rolbac 
+**Artist**: DMB, Donnelly 
 
-**Track**: Rolbac feat. Karlmars - Nevermind [UNSEEN Records]
+**Track**: DMB & Donnelly - Coming On Strong
 
-Last updated at 9/24/2025, 6:28:04 AM
+Last updated at 9/24/2025, 6:30:00 AM
