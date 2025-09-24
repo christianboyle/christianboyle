@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S47nrhqj9UbFqcOO-zZAqAw-t500x500.png">](https://soundcloud.com/maeviie/maevie-live-wharf-chambers-latc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XjszTYgO8sFz3eb9-45kHKQ-t500x500.png">](https://soundcloud.com/dredlokmusic/nelly-here-comes-the-boom-dredlok-flip)
 
-**Artist**: maevie 
+**Artist**: Dredlok 
 
-**Track**: maevie live @ wharf chambers; LATC
+**Track**: Nelly - Here Comes the Boom (Dredlok Flip)
 
-Last updated at 9/24/2025, 5:44:25 AM
+Last updated at 9/24/2025, 6:24:59 AM
