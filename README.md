@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q8ah9kEWFDjIj5KW-NzVUoA-t500x500.jpg">](https://soundcloud.com/darn84/hype-mc-gq-dream-fm-bagleys-17)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kf5cu9QjOlk5ZEA2-JDxztA-t500x500.png">](https://soundcloud.com/lowshade/ubraforge)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: L*o*wshade 
 
-**Track**: Hype & MC GQ @ Dream FM - Bagleys (17/05/1996)
+**Track**: Umbraforge
 
-Last updated at 9/24/2025, 8:26:09 AM
+Last updated at 9/24/2025, 8:27:09 AM
