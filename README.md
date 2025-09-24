@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vpg3mdaGzTuY-0-t500x500.jpg">](https://soundcloud.com/alisonwonderland/psycho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ged3zQI7oU8inV1t-T2AMGw-t500x500.png">](https://soundcloud.com/artistadimerda/el-dia-de-los-muertos-mixtape-2024)
 
-**Artist**: Alison Wonderland, Erick the Architect, QUIX, MEMBA 
+**Artist**: Artista di Merda 
 
-**Track**: PSYCHO
+**Track**: EL DÍA DE LOS MUERTOS Mixtape 2024 🔺🔺🔺
 
-Last updated at 9/24/2025, 10:54:57 AM
+Last updated at 9/24/2025, 10:58:02 AM
