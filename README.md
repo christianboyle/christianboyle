@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ged3zQI7oU8inV1t-T2AMGw-t500x500.png">](https://soundcloud.com/artistadimerda/el-dia-de-los-muertos-mixtape-2024)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eKJqWsXW0kU9AyHt-TocRbA-t500x500.png">](https://soundcloud.com/ryan_t08/ryan-t-floor-burn-sample)
 
-**Artist**: Artista di Merda 
+**Artist**: Ryan T 
 
-**Track**: EL DÍA DE LOS MUERTOS Mixtape 2024 🔺🔺🔺
+**Track**: Ryan T - Floor Burn ( Sample )
 
-Last updated at 9/24/2025, 10:58:02 AM
+Last updated at 9/24/2025, 10:59:57 AM
