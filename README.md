@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOpzgZq9dvFiakXg-3yz4qw-t500x500.png">](https://soundcloud.com/eczodia/eczodia-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtHKV7E671AgHRyV-GwvJ7Q-t500x500.jpg">](https://soundcloud.com/styamage/burden?in=saxurn/sets/1a1/)
 
-**Artist**: ECZODIA 
+**Artist**: stya 
 
-**Track**: ECZODIA - Die (FREE DL)
+**Track**: burden prod seph lovebites
 
-Last updated at 9/25/2025, 9:17:15 AM
+Last updated at 9/25/2025, 9:21:46 AM
