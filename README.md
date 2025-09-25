@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JVSFATD1t0s2ZoJk-oWUNww-t500x500.jpg">](https://soundcloud.com/sonicreationss/bad-dream-mixed-mp3?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtHKV7E671AgHRyV-GwvJ7Q-t500x500.jpg">](https://soundcloud.com/styamage/burden?in=saxurn/sets/1a1/)
 
-**Artist**: Lydianair 
+**Artist**: stya 
 
-**Track**: bad dream (prod yk)
+**Track**: burden prod seph lovebites
 
-Last updated at 9/25/2025, 8:37:52 AM
+Last updated at 9/25/2025, 8:40:02 AM
