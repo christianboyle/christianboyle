@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JLFzHYmN93UlkG66-fNAqyA-t500x500.png">](https://soundcloud.com/zentryc/free-dl-stay-up-all-night-damp-x-no-id)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z2XSwyCwbyKg26qg-j6uCSA-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-mondello-x-moxia-rock-that-body-hard-techno-remix)
 
-**Artist**: Zentryc 
+**Artist**: Mondello x Moxia 
 
-**Track**: [FREE DL] Stay Up All Night - DAMP x No-ID
+**Track**: [FREE DL] Mondello x Moxia - Rock That Body (Hard Techno Remix)
 
-Last updated at 9/25/2025, 9:10:10 AM
+Last updated at 9/25/2025, 9:14:10 AM
