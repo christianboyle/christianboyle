@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ov5724WwwHZjgIEm-wXGtXw-t500x500.jpg">](https://soundcloud.com/august-kind/work-august-kind-trance-edit?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yfe9O2kQVqo4-0-t500x500.jpg">](https://soundcloud.com/bambinodj-scmusic/auf-log?in=saxurn/sets/1a1/)
 
-**Artist**: August Kind 
+**Artist**: bambinodj, Phillip Jondo 
 
-**Track**: Work (August Kind Trance Edit)
+**Track**: Auf Log
 
-Last updated at 9/25/2025, 9:23:51 AM
+Last updated at 9/25/2025, 9:29:07 AM
