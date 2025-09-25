@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sA5EJsP5DLEYUTaC-BvzABQ-t500x500.jpg">](https://soundcloud.com/zacharystime/hydrate-final?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HVeVo0scP23Tx702-ybxQrQ-t500x500.png">](https://soundcloud.com/dvdda/dudda-x-votu-gucci?in=saxurn/sets/1a1/)
 
-**Artist**: Zachary 
+**Artist**: dudda, votú 
 
-**Track**: Skrillex, Flowdan, BEAM, PEEKABOO - Hydrate (Zachary Remix)
+**Track**: gucci
 
-Last updated at 9/25/2025, 8:53:08 AM
+Last updated at 9/25/2025, 8:55:33 AM
