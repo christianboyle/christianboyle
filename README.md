@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtHKV7E671AgHRyV-GwvJ7Q-t500x500.jpg">](https://soundcloud.com/styamage/burden?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ov5724WwwHZjgIEm-wXGtXw-t500x500.jpg">](https://soundcloud.com/august-kind/work-august-kind-trance-edit?in=saxurn/sets/1a1/)
 
-**Artist**: stya 
+**Artist**: August Kind 
 
-**Track**: burden prod seph lovebites
+**Track**: Work (August Kind Trance Edit)
 
-Last updated at 9/25/2025, 8:40:02 AM
+Last updated at 9/25/2025, 8:42:07 AM
