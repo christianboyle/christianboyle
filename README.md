@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HVeVo0scP23Tx702-ybxQrQ-t500x500.png">](https://soundcloud.com/dvdda/dudda-x-votu-gucci?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiwfLCoOlfPFrmy4-d0qYfA-t500x500.png">](https://soundcloud.com/saturaterecords/vendeza-blade?in=saxurn/sets/1a1/)
 
-**Artist**: dudda, votú 
+**Artist**: Vendeza 
 
-**Track**: gucci
+**Track**: Vendeza - Blade
 
-Last updated at 9/25/2025, 8:55:33 AM
+Last updated at 9/25/2025, 8:58:39 AM
