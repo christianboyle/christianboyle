@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FiwfLCoOlfPFrmy4-d0qYfA-t500x500.png">](https://soundcloud.com/saturaterecords/vendeza-blade?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3VnhTSHUy8YyMsaV-ozL9ZA-t500x500.jpg">](https://soundcloud.com/manjiofficial/manji-go-crazy?in=saxurn/sets/1a1/)
 
-**Artist**: Vendeza 
+**Artist**: Manji 
 
-**Track**: Vendeza - Blade
+**Track**: Manji - GO CRAZY [FREE DOWNLOAD]
 
-Last updated at 9/25/2025, 8:58:39 AM
+Last updated at 9/25/2025, 9:01:09 AM
