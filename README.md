@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3VnhTSHUy8YyMsaV-ozL9ZA-t500x500.jpg">](https://soundcloud.com/manjiofficial/manji-go-crazy?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-leOygj1YroZJezTY-iysqaw-t500x500.png">](https://soundcloud.com/redhot1/redhot-d0m1nat0r-free-dl)
 
-**Artist**: Manji 
+**Artist**: REDHØT 
 
-**Track**: Manji - GO CRAZY [FREE DOWNLOAD]
+**Track**: D0M1NAT0R [FREE DL]
 
-Last updated at 9/25/2025, 9:01:09 AM
+Last updated at 9/25/2025, 9:04:19 AM
