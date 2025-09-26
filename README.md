@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fEf2kFaIq1kSnsUX-7zalRQ-t500x500.jpg">](https://soundcloud.com/bcco/bcco-premiere-isaiah-unleash-dj-dextro-remix-trsn039)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zk6IUbLdcSD86Jtc-2yt02Q-t500x500.png">](https://soundcloud.com/esca_kassel/self-control)
 
-**Artist**: BCCO 
+**Artist**: ESCA 
 
-**Track**: BCCO Premiere: Isaiah – Unleash (Dj Dextro Remix) [TRSN039]
+**Track**: SELF CONTROL
 
-Last updated at 9/26/2025, 10:35:25 AM
+Last updated at 9/26/2025, 10:36:41 AM
