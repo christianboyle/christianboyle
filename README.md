@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iZNkUAVhEmPPoqXA-VVmxMA-t500x500.jpg">](https://soundcloud.com/spira_sounds/waka-flocka-flame-round-of-applause-spira-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RkWTTx9Qf2XIqkkv-QwfbWQ-t500x500.png">](https://soundcloud.com/cyclopsrecs/disentr-f-2)
 
-**Artist**: Spira 
+**Artist**: Disentr 
 
-**Track**: Waka Flocka Flame - Round Of Applause (Spira Bootleg)
+**Track**: Disentr - F***
 
-Last updated at 9/25/2025, 8:06:34 PM
+Last updated at 9/25/2025, 8:09:44 PM
