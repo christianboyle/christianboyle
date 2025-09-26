@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JKSyF3sT7Fhv77g6-07hy9w-t500x500.png">](https://soundcloud.com/reishio/sacrifice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tzQtfm36TkJxMwzO-CoBNfg-t500x500.jpg">](https://soundcloud.com/lee-batchee-147371268/25-9-25)
 
-**Artist**: REISHIO 
+**Artist**: batchee 
 
-**Track**: SACRIFICE
+**Track**: 25.9.25
 
-Last updated at 9/25/2025, 8:17:05 PM
+Last updated at 9/26/2025, 6:05:41 AM
