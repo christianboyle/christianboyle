@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yfe9O2kQVqo4-0-t500x500.jpg">](https://soundcloud.com/bambinodj-scmusic/auf-log)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JPd5aQ6mZ0slEBy6-7HQIZg-t500x500.jpg">](https://soundcloud.com/amosfk/juslikerihanna)
 
-**Artist**: bambinodj, Phillip Jondo 
+**Artist**: amos 
 
-**Track**: Auf Log
+**Track**: jus like rihanna 𓋔𓋔 prod me and wdym
 
-Last updated at 9/25/2025, 8:04:34 PM
+Last updated at 9/25/2025, 8:05:34 PM
