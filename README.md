@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JPd5aQ6mZ0slEBy6-7HQIZg-t500x500.jpg">](https://soundcloud.com/amosfk/juslikerihanna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iZNkUAVhEmPPoqXA-VVmxMA-t500x500.jpg">](https://soundcloud.com/spira_sounds/waka-flocka-flame-round-of-applause-spira-bootleg)
 
-**Artist**: amos 
+**Artist**: Spira 
 
-**Track**: jus like rihanna 𓋔𓋔 prod me and wdym
+**Track**: Waka Flocka Flame - Round Of Applause (Spira Bootleg)
 
-Last updated at 9/25/2025, 8:05:34 PM
+Last updated at 9/25/2025, 8:06:34 PM
