@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AMc8LFKahPymOGRW-tpXdGw-t500x500.png">](https://soundcloud.com/thraxdubz/thrax-x-kaycin-scars-v1-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JKSyF3sT7Fhv77g6-07hy9w-t500x500.png">](https://soundcloud.com/reishio/sacrifice)
 
-**Artist**: THRAXDUBZ, KAYCIN 
+**Artist**: REISHIO 
 
-**Track**: THRAX x KAYCIN - SCARS V1 [FREE DOWNLOAD]
+**Track**: SACRIFICE
 
-Last updated at 9/25/2025, 8:16:05 PM
+Last updated at 9/25/2025, 8:17:05 PM
