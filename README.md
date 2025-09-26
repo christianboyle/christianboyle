@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3tHzBPalaLr8mkD-ALrAmg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/helena-kristiansson-apollo-lukee-g-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9uNIyJnqIqmJOFz-Pz7wgg-t500x500.png">](https://soundcloud.com/thiccfreqness/niteshade-woodsey-drowning-original-mix-2)
 
-**Artist**: Fatal Energy Records 
+**Artist**: NITESHADE, WOODSEY 
 
-**Track**: Helena Kristiansson - Apollo (Lukee G Remix)
+**Track**: NITESHADE, WOODSEY - Drowning (Original Mix)
 
-Last updated at 9/26/2025, 10:38:21 AM
+Last updated at 9/26/2025, 10:39:26 AM
