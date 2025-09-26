@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tzQtfm36TkJxMwzO-CoBNfg-t500x500.jpg">](https://soundcloud.com/lee-batchee-147371268/25-9-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfnIFgqgdzRbpdOP-2VTxgA-t500x500.png">](https://soundcloud.com/gombocrec/t-e-s-t-p-r-e-s-s-take-dis-free-download)
 
-**Artist**: batchee 
+**Artist**: Gomboc Records 
 
-**Track**: 25.9.25
+**Track**: t e s t p r e s s - TAKE DIS (Free Download)
 
-Last updated at 9/26/2025, 6:05:41 AM
+Last updated at 9/26/2025, 10:34:20 AM
