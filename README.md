@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pt5kjsf54MZXlUHm-xvVlNA-t500x500.jpg">](https://soundcloud.com/dropkick/pyramid-steppa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ShgUZOE5tNzPffM1-aSVyRA-t500x500.png">](https://soundcloud.com/lucuna-dubstep/lucuna-x-ruiiin-ur-mine-final)
 
-**Artist**: Dropkick 
+**Artist**: LUCUNA, RUiIIN 
 
-**Track**: Pyramid Steppa (ft. KOJA & Astrocide)
+**Track**: LUCUNA X RUiIIN - UR MINE
 
-Last updated at 9/25/2025, 8:12:54 PM
+Last updated at 9/25/2025, 8:13:54 PM
