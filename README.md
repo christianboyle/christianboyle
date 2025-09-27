@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J64hXQyKv9wDMbqc-M0l3Rg-t500x500.png">](https://soundcloud.com/girlsynth/the-start-of-it-all)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThqZ7EsLhoz0BBPI-oGqhzg-t500x500.png">](https://soundcloud.com/shoiyi/wenszy-tonight-remix-prod-tokkiya-shoiyi)
 
-**Artist**: girlsynth 
+**Artist**: shoiyi 
 
-**Track**: the start of it all
+**Track**: wenszy - tonight remix prod tokkiya + shoiyi
 
-Last updated at 9/26/2025, 7:31:29 PM
+Last updated at 9/27/2025, 7:32:38 AM
