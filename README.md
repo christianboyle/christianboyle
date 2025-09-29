@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8MyK3gyinRihzTNy-vINZHQ-t500x500.jpg">](https://soundcloud.com/redhot1/restricted-nik-sitz-tunnelvision-redhot-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zscXt8sLwT00KIOr-hADGhA-t500x500.png">](https://soundcloud.com/redhot1/redhotmixtapevol1?in=redhot1/sets/mixes-dj-sets)
 
-**Artist**: REDHØT 
+**Artist**: Redhot 
 
-**Track**: Restricted & Nik Sitz - Tunnel Vision (REDHØT Remix) [FREE DL]
+**Track**: REDHOT MIXTAPE VOL 1 (5K FOLLOWERS MIX)
 
-Last updated at 9/29/2025, 9:08:01 AM
+Last updated at 9/29/2025, 11:23:09 AM
