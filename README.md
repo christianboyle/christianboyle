@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GtHKV7E671AgHRyV-GwvJ7Q-t500x500.jpg">](https://soundcloud.com/styamage/burden?in=saxurn/sets/l8ly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aM5fcXESyuXID2Su-xszZ6A-t500x500.jpg">](https://soundcloud.com/suitsidemusic/can-u-handle-this?in=saxurn/sets/l8ly)
 
-**Artist**: stya 
+**Artist**: SUITSIDE 
 
-**Track**: burden prod seph lovebites
+**Track**: CAN U HANDLE THIS?
 
-Last updated at 9/29/2025, 8:47:04 AM
+Last updated at 9/29/2025, 8:49:14 AM
