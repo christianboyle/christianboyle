@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeqxmUWG3fFfoUNG-yyjcAQ-t500x500.png">](https://soundcloud.com/concentratesdub/psychotic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TJ3hyYHzT11Nvxx0-devynw-t500x500.jpg">](https://soundcloud.com/elxnce/telephone-jukaa-mix-7?in=saxurn/sets/l8ly)
 
-**Artist**: CONCENTRATES 
+**Artist**: elxnce, Cece Natalie, Jukaa 
 
-**Track**: Psychotic
+**Track**: Telephone (Jukaa Mix)
 
-Last updated at 9/29/2025, 8:34:06 AM
+Last updated at 9/29/2025, 8:37:03 AM
