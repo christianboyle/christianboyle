@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfL22kqMofLm5HcH-zvf6vA-t500x500.jpg">](https://soundcloud.com/davidchouman/free-david-chouman-ozdmr-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qR8DrSsFGz2BCgV9-8Vzqaw-t500x500.png">](https://soundcloud.com/afterpartyus/waka-flocka-flame-hard-in-da)
 
-**Artist**: David Chouman 
+**Artist**: Afterparty 
 
-**Track**: KPOP DEMON HUNTERS - FREE (DAVID CHOUMAN & OZDMR REMIX)
+**Track**: Waka Flocka Flame - Hard In Da Paint (Afterparty Flip)
 
-Last updated at 9/29/2025, 8:26:40 AM
+Last updated at 9/29/2025, 8:27:40 AM
