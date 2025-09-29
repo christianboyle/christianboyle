@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1lzuOcLqvW6nBFO-y03Ptw-t500x500.png">](https://soundcloud.com/bemahbeats/liquid-stanger-gunslinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeqxmUWG3fFfoUNG-yyjcAQ-t500x500.png">](https://soundcloud.com/concentratesdub/psychotic)
 
-**Artist**: Bemah 
+**Artist**: CONCENTRATES 
 
-**Track**: Liquid Stranger - Gunslinger (Bemah Flip)
+**Track**: Psychotic
 
-Last updated at 9/29/2025, 8:32:31 AM
+Last updated at 9/29/2025, 8:34:06 AM
