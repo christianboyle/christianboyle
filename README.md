@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThqZ7EsLhoz0BBPI-oGqhzg-t500x500.png">](https://soundcloud.com/shoiyi/wenszy-tonight-remix-prod-tokkiya-shoiyi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BfL22kqMofLm5HcH-zvf6vA-t500x500.jpg">](https://soundcloud.com/davidchouman/free-david-chouman-ozdmr-1)
 
-**Artist**: shoiyi 
+**Artist**: David Chouman 
 
-**Track**: wenszy - tonight remix prod tokkiya + shoiyi
+**Track**: KPOP DEMON HUNTERS - FREE (DAVID CHOUMAN & OZDMR REMIX)
 
-Last updated at 9/28/2025, 7:05:28 AM
+Last updated at 9/29/2025, 5:42:50 AM
