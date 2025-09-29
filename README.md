@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dWH1Jlrxn0Im49EY-iySvLQ-t500x500.png">](https://soundcloud.com/akirakhan/rave-repeater-akira-khan-rvst-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HZ0bx7F3EaGYNOn7-7QwzGg-t500x500.png">](https://soundcloud.com/bignslim/cut-it-up-4)
 
-**Artist**: AKIRA KHAN, RVST 
+**Artist**: BIG N SLIM 
 
-**Track**: Rave Repeater (AKIRA KHAN & RVST Remix)
+**Track**: CUT IT UP
 
-Last updated at 9/29/2025, 8:29:50 AM
+Last updated at 9/29/2025, 8:31:31 AM
