@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zscXt8sLwT00KIOr-hADGhA-t500x500.png">](https://soundcloud.com/redhot1/redhotmixtapevol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLS1YiE3y4VXBMev-zNNWXg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-narcissist)
 
-**Artist**: Redhot 
+**Artist**: DRIFT & STEVEN STRAUB 
 
-**Track**: REDHOT MIXTAPE VOL 1 (5K FOLLOWERS MIX)
+**Track**: DRIFT & STEVEN STRAUB - NARCISSIST (RADIO EDIT)
 
-Last updated at 9/30/2025, 7:22:50 AM
+Last updated at 9/30/2025, 9:15:12 AM
