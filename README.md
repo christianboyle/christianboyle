@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLS1YiE3y4VXBMev-zNNWXg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-narcissist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t0vJcuLA7y4YBgSy-t26AWQ-t500x500.png">](https://soundcloud.com/dj-garbie/christina-novelli-concrete-angel-garbie-project-bounce-remix)
 
-**Artist**: DRIFT & STEVEN STRAUB 
+**Artist**: Garbie Project 
 
-**Track**: DRIFT & STEVEN STRAUB - NARCISSIST (RADIO EDIT)
+**Track**: Christina Novelli - Concrete Angel (Garbie Project Bounce Remix)
 
-Last updated at 9/30/2025, 9:15:12 AM
+Last updated at 9/30/2025, 9:16:12 AM
