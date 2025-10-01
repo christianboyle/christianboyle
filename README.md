@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NsTWjbqVhV5fyH0v-6yYFdg-t500x500.jpg">](https://soundcloud.com/jpky/day-20-samplez-w-sportmode)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Fx3cqYtaitHY7TL-tTLsHA-t500x500.jpg">](https://soundcloud.com/zurglin/sub-focus-waiting-zurglin)
 
-**Artist**: JPKy 
+**Artist**: ZURGLIN 
 
-**Track**: day 20 - samplez w/ sportmode
+**Track**: Sub Focus - Waiting [ZURGLIN Flip] (FreeDL)
 
-Last updated at 10/1/2025, 9:18:13 AM
+Last updated at 10/1/2025, 9:19:08 AM
