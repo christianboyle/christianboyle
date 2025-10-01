@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUfaM1exqAF7mp0O-1RJddA-t500x500.jpg">](https://soundcloud.com/skinnylimbs/go-move)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pvlthypbw1n0NU2i-bkDNVQ-t500x500.jpg">](https://soundcloud.com/joshuarsm/fordave)
 
-**Artist**: Skinny Limbs 
+**Artist**: JUSH 
 
-**Track**: Go Move!
+**Track**: FOR DAVE
 
-Last updated at 10/1/2025, 9:24:23 AM
+Last updated at 10/1/2025, 9:25:19 AM
