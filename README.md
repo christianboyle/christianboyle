@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OudwR0h73PYTNIgn-nMrh3Q-t500x500.png">](https://soundcloud.com/fourfourmagazine/local-selection-278-dj-hushpuppy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-nUnleic1hD4a8oGM-DF1qGA-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-old-school-mix-2)
 
-**Artist**: DJ HUSHPUPPY 
+**Artist**: YEAH MAN 
 
-**Track**: Local Selection 278: DJ HUSHPUPPY
+**Track**: YEAH MAN  - OLD SCHOOL MIX  🔥🔥🔥
 
-Last updated at 10/1/2025, 8:35:08 AM
+Last updated at 10/1/2025, 8:36:18 AM
