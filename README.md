@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bg8lKwuO4EnTod6f-Oaxkjg-t500x500.jpg">](https://soundcloud.com/darkyycomet/darkyycomet-knowledgeable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xmiLIzIOrzBmeMu5-VGr13A-t500x500.png">](https://soundcloud.com/synovamusic/imogen-heap-just-for-now-synova-club-mix)
 
-**Artist**: DarKYYComet 
+**Artist**: Synova 
 
-**Track**: DarKYYComet - Knowledgeable (Free Download)
+**Track**: Imogen Heap - Just For Now (Synova Club Mix)
 
-Last updated at 10/1/2025, 9:11:12 AM
+Last updated at 10/1/2025, 9:12:07 AM
