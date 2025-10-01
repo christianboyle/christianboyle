@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDG1Fo9CrqrRxLkB-fq4p6g-t500x500.png">](https://soundcloud.com/tank-magazine/tank-mix-purity-ring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NvqfhsNRnB8vhozd-VmdZCw-t500x500.jpg">](https://soundcloud.com/kurozaki1/jack-it)
 
-**Artist**: Tank Magazine 
+**Artist**: KUROZAKI 
 
-**Track**: TANK Mix: Purity Ring
+**Track**: KUROZAKI - JACK IT
 
-Last updated at 10/1/2025, 9:20:48 AM
+Last updated at 10/1/2025, 9:22:08 AM
