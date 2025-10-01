@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XvOViip6ScJy-0-t500x500.png">](https://soundcloud.com/jkylxhyde/wastin-my-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lDFWOCyGSvJBUPxe-6mHyjA-t500x500.png">](https://soundcloud.com/satoshijpn/partyrockanthem)
 
-**Artist**: Jkyl & Hyde, DENNETT 
+**Artist**: SATOSHI 
 
-**Track**: Wastin' My Time
+**Track**: LMFAO - Party Rock Anthem (SATOSHI Remix)
 
-Last updated at 9/30/2025, 9:17:12 AM
+Last updated at 10/1/2025, 5:48:43 AM
