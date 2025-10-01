@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UGTmdjf1LdZ26ZiS-WrBhRA-t500x500.jpg">](https://soundcloud.com/user-494848732/jayme-d-angel-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IkmVQa2iqgf3kumE-At5WoQ-t500x500.png">](https://soundcloud.com/david-cruickshanks/shanks-woman-trouble-sample)
 
-**Artist**: JaymeD 
+**Artist**: SHANKS 
 
-**Track**: Jayme D - Angel.mp3(SAMPLE)
+**Track**: SHANKS - WOMAN TROUBLE [SAMPLE]
 
-Last updated at 10/1/2025, 8:37:18 AM
+Last updated at 10/1/2025, 9:06:22 AM
