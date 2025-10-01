@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Fx3cqYtaitHY7TL-tTLsHA-t500x500.jpg">](https://soundcloud.com/zurglin/sub-focus-waiting-zurglin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JDG1Fo9CrqrRxLkB-fq4p6g-t500x500.png">](https://soundcloud.com/tank-magazine/tank-mix-purity-ring)
 
-**Artist**: ZURGLIN 
+**Artist**: Tank Magazine 
 
-**Track**: Sub Focus - Waiting [ZURGLIN Flip] (FreeDL)
+**Track**: TANK Mix: Purity Ring
 
-Last updated at 10/1/2025, 9:19:08 AM
+Last updated at 10/1/2025, 9:20:48 AM
