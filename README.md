@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qFeC33hIHbAWmxHK-ysCAcA-t500x500.png">](https://soundcloud.com/not4humanconsumption/shonen-bat-pianocore-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NsTWjbqVhV5fyH0v-6yYFdg-t500x500.jpg">](https://soundcloud.com/jpky/day-20-samplez-w-sportmode)
 
-**Artist**: NOT 4 HUMAN CONSUMPTION 
+**Artist**: JPKy 
 
-**Track**: Shonen Bat - Pianocore Anthem
+**Track**: day 20 - samplez w/ sportmode
 
-Last updated at 10/1/2025, 9:17:08 AM
+Last updated at 10/1/2025, 9:18:13 AM
