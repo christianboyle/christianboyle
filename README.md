@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aeeVWp3yDar9nDnt-6RA2XA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/distrix-we-like-to-party-dwx-copyright-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-34UCpXLqBlfuY9YH-wV2RaA-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/party-till-sunrise-full-track-out-now)
 
-**Artist**: Distrix 
+**Artist**: DRIFT 
 
-**Track**: Distrix - We Like To Party (DWX Copyright Free)
+**Track**: PARTY TILL SUNRISE (FULL TRACK OUT NOW)
 
-Last updated at 10/1/2025, 9:08:12 AM
+Last updated at 10/1/2025, 9:09:17 AM
