@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNq7ck9JkAz6F5z1-Hrqyqw-t500x500.jpg">](https://soundcloud.com/split_bass/lumasi-daggz-levitate-split)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cOp39KSVIGGVIt3X-dSMWUA-t500x500.png">](https://soundcloud.com/remyheartmusic/rh-live-at-exchange-la)
 
-**Artist**: SPLiT 
+**Artist**: Remy Heart 
 
-**Track**: Lumasi, Daggz - Levitate (SPLiT Flip)
+**Track**: Remy Heart Live at Exchange LA 9/20/25
 
-Last updated at 10/1/2025, 11:44:49 AM
+Last updated at 10/2/2025, 5:45:19 AM
