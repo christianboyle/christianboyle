@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580910741-y54ou8-t500x500.jpg">](https://soundcloud.com/vaingirls/hurt-in-my-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqtSsMywgQRwFT14-UJqkyg-t500x500.png">](https://soundcloud.com/justicehardcore/wdywfm)
 
-**Artist**: Vain Girls 
+**Artist**: Justice Hardcore 
 
-**Track**: Hurt In My Heart
+**Track**: Cascada - What Do You Want From Me (Nobody Remix) *FREE DOWNLOAD*
 
-Last updated at 10/3/2025, 5:31:38 PM
+Last updated at 10/3/2025, 5:33:33 PM
