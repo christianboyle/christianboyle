@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-let-me-love-you-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uDW76Uqbwpg1iFxL-Trkn4A-t500x500.jpg">](https://soundcloud.com/layer_one/izanagi-yabai-with-p3pper)
 
-**Artist**: JGS, DJ INTENT, JGS & INTENT 
+**Artist**: layer_one 
 
-**Track**: JGS & INTENT - Let Me Love You For Tonight (Sample)
+**Track**: IZANAGI YABAI (with P3PPER & Obmil)
 
-Last updated at 10/3/2025, 9:22:32 AM
+Last updated at 10/3/2025, 4:16:39 PM
