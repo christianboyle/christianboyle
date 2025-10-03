@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x9qNKBk5IXnuBCyx-2KfBqQ-t500x500.jpg">](https://soundcloud.com/darn84/dj-fury-soundflow-stompin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BTxZLEdUTUjzgd1-Pbiycw-t500x500.png">](https://soundcloud.com/sablevalley/vertex)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: VARI 
 
-**Track**: DJ Fury - Soundflow - Stompin Choonz (1996)
+**Track**: VARI - Vertex
 
-Last updated at 10/3/2025, 5:29:31 PM
+Last updated at 10/3/2025, 5:30:31 PM
