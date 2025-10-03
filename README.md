@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqtSsMywgQRwFT14-UJqkyg-t500x500.png">](https://soundcloud.com/justicehardcore/wdywfm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cOp39KSVIGGVIt3X-dSMWUA-t500x500.png">](https://soundcloud.com/remyheartmusic/rh-live-at-exchange-la)
 
-**Artist**: Justice Hardcore 
+**Artist**: Remy Heart 
 
-**Track**: Cascada - What Do You Want From Me (Nobody Remix) *FREE DOWNLOAD*
+**Track**: Remy Heart Live at Exchange LA 9/20/25
 
-Last updated at 10/3/2025, 5:33:33 PM
+Last updated at 10/3/2025, 5:36:24 PM
