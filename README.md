@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TlQz6zFHBZzExIjO-96CHBw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/ecstatic-bomb-breaker?in=dirtyworkzofficial/sets/ecstatic-the-essence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q8RySanhTpBPA0Ln-o0BgUg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/lliso-thealemw-take-me-back-dwx-copyright-free)
 
-**Artist**: Ecstatic 
+**Artist**: LLISO, ThealeMW 
 
-**Track**: Ecstatic - Bomb Breaker
+**Track**: LLISO & ThealeMW - Take Me Back (DWX Copyright Free)
 
-Last updated at 10/3/2025, 9:18:11 AM
+Last updated at 10/3/2025, 9:19:16 AM
