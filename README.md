@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BTxZLEdUTUjzgd1-Pbiycw-t500x500.png">](https://soundcloud.com/sablevalley/vertex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000580910741-y54ou8-t500x500.jpg">](https://soundcloud.com/vaingirls/hurt-in-my-heart)
 
-**Artist**: VARI 
+**Artist**: Vain Girls 
 
-**Track**: VARI - Vertex
+**Track**: Hurt In My Heart
 
-Last updated at 10/3/2025, 5:30:31 PM
+Last updated at 10/3/2025, 5:31:38 PM
