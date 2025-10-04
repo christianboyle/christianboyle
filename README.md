@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZCuv6VOSzXQZgSPg-4VYUqA-t500x500.jpg">](https://soundcloud.com/boston_bounce_sessions/chunkee-monkee-pumpin-house-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X3zQE7EgZFe3KC7s-KUO2PQ-t500x500.png">](https://soundcloud.com/revivedjs/revive-djs-warrior-coming-to-bounce-heaven-27th-oct)
 
-**Artist**: ChunkeeMonkee_official 
+**Artist**: REVIVE DJ's/Fusion Bounce UK/SubSonik 
 
-**Track**: Chunkee Monkee Pumpin House mix October 2025
+**Track**: Revive DJ's - Warrior (coming to BOUNCE HEAVEN 27th Oct)
 
-Last updated at 10/4/2025, 6:53:23 PM
+Last updated at 10/4/2025, 6:55:03 PM
