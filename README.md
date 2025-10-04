@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VNZ9G18h0lyo09tD-xswQQA-t500x500.png">](https://soundcloud.com/danielle-mcgungle/djs-factory-get-ready-to-bounce-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZCuv6VOSzXQZgSPg-4VYUqA-t500x500.jpg">](https://soundcloud.com/boston_bounce_sessions/chunkee-monkee-pumpin-house-3)
 
-**Artist**: PIONEER DJ REC 
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: DJS FACTORY GET READY TO BOUNCE MIX
+**Track**: Chunkee Monkee Pumpin House mix October 2025
 
-Last updated at 10/4/2025, 6:51:48 PM
+Last updated at 10/4/2025, 6:53:23 PM
