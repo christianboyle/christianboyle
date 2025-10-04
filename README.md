@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7YZ4gd7JbwASeKp3-BUZFew-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgrs-051-kaku-x-rexydexy-set-the-room-alight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z48WkVfu8lud4ISK-oKmYfQ-t500x500.png">](https://soundcloud.com/soundsbymystic/mstic-manada-bandz-fmu-records)
 
-**Artist**: KAKU, REXY=DEXY 
+**Artist**: M?STIC, MANADA 
 
-**Track**: QGRS-051 | KAKU x REXY=DEXY - SET THE ROOM ALIGHT
+**Track**: M?STIC & MANADA - BANDZ (FMU RECORDS)
 
-Last updated at 10/4/2025, 6:45:56 PM
+Last updated at 10/4/2025, 6:49:17 PM
