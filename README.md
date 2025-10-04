@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cOp39KSVIGGVIt3X-dSMWUA-t500x500.png">](https://soundcloud.com/remyheartmusic/rh-live-at-exchange-la)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOCoQy2Gc55mDRxI-C7Gxqw-t500x500.png">](https://soundcloud.com/not4humanconsumption/wondercore-babylove-1)
 
-**Artist**: Remy Heart 
+**Artist**: NOT 4 HUMAN CONSUMPTION 
 
-**Track**: Remy Heart Live at Exchange LA 9/20/25
+**Track**: Wondercore - Babylove
 
-Last updated at 10/4/2025, 8:24:05 AM
+Last updated at 10/4/2025, 6:44:56 PM
