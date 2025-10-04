@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BTxZLEdUTUjzgd1-Pbiycw-t500x500.png">](https://soundcloud.com/sablevalley/kick-it-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cOp39KSVIGGVIt3X-dSMWUA-t500x500.png">](https://soundcloud.com/remyheartmusic/rh-live-at-exchange-la)
 
-**Artist**: Oddly Godly 
+**Artist**: Remy Heart 
 
-**Track**: Oddly Godly - Kick It Back
+**Track**: Remy Heart Live at Exchange LA 9/20/25
 
-Last updated at 10/4/2025, 7:24:11 AM
+Last updated at 10/4/2025, 8:24:05 AM
