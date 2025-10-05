@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X3zQE7EgZFe3KC7s-KUO2PQ-t500x500.png">](https://soundcloud.com/revivedjs/revive-djs-warrior-coming-to-bounce-heaven-27th-oct)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOCoQy2Gc55mDRxI-C7Gxqw-t500x500.png">](https://soundcloud.com/not4humanconsumption/wondercore-babylove-1)
 
-**Artist**: REVIVE DJ's/Fusion Bounce UK/SubSonik 
+**Artist**: NOT 4 HUMAN CONSUMPTION 
 
-**Track**: Revive DJ's - Warrior (coming to BOUNCE HEAVEN 27th Oct)
+**Track**: Wondercore - Babylove
 
-Last updated at 10/4/2025, 6:55:03 PM
+Last updated at 10/5/2025, 6:02:53 AM
