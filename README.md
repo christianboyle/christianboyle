@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcIz4xtHAYDE45yl-3zDmeA-t500x500.png">](https://soundcloud.com/antidope99/vvvvv-antidope-remix-patreon-exclusive-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NpR6B6hiDSNycd20-JGopIA-t500x500.jpg">](https://soundcloud.com/mjuofficial/mju-zombie-nation-2k24-edit)
 
-**Artist**: ANTIDOPE 
+**Artist**: MJU 
 
-**Track**: VVVVVV ANTIDOPE REMIX [Patreon Exclusive Preview]
+**Track**: MJU - Zombie Nation 2k24 Edit
 
-Last updated at 10/6/2025, 6:36:33 PM
+Last updated at 10/6/2025, 6:37:37 PM
