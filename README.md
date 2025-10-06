@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W4aK7N927ybwFqjP-aHtpGA-t500x500.png">](https://soundcloud.com/name-drop/silent-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SiNKjwP34uZZyBmy-WbcpAg-t500x500.png">](https://soundcloud.com/nrmagazine/nr-sound-mix-087-fetus)
 
-**Artist**: NAME DROP 
+**Artist**: NR Magazine, Fetus 
 
-**Track**: SILENT CRY
+**Track**: NR Sound Mix 087 Fetus
 
-Last updated at 10/6/2025, 10:10:55 AM
+Last updated at 10/6/2025, 10:23:16 AM
