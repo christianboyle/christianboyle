@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqtSsMywgQRwFT14-UJqkyg-t500x500.png">](https://soundcloud.com/justicehardcore/wdywfm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkvWOy8VnSqSBIiU-JmNcMg-t500x500.png">](https://soundcloud.com/justicehardcore/werise)
 
 **Artist**: Justice Hardcore 
 
-**Track**: Cascada - What Do You Want From Me (Nobody Remix) *FREE DOWNLOAD*
+**Track**: Nobody & Audio Nitrate - We Rise (OUT NOW)
 
-Last updated at 10/6/2025, 6:43:02 PM
+Last updated at 10/6/2025, 6:44:38 PM
