@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EsfVuIM4GgnQ-0-t500x500.jpg">](https://soundcloud.com/darren-styles/sweetheart-harder-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kqtSsMywgQRwFT14-UJqkyg-t500x500.png">](https://soundcloud.com/justicehardcore/wdywfm)
 
-**Artist**: Darren Styles, Dougal 
+**Artist**: Justice Hardcore 
 
-**Track**: Sweetheart (Harder Mix)
+**Track**: Cascada - What Do You Want From Me (Nobody Remix) *FREE DOWNLOAD*
 
-Last updated at 10/6/2025, 6:41:52 PM
+Last updated at 10/6/2025, 6:43:02 PM
