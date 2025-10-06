@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOCoQy2Gc55mDRxI-C7Gxqw-t500x500.png">](https://soundcloud.com/not4humanconsumption/wondercore-babylove-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6suQ66LYd44wlz7z-TgUK0A-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/mikey-g-this-is-our-time)
 
-**Artist**: NOT 4 HUMAN CONSUMPTION 
+**Artist**: Rewired Records 
 
-**Track**: Wondercore - Babylove
+**Track**: Mikey G - This Is Our Time
 
-Last updated at 10/5/2025, 6:02:53 AM
+Last updated at 10/6/2025, 6:07:34 AM
