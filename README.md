@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aKTwmjsKyooaKfnp-uw8GqQ-t500x500.jpg">](https://soundcloud.com/so-kuu/wannabe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cmAfUnl4Ce6gQllf-hxbzUg-t500x500.png">](https://soundcloud.com/lynyou/pay-attention)
 
-**Artist**: sokuu 
+**Artist**: lynU, trustt 
 
-**Track**: wannabe
+**Track**: pay attention
 
-Last updated at 10/6/2025, 8:28:51 PM
+Last updated at 10/6/2025, 8:30:01 PM
