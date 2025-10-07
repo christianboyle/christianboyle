@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bYFEF2dQBqA7XKHG-PgUcug-t500x500.png">](https://soundcloud.com/initi8uk/initi8-bass-n-bangers-episode-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYpfzucqgbdwRuz9-hPp5AA-t500x500.jpg">](https://soundcloud.com/al-ex-bounce/nathan-dawe-x-abi-flynn-here-in-your-arms-initi8-x-al-ex-remix-sped-up)
 
-**Artist**: Initi8 
+**Artist**: AL-EX 
 
-**Track**: INITI8 - BASS N BANGERS EPISODE 1
+**Track**: Nathan Dawe X Abi Flynn - Here In Your Arms (Initi8 X AL-EX Remix) SPED UP
 
-Last updated at 10/6/2025, 8:24:22 PM
+Last updated at 10/6/2025, 8:25:32 PM
