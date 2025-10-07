@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkvWOy8VnSqSBIiU-JmNcMg-t500x500.png">](https://soundcloud.com/justicehardcore/werise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbzBAMkWUWfYrsWt-nNvL5w-t500x500.png">](https://soundcloud.com/ihywarm/psg)
 
-**Artist**: Justice Hardcore 
+**Artist**: warm 
 
-**Track**: Nobody & Audio Nitrate - We Rise (OUT NOW)
+**Track**: PSG prod lynU
 
-Last updated at 10/7/2025, 8:21:51 AM
+Last updated at 10/7/2025, 9:08:46 AM
