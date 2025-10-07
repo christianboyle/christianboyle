@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkvWOy8VnSqSBIiU-JmNcMg-t500x500.png">](https://soundcloud.com/justicehardcore/werise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T4GMpOZqvwlnMz3a-ZV2vhw-t500x500.png">](https://soundcloud.com/rvnbaekmusic/meet-her-at-love-parade-rvnbaek-flip)
 
-**Artist**: Justice Hardcore 
+**Artist**: RVNBAEK 
 
-**Track**: Nobody & Audio Nitrate - We Rise (OUT NOW)
+**Track**: MEET AT HER LOVE PARADE (RVNBAEK FLIP)
 
-Last updated at 10/7/2025, 9:51:03 AM
+Last updated at 10/7/2025, 9:54:44 AM
