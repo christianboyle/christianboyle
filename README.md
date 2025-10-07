@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNtlDB1GZ3ijgtHm-qgIInA-t500x500.jpg">](https://soundcloud.com/cld/falling4you)
 
-**Artist**: Initi8 
+**Artist**: cld, crusey 
 
-**Track**: Depressed - (Initi8 Remix)
+**Track**: falling4you w/ crusey
 
-Last updated at 10/7/2025, 8:16:16 AM
+Last updated at 10/7/2025, 8:19:21 AM
