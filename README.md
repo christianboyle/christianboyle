@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uNtlDB1GZ3ijgtHm-qgIInA-t500x500.jpg">](https://soundcloud.com/cld/falling4you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hkvWOy8VnSqSBIiU-JmNcMg-t500x500.png">](https://soundcloud.com/justicehardcore/werise)
 
-**Artist**: cld, crusey 
+**Artist**: Justice Hardcore 
 
-**Track**: falling4you w/ crusey
+**Track**: Nobody & Audio Nitrate - We Rise (OUT NOW)
 
-Last updated at 10/7/2025, 8:19:21 AM
+Last updated at 10/7/2025, 8:21:51 AM
