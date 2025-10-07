@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CiMmEzAHji0RuDwC-Fz9mjA-t500x500.jpg">](https://soundcloud.com/julian_msc/chasinghighs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bYFEF2dQBqA7XKHG-PgUcug-t500x500.png">](https://soundcloud.com/initi8uk/initi8-bass-n-bangers-episode-1)
 
-**Artist**: JULIAN 
+**Artist**: Initi8 
 
-**Track**: Chasing Highs - Julian Remix
+**Track**: INITI8 - BASS N BANGERS EPISODE 1
 
-Last updated at 10/6/2025, 8:23:22 PM
+Last updated at 10/6/2025, 8:24:22 PM
