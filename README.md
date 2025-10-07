@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CiMmEzAHji0RuDwC-Fz9mjA-t500x500.jpg">](https://soundcloud.com/julian_msc/chasinghighs)
 
-**Artist**: Initi8 
+**Artist**: JULIAN 
 
-**Track**: Depressed - (Initi8 Remix)
+**Track**: Chasing Highs - Julian Remix
 
-Last updated at 10/6/2025, 6:53:09 PM
+Last updated at 10/6/2025, 8:23:22 PM
