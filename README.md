@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mie1XTBlXnpOaxP2-3sEpqw-t500x500.png">](https://soundcloud.com/initi8uk/initi8-year-3000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix)
 
 **Artist**: Initi8 
 
-**Track**: INITI8 - YEAR 3000
+**Track**: Depressed - (Initi8 Remix)
 
-Last updated at 10/7/2025, 9:42:13 AM
+Last updated at 10/7/2025, 9:45:28 AM
