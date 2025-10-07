@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cmAfUnl4Ce6gQllf-hxbzUg-t500x500.png">](https://soundcloud.com/lynyou/pay-attention)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyznUlvEwtAegOEP-beBsVg-t500x500.jpg">](https://soundcloud.com/redletterdiary/like-the-last-time)
 
-**Artist**: lynU, trustt 
+**Artist**: red letter diary 
 
-**Track**: pay attention
+**Track**: Like the last time
 
-Last updated at 10/6/2025, 8:30:01 PM
+Last updated at 10/6/2025, 8:31:11 PM
