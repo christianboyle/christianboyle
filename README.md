@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T4GMpOZqvwlnMz3a-ZV2vhw-t500x500.png">](https://soundcloud.com/rvnbaekmusic/meet-her-at-love-parade-rvnbaek-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJuYLvACWbp4-0-t500x500.jpg">](https://soundcloud.com/noyseofficial/techno-music-1)
 
-**Artist**: RVNBAEK 
+**Artist**: NOYSE, AVAO 
 
-**Track**: MEET AT HER LOVE PARADE (RVNBAEK FLIP)
+**Track**: Techno Music
 
-Last updated at 10/7/2025, 9:54:44 AM
+Last updated at 10/7/2025, 9:57:04 AM
