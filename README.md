@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJuYLvACWbp4-0-t500x500.jpg">](https://soundcloud.com/noyseofficial/techno-music-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKeHtyVf0Y7GP44T-Wry59Q-t500x500.png">](https://soundcloud.com/s3rl/dumb)
 
-**Artist**: NOYSE, AVAO 
+**Artist**: S3RL, nanobii 
 
-**Track**: Techno Music
+**Track**: DUMB
 
-Last updated at 10/7/2025, 9:57:04 AM
+Last updated at 10/7/2025, 9:59:39 AM
