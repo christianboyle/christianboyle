@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mie1XTBlXnpOaxP2-3sEpqw-t500x500.png">](https://soundcloud.com/initi8uk/initi8-year-3000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbzBAMkWUWfYrsWt-nNvL5w-t500x500.png">](https://soundcloud.com/ihywarm/psg)
 
-**Artist**: Initi8 
+**Artist**: warm 
 
-**Track**: INITI8 - YEAR 3000
+**Track**: PSG prod lynU
 
-Last updated at 10/7/2025, 6:09:48 AM
+Last updated at 10/7/2025, 8:01:45 AM
