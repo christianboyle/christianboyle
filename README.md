@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYpfzucqgbdwRuz9-hPp5AA-t500x500.jpg">](https://soundcloud.com/al-ex-bounce/nathan-dawe-x-abi-flynn-here-in-your-arms-initi8-x-al-ex-remix-sped-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyROd3DE2NSZnsno-DoSARQ-t500x500.jpg">](https://soundcloud.com/deepinparis/inpursuit)
 
-**Artist**: AL-EX 
+**Artist**: deepinparis 
 
-**Track**: Nathan Dawe X Abi Flynn - Here In Your Arms (Initi8 X AL-EX Remix) SPED UP
+**Track**: in pursuit ft kinsley grey prod inno & cranes
 
-Last updated at 10/6/2025, 8:25:32 PM
+Last updated at 10/6/2025, 8:27:31 PM
