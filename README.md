@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rxs09yizEOcLQJ2x-5xQZOQ-t500x500.jpg">](https://soundcloud.com/elf_z/wynter-gordon-dirty-talk-elfz-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R214yV3hnLRTWzUY-IyPcCg-t500x500.jpg">](https://soundcloud.com/elf_z/elfz-dante-150bpm-vtss-submission)
 
 **Artist**: ELFZ 
 
-**Track**: WYNTER GORDON - DIRTY TALK (ELFZ EDIT)
+**Track**: ELFZ - DANTE
 
-Last updated at 10/8/2025, 9:25:50 AM
+Last updated at 10/8/2025, 9:27:05 AM
