@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1m92AjWxLfNGm4z-unZfDg-t500x500.png">](https://soundcloud.com/marlonhoffstadt/walking-on-a-dream-extended-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzzTtAnkaIhOaq7h-dXDDdw-t500x500.png">](https://soundcloud.com/rewind140/smokestax-be-careful-rwnd140)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Smokestax 
 
-**Track**: Walking On a Dream (Extended Version)
+**Track**: Smokestax - Be Careful [RWND140]
 
-Last updated at 10/8/2025, 10:40:39 AM
+Last updated at 10/8/2025, 10:42:29 AM
