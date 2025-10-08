@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1XpvXs76EuGrTXJ-WzgjBw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/dj-fresh-louder-elfz-lightning-remix?in=nightcore4totalsluts/sets/elfz-valor-form-pt-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-knBwm1XZ9Gks5nFk-T0LgJQ-t500x500.jpg">](https://soundcloud.com/elf_z/ariana-grande-we-cnt-b-friends-elfz-internal-peace-edit)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: ELFZ 
 
-**Track**: DJ FRESH - LOUDER (ELFZ ‘Lightning’ REMIX)
+**Track**: ARIANA GRANDE - WE CNT B FRIENDS (ELFZ 'Internal Peace' EDIT)
 
-Last updated at 10/8/2025, 8:56:59 AM
+Last updated at 10/8/2025, 9:23:35 AM
