@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvE0m5DyEybueGwV-TXwZBA-t500x500.png">](https://soundcloud.com/dramaclubrecs/honu-block-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d29NuYVhuLjB-0-t500x500.jpg">](https://soundcloud.com/loganmichael-music/you-found-me)
 
-**Artist**: HONÜ 
+**Artist**: Logan Michael 
 
-**Track**: HONÜ - Block
+**Track**: You Found Me
 
-Last updated at 10/8/2025, 8:19:46 AM
+Last updated at 10/8/2025, 8:22:21 AM
