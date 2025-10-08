@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gvTHaUz4IHToEy9I-uMOF0Q-t500x500.jpg">](https://soundcloud.com/onnelly2014/dmb-donnelly-anybody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0hkPuXBkQOYPL79L-ATRwSA-t500x500.png">](https://soundcloud.com/danlrk/youwouldhateit)
 
-**Artist**: 🎶🏴󠁧󠁢󠁳󠁣󠁴󠁿DONNELLY🏴󠁧󠁢󠁳󠁣󠁴󠁿🎶 
+**Artist**: Dan Larkin 
 
-**Track**: DMB & DONNELLY - Anybody
+**Track**: You Would Hate It
 
-Last updated at 10/8/2025, 11:02:38 AM
+Last updated at 10/8/2025, 11:03:53 AM
