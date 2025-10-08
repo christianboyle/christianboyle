@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKeHtyVf0Y7GP44T-Wry59Q-t500x500.png">](https://soundcloud.com/s3rl/dumb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BWxPOqoUyrp2u59a-FUY4OQ-t500x500.png">](https://soundcloud.com/kula_1/turn-up-the-bass)
 
-**Artist**: S3RL, nanobii 
+**Artist**: KULA 
 
-**Track**: DUMB
+**Track**: Turn Up The Bass
 
-Last updated at 10/7/2025, 9:59:39 AM
+Last updated at 10/7/2025, 8:16:54 PM
