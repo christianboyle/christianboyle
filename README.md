@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzzTtAnkaIhOaq7h-dXDDdw-t500x500.png">](https://soundcloud.com/rewind140/smokestax-be-careful-rwnd140)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m8L9J0y67CPWmw29-r5Racg-t500x500.png">](https://soundcloud.com/circusrecords/i-do-what-i-want)
 
-**Artist**: Smokestax 
+**Artist**: Viskus x Vyhara 
 
-**Track**: Smokestax - Be Careful [RWND140]
+**Track**: I Do What I Want
 
-Last updated at 10/8/2025, 10:42:29 AM
+Last updated at 10/8/2025, 10:46:10 AM
