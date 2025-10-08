@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R214yV3hnLRTWzUY-IyPcCg-t500x500.jpg">](https://soundcloud.com/elf_z/elfz-dante-150bpm-vtss-submission)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3uyA3Eh7nDIJzZy-shW6nQ-t500x500.jpg">](https://soundcloud.com/hydeparkhifi/hphf-ms47-elfz)
 
-**Artist**: ELFZ 
+**Artist**: Hyde Park Hi-Fi 
 
-**Track**: ELFZ - DANTE
+**Track**: HPHF MS47: ｡*.☆ELFZ☆.*｡
 
-Last updated at 10/8/2025, 9:27:05 AM
+Last updated at 10/8/2025, 9:30:51 AM
