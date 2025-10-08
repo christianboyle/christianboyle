@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I4kBzxSoJfTFZ5qC-emUw0A-t500x500.png">](https://soundcloud.com/hardenmusicusa/stray-man-harden-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kI05z6tymtW2nNol-WFoebQ-t500x500.png">](https://soundcloud.com/alex-puppet/the-midnight-runaways-ft-bonnie-mckee-alex-puppet-remix)
 
-**Artist**: Filippos v Dimp 
+**Artist**: The Midnight, Bonnie McKee, Alex Puppet 
 
-**Track**: Stray Man (HARDEN Edit)
+**Track**: The Midnight - Runaways ft. Bonnie McKee (Alex Puppet Remix)
 
-Last updated at 10/8/2025, 8:23:36 AM
+Last updated at 10/8/2025, 8:25:01 AM
