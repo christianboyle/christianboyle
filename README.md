@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P8CTyMoYQHiz0Tk9-1ZNHjg-t500x500.jpg">](https://soundcloud.com/heklermusic/just-like-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ANOAgkTJWHfAITy-3xvIAg-t500x500.png">](https://soundcloud.com/peacesineofficial/nocturnal-whispers)
 
-**Artist**: HEKLER 
+**Artist**: AguaMayyim, Kompass, Peace Sine 
 
-**Track**: HEKLER - JUST LIKE THIS!
+**Track**: Nocturnal Whispers (Peace Sine Remix)
 
-Last updated at 10/7/2025, 8:24:07 PM
+Last updated at 10/7/2025, 8:25:17 PM
