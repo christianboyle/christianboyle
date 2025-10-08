@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k1ej1dLAJRWMz9uu-38lI9w-t500x500.png">](https://soundcloud.com/morflorecords/slang-dogs-wasnt-easy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BnGgLaAVZYdOwqBF-z6djGQ-t500x500.png">](https://soundcloud.com/wormhole-music-group/amalgam-stratosphere-2)
 
-**Artist**: Slang Dogs 
+**Artist**: Amalgam 
 
-**Track**: Slang Dogs - Wasn't Easy
+**Track**: Amalgam - Stratosphere
 
-Last updated at 10/8/2025, 8:13:55 AM
+Last updated at 10/8/2025, 8:15:50 AM
