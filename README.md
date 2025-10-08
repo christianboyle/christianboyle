@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KByoFszTRv2ps8bM-bb5Wvg-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/so-sus-wtf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CnlPmBid9Jdpj9u7-UrVTAg-t500x500.png">](https://soundcloud.com/jaybryanbounce/enjoy-yourself-free-download)
 
-**Artist**: So Sus 
+**Artist**: Jay Bryan 
 
-**Track**: QGRS-052 | So Sus - WTF
+**Track**: Enjoy Yourself *FREE DOWNLOAD*
 
-Last updated at 10/8/2025, 10:52:52 AM
+Last updated at 10/8/2025, 10:53:52 AM
