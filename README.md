@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VhcWJoy3vlAsIUyV-ZCljcQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/humanity-reborn-out-now-on-excite-digitalcouk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KByoFszTRv2ps8bM-bb5Wvg-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/so-sus-wtf)
 
-**Artist**: DRIFT 
+**Artist**: So Sus 
 
-**Track**: HUMANITY REBORN (OUT NOW ON EXCITE-DIGITAL.CO.UK)
+**Track**: QGRS-052 | So Sus - WTF
 
-Last updated at 10/8/2025, 10:49:10 AM
+Last updated at 10/8/2025, 10:52:52 AM
