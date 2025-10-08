@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m8L9J0y67CPWmw29-r5Racg-t500x500.png">](https://soundcloud.com/circusrecords/i-do-what-i-want)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VhcWJoy3vlAsIUyV-ZCljcQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/humanity-reborn-out-now-on-excite-digitalcouk)
 
-**Artist**: Viskus x Vyhara 
+**Artist**: DRIFT 
 
-**Track**: I Do What I Want
+**Track**: HUMANITY REBORN (OUT NOW ON EXCITE-DIGITAL.CO.UK)
 
-Last updated at 10/8/2025, 10:46:10 AM
+Last updated at 10/8/2025, 10:49:10 AM
