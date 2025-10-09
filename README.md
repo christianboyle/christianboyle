@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNBlcf1NwlahA9xW-Y8kjkg-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/derbyshire-groove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rhE50sHZrbQuRe0Y-nzsypQ-t500x500.png">](https://soundcloud.com/ghost_rook/slow-burn)
 
-**Artist**: SAINT POND 
+**Artist**: Ghost Rook 
 
-**Track**: DERBYSHIRE GROOVE
+**Track**: Slow Burn
 
-Last updated at 10/9/2025, 11:38:49 AM
+Last updated at 10/9/2025, 2:41:56 PM
