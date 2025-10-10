@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RBVBEuHznOgy7z1V-3qJirw-t500x500.png">](https://soundcloud.com/nrvedubs/aweminus-the-festival-of-blood-nrve-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ANOAgkTJWHfAITy-3xvIAg-t500x500.png">](https://soundcloud.com/peacesineofficial/nocturnal-whispers)
 
-**Artist**: NRVE 
+**Artist**: AguaMayyim, Kompass, Peace Sine 
 
-**Track**: Aweminus - Festival Of Blood (NRVE Edit) FREE DOWNLOAD
+**Track**: Nocturnal Whispers (Peace Sine Remix)
 
-Last updated at 10/10/2025, 10:44:29 AM
+Last updated at 10/10/2025, 10:46:14 AM
