@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJIn1awvuilL-0-t500x500.png">](https://soundcloud.com/myriasmusic/spice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BXfThLLJfuDm-0-t500x500.jpg">](https://soundcloud.com/phrva/genesis-1?in=phrva/sets/genesis-ep-817847435)
 
-**Artist**: MYRIAS 
+**Artist**: Phrva 
 
-**Track**: SPICE
+**Track**: Genesis
 
-Last updated at 10/10/2025, 10:31:27 AM
+Last updated at 10/10/2025, 10:34:08 AM
