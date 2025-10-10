@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yAEMvss0KnS-0-t500x500.jpg">](https://soundcloud.com/reisdonadaofficial/vida-de-rei-1?in=groovecontrolmusic/sets/reis-do-nada)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4zjWzkPMlak6jCm-c1flFw-t500x500.jpg">](https://soundcloud.com/maakg/charlixcx-c2-flip)
 
-**Artist**: Reis do Nada featuring Cacife Clandestino 
+**Artist**: Maāk.G 
 
-**Track**: Vida de Rei
+**Track**: Charli XCX - c2.0 (Maāk.G Flip)
 
-Last updated at 10/9/2025, 2:47:03 PM
+Last updated at 10/10/2025, 8:02:02 AM
