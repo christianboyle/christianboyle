@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OH5Q1Y6zVsaYZvO4-dB56cA-t500x500.png">](https://soundcloud.com/hate_music/premire-gentian-reality-approaches-bdd040)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2EthODepIYS-0-t500x500.jpg">](https://soundcloud.com/oneseventy/always-no-hero-remix-feat-niki?in=officialnohero/sets/technikore-x-jts-always-no)
 
-**Artist**: HATE, Gentian 
+**Artist**: Technikore, JTS 
 
-**Track**: Premire: Gentian — Reality Approaches [BDd040]
+**Track**: Always (No Hero Remix) [feat. Niki Mak]
 
-Last updated at 10/10/2025, 10:17:59 AM
+Last updated at 10/10/2025, 10:19:00 AM
