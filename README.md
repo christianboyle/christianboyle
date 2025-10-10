@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1lzuOcLqvW6nBFO-y03Ptw-t500x500.png">](https://soundcloud.com/bemahbeats/liquid-stanger-gunslinger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eH6IYghPl6HW3TrI-lM6rbw-t500x500.jpg">](https://soundcloud.com/strobez-music/pressurepoints)
 
-**Artist**: Bemah 
+**Artist**: Strobez 
 
-**Track**: Liquid Stranger - Gunslinger (Bemah Flip)
+**Track**: Pressure Points
 
-Last updated at 10/10/2025, 10:20:01 AM
+Last updated at 10/10/2025, 10:22:06 AM
