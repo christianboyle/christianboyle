@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b6eGzjGea10ctBaO-rkXOHQ-t500x500.png">](https://soundcloud.com/joytimecollective/remk-vibe-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJIn1awvuilL-0-t500x500.png">](https://soundcloud.com/myriasmusic/spice)
 
-**Artist**: RemK 
+**Artist**: MYRIAS 
 
-**Track**: RemK - Vibe Control
+**Track**: SPICE
 
-Last updated at 10/10/2025, 10:30:22 AM
+Last updated at 10/10/2025, 10:31:27 AM
