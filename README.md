@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRBvjyKTKvwX3s9j-RWusYg-t500x500.png">](https://soundcloud.com/bouncemadnessevents/donk-suplex-vol-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bnNtPRETSP2-0-t500x500.jpg">](https://soundcloud.com/cheatcodesmusic/cheat-codes-grey-tyson-ritter)
 
-**Artist**: DJ Shane-M 
+**Artist**: Cheat Codes & Grey & Tyson Ritter 
 
-**Track**: Donk Suplex Vol 6
+**Track**: Hurricane (with Tyson Ritter)
 
-Last updated at 10/10/2025, 8:06:19 AM
+Last updated at 10/10/2025, 8:09:11 AM
