@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3cDazsjyNdTYcqjP-dXMlYA-t500x500.jpg">](https://soundcloud.com/uglylungs/willer-khale-x-ugly-lungs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6cOHF8KV8SryYKSs-kGhvyA-t500x500.jpg">](https://soundcloud.com/slipped-discs/copacabana)
 
-**Artist**: UGLY LUNGS 
+**Artist**: Denglord 
 
-**Track**: Willer Khale & Ugly Lungs - LOUDBOI [A-RECORDS 100]
+**Track**: Copacabana
 
-Last updated at 10/10/2025, 10:26:12 AM
+Last updated at 10/10/2025, 10:27:17 AM
