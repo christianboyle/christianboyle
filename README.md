@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zysqoNqkF1CMy9j-z5rdoQ-t500x500.jpg">](https://soundcloud.com/spellboundrecs/hoodz-thinking-about-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LjSIwOL7dlLuuGJ6-Oykchw-t500x500.png">](https://soundcloud.com/yamiu/rsk-x-may-celestical-tian-ti-no-9)
 
-**Artist**: HooDz 
+**Artist**: YAMIU [保護者] 
 
-**Track**: HooDz - Thinking About U
+**Track**: r!sk x may - celestical [天体の]
 
-Last updated at 10/13/2025, 11:39:08 AM
+Last updated at 10/13/2025, 11:41:58 AM
