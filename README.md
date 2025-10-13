@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4zjWzkPMlak6jCm-c1flFw-t500x500.jpg">](https://soundcloud.com/maakg/charlixcx-c2-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbzBAMkWUWfYrsWt-nNvL5w-t500x500.png">](https://soundcloud.com/ihywarm/psg)
 
-**Artist**: Maāk.G 
+**Artist**: warm 
 
-**Track**: Charli XCX - c2.0 (Maāk.G Flip)
+**Track**: PSG prod lynU
 
-Last updated at 10/13/2025, 10:15:45 AM
+Last updated at 10/13/2025, 10:19:00 AM
