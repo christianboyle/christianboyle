@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LjSIwOL7dlLuuGJ6-Oykchw-t500x500.png">](https://soundcloud.com/yamiu/rsk-x-may-celestical-tian-ti-no-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbgIbB0FTQq7gTjp-OMiiIw-t500x500.png">](https://soundcloud.com/7svmzatk3udt/bounce)
 
-**Artist**: YAMIU [保護者] 
+**Artist**: JOODY 
 
-**Track**: r!sk x may - celestical [天体の]
+**Track**: BOUNCE!
 
-Last updated at 10/13/2025, 11:41:58 AM
+Last updated at 10/13/2025, 11:47:13 AM
