@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydoenBl03xMc9cOw-gPuOKA-t500x500.jpg">](https://soundcloud.com/leeroy71official/back-to-the-old-skool-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cHlbCmoyqGz1sQ0Y-GvRbvQ-t500x500.png">](https://soundcloud.com/hundaes/bladee-one-direction-dont-worry-x-little-things-hundaes-edit)
 
-**Artist**: lee,j 
+**Artist**: hundaes 
 
-**Track**: back to the old skool feat totally reckless
+**Track**: bladee + one direction - don't worry x little things (hundaes edit)
 
-Last updated at 10/13/2025, 10:33:37 AM
+Last updated at 10/13/2025, 11:21:01 AM
