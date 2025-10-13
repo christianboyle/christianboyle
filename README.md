@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LZ33ODQp3yXxfQVZ-uYWydA-t500x500.jpg">](https://soundcloud.com/7svmzatk3udt/gi-dle-wife-joody-re-work)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-CL6ajVznX3B0zpdW-snnlPw-t500x500.jpg">](https://soundcloud.com/stevenstraub85/steven-straub-x-chris-boom)
 
-**Artist**: JOODY 
+**Artist**: Steven Straub ♫ 
 
-**Track**: (여자)아이들((G)I-DLE) - 'Wife' (JOODY RE-work)
+**Track**: Steven Straub x Chris Boom 0800 Heaven
 
-Last updated at 10/13/2025, 11:49:29 AM
+Last updated at 10/13/2025, 11:51:59 AM
