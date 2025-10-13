@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NqRo7kJA2XHx7nL1-TkoHlQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/sunday-sessions-vol-44-drift-mash-up-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DPzyqnyfy6LCdHQY-VIBD8Q-t500x500.png">](https://soundcloud.com/dnzrecords/garbie-project-my-illusion)
 
-**Artist**: SUNDAY SESSIONS VOL 44 - DRIFT - MASH UP MIX 
+**Artist**: Garbie Project 
 
-**Track**: SUNDAY SESSIONS VOL 44 - DRIFT - MASH UP MIX
+**Track**: Garbie Project - My Illusion
 
-Last updated at 10/13/2025, 11:33:52 AM
+Last updated at 10/13/2025, 11:36:02 AM
