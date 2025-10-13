@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DPzyqnyfy6LCdHQY-VIBD8Q-t500x500.png">](https://soundcloud.com/dnzrecords/garbie-project-my-illusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zysqoNqkF1CMy9j-z5rdoQ-t500x500.jpg">](https://soundcloud.com/spellboundrecs/hoodz-thinking-about-u)
 
-**Artist**: Garbie Project 
+**Artist**: HooDz 
 
-**Track**: Garbie Project - My Illusion
+**Track**: HooDz - Thinking About U
 
-Last updated at 10/13/2025, 11:36:02 AM
+Last updated at 10/13/2025, 11:39:08 AM
