@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMhImONMpLMmjTyu-V9nPDg-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/always-leave-the-party-while-youre-still-having-fun-1?in=nightcore4totalsluts/sets/virgin-mistry-madonnaslut-complex)
 
-**Artist**: Initi8 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Depressed - (Initi8 Remix)
+**Track**: always leave the party while you're still having fun
 
-Last updated at 10/14/2025, 8:24:56 AM
+Last updated at 10/14/2025, 12:34:44 PM
