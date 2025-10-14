@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1XpvXs76EuGrTXJ-WzgjBw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/yung-lean-summertime-blood-elfz-genesis-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix?in=saxurn/sets/1a1/)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Initi8 
 
-**Track**: YUNG LEAN - SUMMERTIME BLOOD (ELFZ 'GENESIS' REMIX)
+**Track**: Depressed - (Initi8 Remix)
 
-Last updated at 10/14/2025, 8:21:55 AM
+Last updated at 10/14/2025, 8:24:56 AM
