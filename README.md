@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4zjWzkPMlak6jCm-c1flFw-t500x500.jpg">](https://soundcloud.com/maakg/charlixcx-c2-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1XpvXs76EuGrTXJ-WzgjBw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/yung-lean-summertime-blood-elfz-genesis-remix)
 
-**Artist**: Maāk.G 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Charli XCX - c2.0 (Maāk.G Flip)
+**Track**: YUNG LEAN - SUMMERTIME BLOOD (ELFZ 'GENESIS' REMIX)
 
-Last updated at 10/14/2025, 8:19:10 AM
+Last updated at 10/14/2025, 8:21:55 AM
