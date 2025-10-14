@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMhImONMpLMmjTyu-V9nPDg-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/nightcore-but-its-midwest-emo-6?in=nightcore4totalsluts/sets/virgin-mistry-madonnaslut-complex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LNXn7vcllnfToNOm-idMZ1A-t500x500.jpg">](https://soundcloud.com/maakg/arguruflip)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Maāk.G 
 
-**Track**: nightcore but it's midwest emo
+**Track**: Deadmau5 - Arguru (Maāk.G Flip)
 
-Last updated at 10/14/2025, 1:39:13 PM
+Last updated at 10/14/2025, 1:41:03 PM
