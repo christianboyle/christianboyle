@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-syvz4WAdulj08Jwl-HyNZPQ-t500x500.jpg">](https://soundcloud.com/dvdmtl/dream2me-2xnxcmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4zjWzkPMlak6jCm-c1flFw-t500x500.jpg">](https://soundcloud.com/maakg/charlixcx-c2-flip)
 
-**Artist**: Peggy Viennetta & D V D 
+**Artist**: Maāk.G 
 
-**Track**: Peggy Viennetta & D V D - Dream2Me (2XNXCMIX)
+**Track**: Charli XCX - c2.0 (Maāk.G Flip)
 
-Last updated at 10/14/2025, 8:15:55 AM
+Last updated at 10/14/2025, 8:19:10 AM
