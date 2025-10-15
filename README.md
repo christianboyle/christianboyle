@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SGYTdmNPU26CR34b-5b1exw-t500x500.png">](https://soundcloud.com/909worldwide/inland-empire-shall-be-saved-43)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1XpvXs76EuGrTXJ-WzgjBw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/yung-lean-summertime-blood-elfz-genesis-remix)
 
-**Artist**: Draik Lezbijan 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Draik Lezbijan - INLAND EMPIRE Shall Be Saved
+**Track**: YUNG LEAN - SUMMERTIME BLOOD (ELFZ 'GENESIS' REMIX)
 
-Last updated at 10/14/2025, 1:45:23 PM
+Last updated at 10/15/2025, 6:15:03 AM
