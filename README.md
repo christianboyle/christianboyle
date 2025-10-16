@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqQA1dMoDROBezoN-XSkyqQ-t500x500.jpg">](https://soundcloud.com/sanzusounds/sanzu-x-blaize-complex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpWzNCp7s2KGMdTJ-KLPvNA-t500x500.png">](https://soundcloud.com/monstercat/borgore-level-up-eloise-keeble-palm-of-your-hand)
 
-**Artist**: SANZU, BLAIZE 
+**Artist**: Borgore, LEVEL UP & Eloise Keeble 
 
-**Track**: SANZU x BLAIZE - COMPLEX
+**Track**: Borgore, LEVEL UP & Eloise Keeble - Palm Of Your Hand
 
-Last updated at 10/16/2025, 1:08:45 PM
+Last updated at 10/16/2025, 1:11:30 PM
