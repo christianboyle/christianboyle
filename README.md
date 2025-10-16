@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xpwpTTnMG0BsDbys-m66Pbw-t500x500.png">](https://soundcloud.com/acyanmusic/leadpoison-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yqQA1dMoDROBezoN-XSkyqQ-t500x500.jpg">](https://soundcloud.com/sanzusounds/sanzu-x-blaize-complex)
 
-**Artist**: Acyan 
+**Artist**: SANZU, BLAIZE 
 
-**Track**: Acyan - LEADPOISON (VIP)
+**Track**: SANZU x BLAIZE - COMPLEX
 
-Last updated at 10/16/2025, 1:05:45 PM
+Last updated at 10/16/2025, 1:08:45 PM
