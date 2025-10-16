@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rFCsgIcxra966Q9l-3lD1HQ-t500x500.jpg">](https://soundcloud.com/djkyleharrison/one-direction-steal-my-girl-dj-llen-kyle-harrison-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bm72yIHDYuEoJEuq-M3RYqA-t500x500.png">](https://soundcloud.com/nocopyrightsounds/xaron-out-loud-ncs-release)
 
-**Artist**: DJ Kyle Harrison, DJ Allen, One Direction 
+**Artist**: Xaron 
 
-**Track**: One Direction - Steal My Girl (DJ Λllen & Kyle Harrison Remix) * DOWNLOAD NOW*
+**Track**: Xaron - Out Loud [NCS Release]
 
-Last updated at 10/16/2025, 6:46:31 AM
+Last updated at 10/16/2025, 6:48:01 AM
