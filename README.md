@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tdjI5SE5QKUfJAay-8CyWtg-t500x500.png">](https://soundcloud.com/hairitage/bidlt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C8FhIvImll0Uyx8N-AYDGCg-t500x500.png">](https://soundcloud.com/kewljerkmusic/teriyaki-boyz-tokyo-drift-kewl-jerk-mstic-manada-remix)
 
-**Artist**: Hairitage 
+**Artist**: KEWL JERK 
 
-**Track**: Hairitage - BIDLT
+**Track**: TERIYAKI BOYZ - TOKYO DRIFT  (KEWL JERK, M?STIC & MANADA REMIX)
 
-Last updated at 10/16/2025, 11:16:53 AM
+Last updated at 10/16/2025, 11:17:53 AM
