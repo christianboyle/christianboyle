@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcCAehIBALNvMtlz-XHqPOw-t500x500.png">](https://soundcloud.com/mkevents/squidge-house-of-horrors-2025-promo-mix-d-vibe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K1vyQySH8fMc5c7b-fMiiVA-t500x500.png">](https://soundcloud.com/james-green-416232936/james-green-the-last-time)
 
-**Artist**: Squidge 
+**Artist**: James Green 
 
-**Track**: Squidge - House Of Horrors 2025 Promo Mix
+**Track**: James Green - The Last Time
 
-Last updated at 10/16/2025, 11:13:13 AM
+Last updated at 10/16/2025, 11:14:13 AM
