@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1XpvXs76EuGrTXJ-WzgjBw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/yung-lean-summertime-blood-elfz-genesis-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcCAehIBALNvMtlz-XHqPOw-t500x500.png">](https://soundcloud.com/mkevents/squidge-house-of-horrors-2025-promo-mix-d-vibe)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Squidge 
 
-**Track**: YUNG LEAN - SUMMERTIME BLOOD (ELFZ 'GENESIS' REMIX)
+**Track**: Squidge - House Of Horrors 2025 Promo Mix
 
-Last updated at 10/16/2025, 6:58:36 AM
+Last updated at 10/16/2025, 11:13:13 AM
