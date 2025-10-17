@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twdwSsNiZm8D5GrT-ZBN4Vw-t500x500.png">](https://soundcloud.com/gdubz/bomb-riddim)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNBlcf1NwlahA9xW-Y8kjkg-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/derbyshire-groove)
 
-**Artist**: GDubz (CAN) 
+**Artist**: SAINT POND 
 
-**Track**: Bomb Riddim
+**Track**: DERBYSHIRE GROOVE
 
-Last updated at 10/17/2025, 8:54:43 AM
+Last updated at 10/17/2025, 8:57:19 AM
