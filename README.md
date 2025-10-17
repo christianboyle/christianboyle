@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QnKI2Cyj6AOuHExz-zUbJzA-t500x500.png">](https://soundcloud.com/barongfamily/winson-da-hool-bass-in-your-face)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dtr675bru8SQzLh2-yMhs3Q-t500x500.jpg">](https://soundcloud.com/sachsentrance/nia-b2b-roshan-sachsentrance-podcast-142)
 
-**Artist**: WINSON, Da Hool 
+**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: WINSON & Da Hool - Bass In Your Face
+**Track**: NIA b2b Roshan SACHSENTRANCE PODCAST #142
 
-Last updated at 10/17/2025, 9:00:29 AM
+Last updated at 10/17/2025, 4:55:08 PM
