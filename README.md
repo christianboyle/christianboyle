@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oNq7ck9JkAz6F5z1-Hrqyqw-t500x500.jpg">](https://soundcloud.com/split_bass/lumasi-daggz-levitate-split)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9GNyYLFSOZxskHK-CPq0sA-t500x500.png">](https://soundcloud.com/eriesounds216/dicey-zoned)
 
-**Artist**: SPLiT 
+**Artist**: DICEY, Erie Sounds 
 
-**Track**: Lumasi, Daggz - Levitate (SPLiT Flip)
+**Track**: DICEY - Zoned
 
-Last updated at 10/17/2025, 7:42:09 PM
+Last updated at 10/17/2025, 7:52:35 PM
