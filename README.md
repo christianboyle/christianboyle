@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxGjMtmltMHnIZ30-Nbv82w-t500x500.png">](https://soundcloud.com/dj-davemac/man-cave-funky-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jEzNjspzBccZy0SG-N8sX7g-t500x500.png">](https://soundcloud.com/mkevents/jay-bryan-house-of-horrors-2025-promo-mix)
 
-**Artist**: DJ Dave Mac - Project Havoc 
+**Artist**: Jay Bryan 
 
-**Track**: man cave funky house
+**Track**: Jay Bryan - House Of Horrors 2025 Promo Mix
 
-Last updated at 10/17/2025, 7:56:30 PM
+Last updated at 10/17/2025, 7:58:00 PM
