@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FeHOvzuQFiMzF64y-zgCn8w-t500x500.png">](https://soundcloud.com/2tdmusic/f08efbcd-5ae3-48be-9534-9f81e686eb59)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-syvz4WAdulj08Jwl-HyNZPQ-t500x500.jpg">](https://soundcloud.com/dvdmtl/dream2me-2xnxcmix)
 
-**Artist**: 2TD 
+**Artist**: Peggy Viennetta & D V D 
 
-**Track**: SMOKE
+**Track**: Peggy Viennetta & D V D - Dream2Me (2XNXCMIX)
 
-Last updated at 10/18/2025, 9:59:31 AM
+Last updated at 10/18/2025, 12:47:45 PM
