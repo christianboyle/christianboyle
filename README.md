@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FeHOvzuQFiMzF64y-zgCn8w-t500x500.png">](https://soundcloud.com/2tdmusic/f08efbcd-5ae3-48be-9534-9f81e686eb59)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kjru4PTTkYW6KiTQ-O9ygwA-t500x500.png">](https://soundcloud.com/thiccfreqness/party-favors-spencer-arnold)
 
-**Artist**: 2TD 
+**Artist**: Spencer Arnold 
 
-**Track**: SMOKE
+**Track**: Spencer Arnold - Party Favors (Original Mix)
 
-Last updated at 10/18/2025, 9:34:38 AM
+Last updated at 10/18/2025, 9:35:43 AM
