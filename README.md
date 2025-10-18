@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lJUDjdT3mZwiczhw-Efq6zw-t500x500.png">](https://soundcloud.com/itsthewestend/daft-punk-around-the-world-westend-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRrtzhBVLj3nDPJg-qf75ng-t500x500.png">](https://soundcloud.com/eldarzeymusic/charli-xcx-so-i-eldar-zey-flip)
 
-**Artist**: Westend 
+**Artist**: Eldar Zey 
 
-**Track**: DAFT PUNK - AROUND THE WORLD (WESTEND EDIT) (FREE DOWNLOAD)
+**Track**: Charli XCX - So I (Eldar Zey Flip)
 
-Last updated at 10/18/2025, 9:52:15 AM
+Last updated at 10/18/2025, 9:57:16 AM
