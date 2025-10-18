@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J5b6Sm0q3Imf-0-t500x500.jpg">](https://soundcloud.com/kineticnrg/eyeball-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-CSPfmVZ1vBjfDSkA-CivWbA-t500x500.jpg">](https://soundcloud.com/deejay_willo/ryan-willo-in-a-trance-wip)
 
-**Artist**: Danny Gibson 
+**Artist**: Ryan Willo 
 
-**Track**: Eyeball (Radio Edit)
+**Track**: Ryan Willo - In A Trance [WIP]
 
-Last updated at 10/17/2025, 7:53:35 PM
+Last updated at 10/17/2025, 7:54:35 PM
