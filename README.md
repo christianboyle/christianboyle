@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-07eP4082Wg8Cqgy8-IMlisw-t500x500.jpg">](https://soundcloud.com/callum-hewitt-25250334/cal-c-hex-ft-leha-wanna-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HJObIgyNDlEOrZu-DDqTOA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/e4aa6bea-604e-422e-88b4-e1537a2436d0?in=fatalenergyrecords/sets/coopz-admission-lp)
 
-**Artist**: CAL 
+**Artist**: Fatal Energy Records 
 
-**Track**: CAL & C:HEX ft.LEHA - Wanna Dance
+**Track**: Coopz - Final Ritual (Original Mix)
 
-Last updated at 10/18/2025, 9:41:24 AM
+Last updated at 10/18/2025, 9:42:24 AM
