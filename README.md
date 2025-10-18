@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kjru4PTTkYW6KiTQ-O9ygwA-t500x500.png">](https://soundcloud.com/thiccfreqness/party-favors-spencer-arnold)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T9LR9K5O7TVFxS7S-aCj4IQ-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/ion-simulation)
 
-**Artist**: Spencer Arnold 
+**Artist**: ION 
 
-**Track**: Spencer Arnold - Party Favors (Original Mix)
+**Track**: ION - Simulation
 
-Last updated at 10/18/2025, 9:35:43 AM
+Last updated at 10/18/2025, 9:36:43 AM
