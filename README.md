@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZyjd0qYQ2tXKprj-li82bA-t500x500.png">](https://soundcloud.com/weight_of_the_world_2025/intercity-faxing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MDg7NJRLJaRW5bXl-RXy0EA-t500x500.jpg">](https://soundcloud.com/rans0m/tulip)
 
-**Artist**: Weight of The World, yerbby, lostageless 
+**Artist**: rans0m 
 
-**Track**: intercity faxing
+**Track**: tulips over roses
 
-Last updated at 10/17/2025, 7:23:39 PM
+Last updated at 10/17/2025, 7:26:08 PM
