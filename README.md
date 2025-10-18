@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R9GNyYLFSOZxskHK-CPq0sA-t500x500.png">](https://soundcloud.com/eriesounds216/dicey-zoned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J5b6Sm0q3Imf-0-t500x500.jpg">](https://soundcloud.com/kineticnrg/eyeball-radio-edit)
 
-**Artist**: DICEY, Erie Sounds 
+**Artist**: Danny Gibson 
 
-**Track**: DICEY - Zoned
+**Track**: Eyeball (Radio Edit)
 
-Last updated at 10/17/2025, 7:52:35 PM
+Last updated at 10/17/2025, 7:53:35 PM
