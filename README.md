@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJtQSJ25HogkSb0W-wqg5IQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/elephant-heart-go-get-it-feat-yacht-money)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xWS1vVSSHaeGq30u-q7ShuA-t500x500.png">](https://soundcloud.com/daily-head/check)
 
-**Artist**: Elephant Heart 
+**Artist**: Daily Head 
 
-**Track**: Elephant Heart - Go & Get It (feat. Yacht Money)
+**Track**: Check
 
-Last updated at 10/17/2025, 7:11:02 PM
+Last updated at 10/17/2025, 7:21:29 PM
