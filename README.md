@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0HJObIgyNDlEOrZu-DDqTOA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/e4aa6bea-604e-422e-88b4-e1537a2436d0?in=fatalenergyrecords/sets/coopz-admission-lp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-71CY7eOZYIeO-0-t500x500.jpg">](https://soundcloud.com/elektrasparksmusic/girls-go-hard)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Moji 
 
-**Track**: Coopz - Final Ritual (Original Mix)
+**Track**: Girl's Go Hard
 
-Last updated at 10/18/2025, 9:42:24 AM
+Last updated at 10/18/2025, 9:46:05 AM
