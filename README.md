@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRQt0LXdAFeZAfSc-TIgQRg-t500x500.jpg">](https://soundcloud.com/wormhole-music-group/evolushawn-no-ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5I1WwGsoCfCHYv2a-NwEggg-t500x500.jpg">](https://soundcloud.com/djoneleek/yearmix-2022-one-leek)
 
-**Artist**: EvoluShawn 
+**Artist**: One Leek 
 
-**Track**: EvoluShawn - No Ride
+**Track**: YEARMIX 2K22
 
-Last updated at 10/17/2025, 7:59:00 PM
+Last updated at 10/18/2025, 8:57:35 AM
