@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BJAlAikRDJ0nz70-ryRczQ-t500x500.jpg">](https://soundcloud.com/foxstevenson/road-to-nothing?in=foxstevenson/sets/sunk-cost-fallacy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJtQSJ25HogkSb0W-wqg5IQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/elephant-heart-go-get-it-feat-yacht-money)
 
-**Artist**: Fox Stevenson 
+**Artist**: Elephant Heart 
 
-**Track**: Road To Nothing
+**Track**: Elephant Heart - Go & Get It (feat. Yacht Money)
 
-Last updated at 10/17/2025, 7:10:02 PM
+Last updated at 10/17/2025, 7:11:02 PM
