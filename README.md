@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRrtzhBVLj3nDPJg-qf75ng-t500x500.png">](https://soundcloud.com/eldarzeymusic/charli-xcx-so-i-eldar-zey-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FeHOvzuQFiMzF64y-zgCn8w-t500x500.png">](https://soundcloud.com/2tdmusic/f08efbcd-5ae3-48be-9534-9f81e686eb59)
 
-**Artist**: Eldar Zey 
+**Artist**: 2TD 
 
-**Track**: Charli XCX - So I (Eldar Zey Flip)
+**Track**: SMOKE
 
-Last updated at 10/18/2025, 9:57:16 AM
+Last updated at 10/18/2025, 9:59:31 AM
