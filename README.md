@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-syvz4WAdulj08Jwl-HyNZPQ-t500x500.jpg">](https://soundcloud.com/dvdmtl/dream2me-2xnxcmix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BponDmAnUqKB6q9-H5sriA-t500x500.jpg">](https://soundcloud.com/trantic/cant-help-it)
 
-**Artist**: Peggy Viennetta & D V D 
+**Artist**: TRANTIC 
 
-**Track**: Peggy Viennetta & D V D - Dream2Me (2XNXCMIX)
+**Track**: Can't Help It
 
-Last updated at 10/19/2025, 7:23:56 AM
+Last updated at 10/19/2025, 9:24:17 AM
