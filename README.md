@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXYCljs0RLDfIX26-2USS1g-t500x500.png">](https://soundcloud.com/hevynfire/hevynfire-rosey-because-of-you-mastered-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z7l12PyNpdAzJF1D-oun2Ig-t500x500.jpg">](https://soundcloud.com/clubheartbroken/benwal-rush-i-dont-wanna-wait-1)
 
-**Artist**: HEVYNFIRE 
+**Artist**: Benwal 
 
-**Track**: HEVYNFIRE & ROSEY - Because Of You (Radio Mix)
+**Track**: Benwal - Rush (I don't wanna wait) (Extended)
 
-Last updated at 10/19/2025, 9:26:17 AM
+Last updated at 10/19/2025, 9:27:32 AM
