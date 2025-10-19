@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BponDmAnUqKB6q9-H5sriA-t500x500.jpg">](https://soundcloud.com/trantic/cant-help-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8QzU84ntwyNNcKO0-ZH2I5A-t500x500.jpg">](https://soundcloud.com/xaev/rockthebeat)
 
-**Artist**: TRANTIC 
+**Artist**: xaev, lynU 
 
-**Track**: Can't Help It
+**Track**: CometBlast (NOTHINGLEFT2FEAR)
 
-Last updated at 10/19/2025, 9:24:17 AM
+Last updated at 10/19/2025, 9:25:17 AM
