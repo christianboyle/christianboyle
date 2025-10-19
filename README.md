@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8QzU84ntwyNNcKO0-ZH2I5A-t500x500.jpg">](https://soundcloud.com/xaev/rockthebeat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXYCljs0RLDfIX26-2USS1g-t500x500.png">](https://soundcloud.com/hevynfire/hevynfire-rosey-because-of-you-mastered-radio-mix)
 
-**Artist**: xaev, lynU 
+**Artist**: HEVYNFIRE 
 
-**Track**: CometBlast (NOTHINGLEFT2FEAR)
+**Track**: HEVYNFIRE & ROSEY - Because Of You (Radio Mix)
 
-Last updated at 10/19/2025, 9:25:17 AM
+Last updated at 10/19/2025, 9:26:17 AM
