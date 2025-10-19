@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z7l12PyNpdAzJF1D-oun2Ig-t500x500.jpg">](https://soundcloud.com/clubheartbroken/benwal-rush-i-dont-wanna-wait-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUqRlNBQ1tMadgpS-b67Beg-t500x500.png">](https://soundcloud.com/hevynfire/hevynfire-heaven-wip-sample)
 
-**Artist**: Benwal 
+**Artist**: HEVYNFIRE - Life Of Riley 
 
-**Track**: Benwal - Rush (I don't wanna wait) (Extended)
+**Track**: HEVYNFIRE - Heaven  (WIP sample)
 
-Last updated at 10/19/2025, 9:27:32 AM
+Last updated at 10/19/2025, 9:28:32 AM
