@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUqRlNBQ1tMadgpS-b67Beg-t500x500.png">](https://soundcloud.com/hevynfire/hevynfire-heaven-wip-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix?in=saxurn/sets/topo-tweako)
 
-**Artist**: HEVYNFIRE - Life Of Riley 
+**Artist**: Initi8 
 
-**Track**: HEVYNFIRE - Heaven  (WIP sample)
+**Track**: Depressed - (Initi8 Remix)
 
-Last updated at 10/19/2025, 9:28:32 AM
+Last updated at 10/19/2025, 12:43:57 PM
