@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJuYLvACWbp4-0-t500x500.jpg">](https://soundcloud.com/noyseofficial/techno-music-1?in=saxurn/sets/topo-tweako)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mchzsNXUSuLtCUYb-wWmkvA-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/shynode-bleeding?in=saxurn/sets/topo-tweako)
 
-**Artist**: NOYSE, AVAO 
+**Artist**: Rewired Records 
 
-**Track**: Techno Music
+**Track**: Shynode - Bleeding
 
-Last updated at 10/20/2025, 8:59:27 AM
+Last updated at 10/20/2025, 9:40:41 AM
