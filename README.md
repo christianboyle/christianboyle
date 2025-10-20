@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sKeHtyVf0Y7GP44T-Wry59Q-t500x500.png">](https://soundcloud.com/s3rl/dumb?in=saxurn/sets/topo-tweako)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbzBAMkWUWfYrsWt-nNvL5w-t500x500.png">](https://soundcloud.com/ihywarm/psg?in=saxurn/sets/2a1/)
 
-**Artist**: S3RL, nanobii 
+**Artist**: warm 
 
-**Track**: DUMB
+**Track**: PSG prod lynU
 
-Last updated at 10/20/2025, 9:53:12 AM
+Last updated at 10/20/2025, 9:56:17 AM
