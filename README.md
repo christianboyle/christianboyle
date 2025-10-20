@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9pHTmM8sOfgIaPgQ-yphdCA-t500x500.jpg">](https://soundcloud.com/dontwakeslasher/aint-us-w-crusey-1crusafix?in=saxurn/sets/2a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WJCe3p2futns-0-t500x500.jpg">](https://soundcloud.com/jojiofficial/pixelated-kisses)
 
-**Artist**: Slash Santana, crusey, 1crusafix 
+**Artist**: Joji 
 
-**Track**: aint us (advxrse + breakfall) [2024]
+**Track**: PIXELATED KISSES
 
-Last updated at 10/20/2025, 9:58:18 AM
+Last updated at 10/20/2025, 1:06:56 PM
