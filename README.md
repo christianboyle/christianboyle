@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTmYaXyWNAQGSeFG-VMlYWg-t500x500.png">](https://soundcloud.com/djkenty/this-is-bounce-uk-x-kenty-broke-boys?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGXNlwnDCHC7xRZX-FSkEIw-t500x500.png">](https://soundcloud.com/leahxkassel/cocaina)
 
-**Artist**: DJ Kenty 
+**Artist**: LEAH 
 
-**Track**: This Is Bounce UK x Kenty  - Broke Boys
+**Track**: COCAINA
 
-Last updated at 10/21/2025, 8:19:20 AM
+Last updated at 10/21/2025, 5:19:46 PM
