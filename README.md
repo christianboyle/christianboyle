@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSlIrNncOywStZAd-HH8cLw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/hardcore-til-i-die-a-religion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YECbPscbtwucBVBF-1KE8Nw-t500x500.png">](https://soundcloud.com/dnzrecords/jay-dee-sharkey-pedro-vs-paul-rayner-heartbeat-echoes)
 
-**Artist**: Dj Des 
+**Artist**: Jay-Dee Sharkey & Pedro Vs. Paul Rayner 
 
-**Track**: Hardcore Til I Die ........ A Religion Not a Brand  ... ( Chapter 1 Verse 2  )
+**Track**: Jay-Dee Sharkey & Pedro Vs. Paul Rayner - Heartbeat Echoes
 
-Last updated at 10/23/2025, 6:15:47 AM
+Last updated at 10/23/2025, 6:19:00 AM
