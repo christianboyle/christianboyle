@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TaLsQzSg4MMyetyg-uAkuuw-t500x500.jpg">](https://soundcloud.com/sfynxbeats/qebehsenuef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNgJFLidDLaALsBO-5iPnjA-t500x500.jpg">](https://soundcloud.com/overeazybeats/makeitrainflip-overeazy-x-roto)
 
-**Artist**: SFYNX 
+**Artist**: OVEREAZY X ROTO 
 
-**Track**: QEBEHSENUEF
+**Track**: Make It Rain (OVEREAZY X ROTO FLIP)
 
-Last updated at 10/23/2025, 7:24:44 AM
+Last updated at 10/23/2025, 7:25:49 AM
