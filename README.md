@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d556aF9hAVs9AN4S-yzGCIQ-t500x500.jpg">](https://soundcloud.com/shy_berspace/i-love-machine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXyWPtIBcug2sfSV-b09oDQ-t500x500.png">](https://soundcloud.com/scarreddigital-com/4-kel-x-cyte-daniel-duddy-scarey-movie-spooky-scarey-halloween?in=scarreddigital-com/sets/spooky-scarred-hallowen-ep)
 
-**Artist**: shy.berspace 
+**Artist**: Kel X-Cyte & Daniel Duddy 
 
-**Track**: i <3 machine
+**Track**: 4. KEL X-CYTE & DANIEL DUDDY - SCAREY MOVIE - Spooky Scared Halloween
 
-Last updated at 10/23/2025, 7:26:54 AM
+Last updated at 10/23/2025, 7:27:54 AM
