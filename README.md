@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1ivT8irbmLb2C8w-LSc9sw-t500x500.png">](https://soundcloud.com/uraiofficial/boombox-cartel-jefe-urai-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TaLsQzSg4MMyetyg-uAkuuw-t500x500.jpg">](https://soundcloud.com/sfynxbeats/qebehsenuef)
 
-**Artist**: URAI 
+**Artist**: SFYNX 
 
-**Track**: BOOMBOX CARTEL - JEFE  (URAI FLIP)
+**Track**: QEBEHSENUEF
 
-Last updated at 10/23/2025, 7:23:44 AM
+Last updated at 10/23/2025, 7:24:44 AM
