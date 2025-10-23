@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7BFH39HVvr34RxJx-WDxzHg-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/m-dee-21-klubb-efekt-every-crush-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3S8xIDoJ7Kzmq8mG-bmHVXQ-t500x500.png">](https://soundcloud.com/tnt_ofc/tarik-lamour-tnt034-3)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: TNT, Tarik 
 
-**Track**: M-DEE 21 & KLUBB EFEKT-Every Crush (Sample)
+**Track**: Tarik – L'Amour [TNT034]
 
-Last updated at 10/23/2025, 6:20:00 AM
+Last updated at 10/23/2025, 6:21:00 AM
