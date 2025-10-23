@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaL6fIcyM5Jeu9EP-Eiv3KQ-t500x500.jpg">](https://soundcloud.com/adamenoise/lady-gaga-beyonce-telephone-adame-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1ivT8irbmLb2C8w-LSc9sw-t500x500.png">](https://soundcloud.com/uraiofficial/boombox-cartel-jefe-urai-flip)
 
-**Artist**: ADAME 
+**Artist**: URAI 
 
-**Track**: Lady Gaga & Beyonce - Telephone (ADAME FLIP)
+**Track**: BOOMBOX CARTEL - JEFE  (URAI FLIP)
 
-Last updated at 10/23/2025, 7:09:08 AM
+Last updated at 10/23/2025, 7:23:44 AM
