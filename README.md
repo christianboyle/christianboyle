@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Srw9oyBQjaFnoKh8-X0BJfw-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-larger-than-justice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TSlIrNncOywStZAd-HH8cLw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/hardcore-til-i-die-a-religion)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: Dj Des 
 
-**Track**: EL MOFF - Larger Than Justice [sample]
+**Track**: Hardcore Til I Die ........ A Religion Not a Brand  ... ( Chapter 1 Verse 2  )
 
-Last updated at 10/22/2025, 8:57:34 PM
+Last updated at 10/23/2025, 6:15:47 AM
