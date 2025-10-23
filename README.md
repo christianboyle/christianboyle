@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZPVz1DSenT6VOr4-vYJHxg-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ni-21-shattered-sky-d-railed-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sA897kQ2oS8O-0-t500x500.jpg">](https://soundcloud.com/revibemusicspain/whats-up)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Fran Castro 
 
-**Track**: ni-21 - Shattered Sky (D-Railed Remix)
+**Track**: What's Up
 
-Last updated at 10/23/2025, 7:06:08 AM
+Last updated at 10/23/2025, 7:07:07 AM
