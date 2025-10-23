@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YECbPscbtwucBVBF-1KE8Nw-t500x500.png">](https://soundcloud.com/dnzrecords/jay-dee-sharkey-pedro-vs-paul-rayner-heartbeat-echoes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7BFH39HVvr34RxJx-WDxzHg-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/m-dee-21-klubb-efekt-every-crush-sample)
 
-**Artist**: Jay-Dee Sharkey & Pedro Vs. Paul Rayner 
+**Artist**: DJ MOFF-EL MOFF-M DEE 21 
 
-**Track**: Jay-Dee Sharkey & Pedro Vs. Paul Rayner - Heartbeat Echoes
+**Track**: M-DEE 21 & KLUBB EFEKT-Every Crush (Sample)
 
-Last updated at 10/23/2025, 6:19:00 AM
+Last updated at 10/23/2025, 6:20:00 AM
