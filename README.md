@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0rHbPwmLWWMfJLQb-dEWuVA-t500x500.png">](https://soundcloud.com/xtrataki/ag-cook-beautiful-xtrataki)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwwCPlyvyNEakesk-AzBfbQ-t500x500.jpg">](https://soundcloud.com/mark-smith-carnage/audioboyz-hungry-eyes-radio)
 
-**Artist**: XtraTaki 
+**Artist**: Mark Smith (DJ Carnage) 
 
-**Track**: A. G. Cook - Beautiful (XtraTaki Edit) [FREE DL]
+**Track**: AudioBoyz - Hungry Eyes [Radio Edit].mp3
 
-Last updated at 10/22/2025, 9:21:49 AM
+Last updated at 10/22/2025, 8:55:34 PM
