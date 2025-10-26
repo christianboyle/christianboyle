@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEgDL1yDhXKR9yDT-MmR4ZA-t500x500.jpg">](https://soundcloud.com/cld/w2m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VAkEW1wlqvV0Y7cM-siRILA-t500x500.jpg">](https://soundcloud.com/boysnoize/sophie-hard-boys-noize-xg-remix)
 
-**Artist**: cld 
+**Artist**: Boys Noize 
 
-**Track**: way2much
+**Track**: Sophie "Hard" (Boys Noize X&G Remix)-FREE DL
 
-Last updated at 10/26/2025, 8:05:21 AM
+Last updated at 10/26/2025, 9:48:02 AM
