@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ayufvYHS7VEYZNM-5CbAzA-t500x500.png">](https://soundcloud.com/skuzbum/jacket)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEgDL1yDhXKR9yDT-MmR4ZA-t500x500.jpg">](https://soundcloud.com/cld/w2m)
 
-**Artist**: skuz 
+**Artist**: cld 
 
-**Track**: jacket
+**Track**: way2much
 
-Last updated at 10/26/2025, 7:48:24 AM
+Last updated at 10/26/2025, 8:05:21 AM
