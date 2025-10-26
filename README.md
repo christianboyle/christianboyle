@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wqtt0KqD4gfBG5Nh-WXN0jQ-t500x500.jpg">](https://soundcloud.com/darn84/druid-bananaman-disco-fever)
 
-**Artist**: bambinodj 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
+**Track**: Druid & Bananaman - Disco Fever - Essential Platinum (1996)
 
-Last updated at 10/26/2025, 6:51:12 AM
+Last updated at 10/26/2025, 7:39:30 AM
