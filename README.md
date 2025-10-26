@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i47KriDmALdpBaKm-iRnEDw-t500x500.png">](https://soundcloud.com/lordgenmu/axiom1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5kiqDnXzolgH5Urj-2peWRg-t500x500.png">](https://soundcloud.com/atura/viclap)
 
-**Artist**: lord genmu, silcrow 
+**Artist**: Atura 
 
-**Track**: AXIOM w Silcrow
+**Track**: Fred Again.., Skepta, & PlaqueBoyMax - Victory Lap (Atura Edit)
 
-Last updated at 10/26/2025, 7:45:18 AM
+Last updated at 10/26/2025, 7:46:19 AM
