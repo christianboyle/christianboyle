@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5kiqDnXzolgH5Urj-2peWRg-t500x500.png">](https://soundcloud.com/atura/viclap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFlu28PqAAsaFfgK-QVzi9w-t500x500.jpg">](https://soundcloud.com/antidope99/the-plot-in-you-feel-nothing-1)
 
-**Artist**: Atura 
+**Artist**: ANTIDOPE , The Plot In You 
 
-**Track**: Fred Again.., Skepta, & PlaqueBoyMax - Victory Lap (Atura Edit)
+**Track**: The Plot In You - FEEL NOTHING ANTIDOPE REMIX (FREE DOWNLOAD FOR PA)
 
-Last updated at 10/26/2025, 7:46:19 AM
+Last updated at 10/26/2025, 7:47:19 AM
