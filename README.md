@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFlu28PqAAsaFfgK-QVzi9w-t500x500.jpg">](https://soundcloud.com/antidope99/the-plot-in-you-feel-nothing-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ayufvYHS7VEYZNM-5CbAzA-t500x500.png">](https://soundcloud.com/skuzbum/jacket)
 
-**Artist**: ANTIDOPE , The Plot In You 
+**Artist**: skuz 
 
-**Track**: The Plot In You - FEEL NOTHING ANTIDOPE REMIX (FREE DOWNLOAD FOR PA)
+**Track**: jacket
 
-Last updated at 10/26/2025, 7:47:19 AM
+Last updated at 10/26/2025, 7:48:24 AM
