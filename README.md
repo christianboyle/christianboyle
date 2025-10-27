@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tP0gklW4yPVm3sGI-NFHA0Q-t500x500.jpg">](https://soundcloud.com/kirarrii/acrobat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lCzFQDZup2LHkeyy-zyFCMg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-nelly-good-life)
 
-**Artist**: wyatt 
+**Artist**: DJ Nelly 
 
-**Track**: acrobat
+**Track**: DJ Nelly - Good Life
 
-Last updated at 10/27/2025, 9:40:18 AM
+Last updated at 10/27/2025, 9:45:04 AM
