@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-044YmUzRbFVKT187-pmiyrg-t500x500.png">](https://soundcloud.com/henksounds/21e33bd2-5cf1-40dc-9a7e-c1fa9d18ca40)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lCzFQDZup2LHkeyy-zyFCMg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-nelly-good-life)
 
-**Artist**: Henk 
+**Artist**: DJ Nelly 
 
-**Track**: Henk - A List (Extended Mix)
+**Track**: DJ Nelly - Good Life
 
-Last updated at 10/27/2025, 12:45:42 PM
+Last updated at 10/27/2025, 12:50:02 PM
