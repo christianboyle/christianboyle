@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VmWEcd3GA6g54zpN-BFFhTw-t500x500.png">](https://soundcloud.com/saokevvo/sober)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijoN2rwjKTDlav9f-Oza7sA-t500x500.jpg">](https://soundcloud.com/4urc/forever-prod-sochi)
 
-**Artist**: kevvo, cluu, starry 
+**Artist**: xurco 
 
-**Track**: sober °rhekdens
+**Track**: forever… prod sochi
 
-Last updated at 10/27/2025, 9:34:38 AM
+Last updated at 10/27/2025, 9:38:23 AM
