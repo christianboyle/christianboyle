@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaL6fIcyM5Jeu9EP-Eiv3KQ-t500x500.jpg">](https://soundcloud.com/adamenoise/lady-gaga-beyonce-telephone-adame-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-55HimGy66WWNZfgq-aYSIzQ-t500x500.jpg">](https://soundcloud.com/k1rarisya/callme)
 
-**Artist**: ADAME 
+**Artist**: risya 
 
-**Track**: Lady Gaga & Beyonce - Telephone (ADAME FLIP)
+**Track**: ♪忙線中デス♡請稍後♪
 
-Last updated at 10/27/2025, 6:24:31 AM
+Last updated at 10/27/2025, 8:57:18 AM
