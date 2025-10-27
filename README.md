@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-044YmUzRbFVKT187-pmiyrg-t500x500.png">](https://soundcloud.com/henksounds/21e33bd2-5cf1-40dc-9a7e-c1fa9d18ca40)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxT47ygQaJyvhvz1-QUzF2Q-t500x500.png">](https://soundcloud.com/ssekainet/summer-oblivion-dj-shimamura)
 
-**Artist**: Henk 
+**Artist**: DJ Shimamura 
 
-**Track**: Henk - A List (Extended Mix)
+**Track**: Summer Oblivion
 
-Last updated at 10/27/2025, 9:09:44 AM
+Last updated at 10/27/2025, 9:13:09 AM
