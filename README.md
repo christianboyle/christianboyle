@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p1XpvXs76EuGrTXJ-WzgjBw-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/yung-lean-summertime-blood-elfz-genesis-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7Ucy8cwLs8FYrLQ-5DecGQ-t500x500.png">](https://soundcloud.com/zelvaxoxo/idku-w-starxvi-cheeto-starry-minok0-00sev-lynu)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Zelva, starxvi, cheeto, starry, minok0, 00sev 
 
-**Track**: YUNG LEAN - SUMMERTIME BLOOD (ELFZ 'GENESIS' REMIX)
+**Track**: IdkU w/ starxvi, cheeto, starry, minok0, 00sev (LynU)
 
-Last updated at 10/27/2025, 11:04:16 AM
+Last updated at 10/27/2025, 12:42:21 PM
