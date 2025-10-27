@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lCzFQDZup2LHkeyy-zyFCMg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-nelly-good-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qLL4tLkyrNJLo2ry-tQCgZw-t500x500.jpg">](https://soundcloud.com/jacidorex/3c8cbc53-7986-4bd4-9fa2-4a8676239b92)
 
-**Artist**: DJ Nelly 
+**Artist**: Jacidorex 
 
-**Track**: DJ Nelly - Good Life
+**Track**: Riverside
 
-Last updated at 10/27/2025, 9:45:04 AM
+Last updated at 10/27/2025, 9:48:44 AM
