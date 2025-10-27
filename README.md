@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-s4eH4GtR95y9rOmd-VolcWQ-t500x500.jpg">](https://soundcloud.com/silent8ch/keys-bip-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kaL6fIcyM5Jeu9EP-Eiv3KQ-t500x500.jpg">](https://soundcloud.com/adamenoise/lady-gaga-beyonce-telephone-adame-flip)
 
-**Artist**: ‽ || ! 
+**Artist**: ADAME 
 
-**Track**: Keys Bip Bass
+**Track**: Lady Gaga & Beyonce - Telephone (ADAME FLIP)
 
-Last updated at 10/27/2025, 6:21:11 AM
+Last updated at 10/27/2025, 6:24:31 AM
