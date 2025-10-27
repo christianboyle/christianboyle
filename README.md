@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u694E29JJ8a3svPq-vApeZA-t500x500.jpg">](https://soundcloud.com/lumberjvck/edgeofseventeenlumberjvckflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L2P5E9Gg9mZvFyJc-oIbAlg-t500x500.png">](https://soundcloud.com/slothmuzik/verve-bittersweet-symphony-remix)
 
-**Artist**: LUMBERJVCK 
+**Artist**: THE VERVE, SLOTH, BIGWIG, SYKEOUT 
 
-**Track**: Stevie Nicks - Edge of Seventeen (LUMBERJVCK FLIP)
+**Track**: THE VERVE - BITTERSWEET SYMPHONY (SLOTH x BIGWIG x SYKEOUT REMIX) (FREE DOWNLOAD)
 
-Last updated at 10/27/2025, 9:24:25 AM
+Last updated at 10/27/2025, 9:25:25 AM
