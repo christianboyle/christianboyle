@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uunwCbhyZmZDwRQ1-mu3zpA-t500x500.jpg">](https://soundcloud.com/spaceducksmusic/cry-me-a-river-space-ducks-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rxlKT8fyal4HrEiZ-1z5hyQ-t500x500.jpg">](https://soundcloud.com/elliemillss/lookaround)
 
-**Artist**: Space Ducks 
+**Artist**: ellie mills 
 
-**Track**: Justin Timberlake - Cry Me A River (Space Ducks Remix)
+**Track**: maybe just look around
 
-Last updated at 10/27/2025, 9:28:51 AM
+Last updated at 10/27/2025, 9:32:41 AM
