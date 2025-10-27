@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L2P5E9Gg9mZvFyJc-oIbAlg-t500x500.png">](https://soundcloud.com/slothmuzik/verve-bittersweet-symphony-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uunwCbhyZmZDwRQ1-mu3zpA-t500x500.jpg">](https://soundcloud.com/spaceducksmusic/cry-me-a-river-space-ducks-remix)
 
-**Artist**: THE VERVE, SLOTH, BIGWIG, SYKEOUT 
+**Artist**: Space Ducks 
 
-**Track**: THE VERVE - BITTERSWEET SYMPHONY (SLOTH x BIGWIG x SYKEOUT REMIX) (FREE DOWNLOAD)
+**Track**: Justin Timberlake - Cry Me A River (Space Ducks Remix)
 
-Last updated at 10/27/2025, 9:25:25 AM
+Last updated at 10/27/2025, 9:28:51 AM
