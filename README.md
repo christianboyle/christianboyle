@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N86iOQWa3xHcyz3F-NiE7lQ-t500x500.png">](https://soundcloud.com/naemsofficial/hello-zepp-i-want-to-play-a-game-naems-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rCbDd2aRGRy5LuZU-3NFJBQ-t500x500.jpg">](https://soundcloud.com/therealnaste/lights-out)
 
-**Artist**: NAEMS 
+**Artist**: Nāstë 
 
-**Track**: Hello Zepp (I Want To Play A Game) [NAEMS Remix]
+**Track**: LIGHTS OUT
 
-Last updated at 10/27/2025, 8:59:17 AM
+Last updated at 10/27/2025, 9:00:23 AM
