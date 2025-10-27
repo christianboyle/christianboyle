@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooQyQOZjLno8A3xT-SRzWjg-t500x500.png">](https://soundcloud.com/noctiil/system)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N86iOQWa3xHcyz3F-NiE7lQ-t500x500.png">](https://soundcloud.com/naemsofficial/hello-zepp-i-want-to-play-a-game-naems-remix)
 
-**Artist**: Noctiil 
+**Artist**: NAEMS 
 
-**Track**: Odd Mob & OMNOM - System (Noctiil Flip)
+**Track**: Hello Zepp (I Want To Play A Game) [NAEMS Remix]
 
-Last updated at 10/27/2025, 8:58:18 AM
+Last updated at 10/27/2025, 8:59:17 AM
