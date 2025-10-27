@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxT47ygQaJyvhvz1-QUzF2Q-t500x500.png">](https://soundcloud.com/ssekainet/summer-oblivion-dj-shimamura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yQ9KWvIN9DveSrLa-F0QtYQ-t500x500.png">](https://soundcloud.com/syntho/yx2-syntho-time-attack)
 
-**Artist**: DJ Shimamura 
+**Artist**: Syntho, yx2 
 
-**Track**: Summer Oblivion
+**Track**: syntho & yx2 - time attack
 
-Last updated at 10/27/2025, 9:13:09 AM
+Last updated at 10/27/2025, 9:14:24 AM
