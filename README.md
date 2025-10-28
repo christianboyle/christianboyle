@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Jt1prF8XE3gBujO-Ev8gyg-t500x500.jpg">](https://soundcloud.com/stoned_resonance/muerte-humanism-stoned-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000210262748-fknfpx-t500x500.jpg">](https://soundcloud.com/ryan-j-tee/make-ya-toes-cap-proper-bounce-no-smoke-october-2025-mix)
 
-**Artist**: Stoned Resonance 
+**Artist**: RJT 
 
-**Track**: MUERTE - HUMANISM (STONED REMIX)
+**Track**: Make Ya Toes Cap 👯‍♀️🕺 Bounce Mix October 2025
 
-Last updated at 10/28/2025, 8:18:06 AM
+Last updated at 10/28/2025, 8:20:42 AM
