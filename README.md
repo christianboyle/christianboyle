@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WaDMYhdoyoybmZra-yyqbVA-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-no-broke-boys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7Ucy8cwLs8FYrLQ-5DecGQ-t500x500.png">](https://soundcloud.com/zelvaxoxo/idku-w-starxvi-cheeto-starry-minok0-00sev-lynu)
 
-**Artist**: The Bounce Brothers 
+**Artist**: Zelva, starxvi, cheeto, starry, minok0, 00sev 
 
-**Track**: The Bounce Brothers - No Broke Boys
+**Track**: IdkU w/ starxvi, cheeto, starry, minok0, 00sev (LynU)
 
-Last updated at 10/28/2025, 9:27:46 AM
+Last updated at 10/28/2025, 9:30:42 AM
