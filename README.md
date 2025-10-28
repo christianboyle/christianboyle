@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-s4eH4GtR95y9rOmd-VolcWQ-t500x500.jpg">](https://soundcloud.com/silent8ch/keys-bip-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ysCGKG3IZ4nqqfF-PrWmaQ-t500x500.png">](https://soundcloud.com/yuk0o/all-stars-clip)
 
-**Artist**: ‽ || ! 
+**Artist**: ️️yuko 
 
-**Track**: Keys Bip Bass
+**Track**: all stars (+ mynorth, keymoow, seanpotter, okmax, adrien)
 
-Last updated at 10/28/2025, 9:56:37 AM
+Last updated at 10/28/2025, 9:59:08 AM
