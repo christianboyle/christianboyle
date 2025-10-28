@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000210262748-fknfpx-t500x500.jpg">](https://soundcloud.com/ryan-j-tee/make-ya-toes-cap-proper-bounce-no-smoke-october-2025-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXh8Sh3fVPDIb66Z-3CzlOg-t500x500.jpg">](https://soundcloud.com/ekaterina-leary/still-running)
 
-**Artist**: RJT 
+**Artist**: Eka777 
 
-**Track**: Make Ya Toes Cap 👯‍♀️🕺 Bounce Mix October 2025
+**Track**: 🌑 Still Running🌑
 
-Last updated at 10/28/2025, 8:20:42 AM
+Last updated at 10/28/2025, 8:29:48 AM
