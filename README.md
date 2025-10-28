@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KiM821xsuOe8ORY6-5ir6tQ-t500x500.png">](https://soundcloud.com/foundfootageuk/dirtydirty-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYZfKFQF749Xftnq-3J7rbQ-t500x500.png">](https://soundcloud.com/guguuguuuuu/maxo-kream-cell-boomin-chirenji-x-velcroshirt-flip)
 
-**Artist**: FOUND FOOTAGE 
+**Artist**: Chirenji, Velcroshirt 
 
-**Track**: DIRTYDIRTY (CLIP)
+**Track**: Maxo Kream - Cell Boomin' (Chirenji x VelcroShirt Flip)
 
-Last updated at 10/28/2025, 8:36:28 AM
+Last updated at 10/28/2025, 8:37:28 AM
