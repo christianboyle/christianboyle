@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PYZfKFQF749Xftnq-3J7rbQ-t500x500.png">](https://soundcloud.com/guguuguuuuu/maxo-kream-cell-boomin-chirenji-x-velcroshirt-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2wvllHXqdckpGoR-3SRnWQ-t500x500.png">](https://soundcloud.com/gradientperspective/lavier-trash-the-gradient-perspective-premiere)
 
-**Artist**: Chirenji, Velcroshirt 
+**Artist**: Lavier 
 
-**Track**: Maxo Kream - Cell Boomin' (Chirenji x VelcroShirt Flip)
+**Track**: Lavier - Trash [The Gradient Perspective Premiere]
 
-Last updated at 10/28/2025, 8:37:28 AM
+Last updated at 10/28/2025, 8:39:20 AM
