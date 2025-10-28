@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6RveArKn5w9elNU-yLwBYA-t500x500.png">](https://soundcloud.com/idkymusic/somebody-that-i-used-to-know-idk-y-remix-vocals-filtered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ZRe5PFnOS5jYpJT-THp9LQ-t500x500.png">](https://soundcloud.com/purapuragioiagioia/f2fd11b3-db96-414c-b56e-c889bf44088d)
 
-**Artist**: Gotye, Kimbra. IDK-Y 
+**Artist**: 1111111137137733111737173173131311137717311371737 
 
-**Track**: Somebody That I Used To Know (IDK-Y Remix) [Vocals Filtered]
+**Track**: Angelito 𝒟𝒥 𝒥𝓊𝓋𝑒 𝑀𝑒𝓇𝒹𝒶,𝒟𝒥 𝐼 𝐿𝑜𝓋𝑒 𝐹 𝒟𝒥 𝒬𝓊𝑒𝑒𝓃𝓈 𝒫𝒶𝓇𝓀 𝑅𝒶𝓃𝑔𝑒𝓇𝓏
 
-Last updated at 10/28/2025, 8:30:58 AM
+Last updated at 10/28/2025, 8:32:08 AM
