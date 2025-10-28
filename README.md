@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXh8Sh3fVPDIb66Z-3CzlOg-t500x500.jpg">](https://soundcloud.com/ekaterina-leary/still-running)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r6RveArKn5w9elNU-yLwBYA-t500x500.png">](https://soundcloud.com/idkymusic/somebody-that-i-used-to-know-idk-y-remix-vocals-filtered)
 
-**Artist**: Eka777 
+**Artist**: Gotye, Kimbra. IDK-Y 
 
-**Track**: 🌑 Still Running🌑
+**Track**: Somebody That I Used To Know (IDK-Y Remix) [Vocals Filtered]
 
-Last updated at 10/28/2025, 8:29:48 AM
+Last updated at 10/28/2025, 8:30:58 AM
