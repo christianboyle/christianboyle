@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6PKznawqQmF8KW4-3js3vQ-t500x500.jpg">](https://soundcloud.com/crayvxn/lys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEgDL1yDhXKR9yDT-MmR4ZA-t500x500.jpg">](https://soundcloud.com/cld/w2m)
 
-**Artist**: vjorka 
+**Artist**: cld 
 
-**Track**: lys
+**Track**: way2much
 
-Last updated at 10/28/2025, 9:50:06 AM
+Last updated at 10/28/2025, 9:54:12 AM
