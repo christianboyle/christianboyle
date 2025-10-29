@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QeJlzaqJFar7YdS4-AUqjwQ-t500x500.png">](https://soundcloud.com/krisp-dj/liquid-child-diving-faces)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5pfv6KbWAMHRPAc7-wwPLtA-t500x500.jpg">](https://soundcloud.com/belavie/ravers-fantasy)
 
-**Artist**: KrisP, Liquid Child 
+**Artist**: Bélavie 
 
-**Track**: Liquid Child - Diving Faces (KrisP Remix)
+**Track**: Bélavie - Raver's Fantasy
 
-Last updated at 10/29/2025, 10:03:59 AM
+Last updated at 10/29/2025, 10:07:04 AM
