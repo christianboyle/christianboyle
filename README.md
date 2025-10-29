@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KEgDL1yDhXKR9yDT-MmR4ZA-t500x500.jpg">](https://soundcloud.com/cld/w2m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-s4eH4GtR95y9rOmd-VolcWQ-t500x500.jpg">](https://soundcloud.com/silent8ch/keys-bip-bass)
 
-**Artist**: cld 
+**Artist**: ‽ || ! 
 
-**Track**: way2much
+**Track**: Keys Bip Bass
 
-Last updated at 10/29/2025, 10:29:01 AM
+Last updated at 10/29/2025, 10:31:32 AM
