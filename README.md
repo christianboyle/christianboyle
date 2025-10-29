@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3vMyzaWaPheOl5n8-urnwMg-t500x500.png">](https://soundcloud.com/itsdemotapes/home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIt7FrJijJvbGfpD-9FfiAw-t500x500.png">](https://soundcloud.com/lucalush/kpop-demon-hunter-your-idol-luca-lush-remix)
 
-**Artist**: demotapes 
+**Artist**: 𝐋𝐔𝐂𝐀 𝐋𝐔𝐒𝐇 
 
-**Track**: home
+**Track**: Kpop Demon Hunter - Your Idol (LUCA LUSH Remix)
 
-Last updated at 10/28/2025, 8:13:06 PM
+Last updated at 10/28/2025, 8:14:09 PM
