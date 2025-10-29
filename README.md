@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fKqE9ow2zDG8PAir-lpAfug-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-26-10-25-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9EE3qfpNNnkvCXyE-M2fAdA-t500x500.png">](https://soundcloud.com/lucalush/luca-lush-hit-me-baby-one-more)
 
-**Artist**: DJ Pleasure 
+**Artist**: 𝐋𝐔𝐂𝐀 𝐋𝐔𝐒𝐇 
 
-**Track**: DJ Pleasure 26-10-25.mp3
+**Track**: LUCA LUSH - HIT ME BABY ONE MORE TIME
 
-Last updated at 10/29/2025, 8:53:18 AM
+Last updated at 10/29/2025, 9:53:53 AM
