@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gk8oWLUvZUK4aCTz-yXRyOg-t500x500.jpg">](https://soundcloud.com/gzmo-productions/d-code-stay-awake-gzmo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
 
-**Artist**: GZMO 
+**Artist**: bambinodj 
 
-**Track**: D-Code - Stay Awake (GZMO Remix)
+**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
 
-Last updated at 10/29/2025, 10:49:53 AM
+Last updated at 10/29/2025, 10:54:09 AM
