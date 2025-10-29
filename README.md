@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-s4eH4GtR95y9rOmd-VolcWQ-t500x500.jpg">](https://soundcloud.com/silent8ch/keys-bip-bass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kfzQxGgPKKTirrCv-JNYOXg-t500x500.png">](https://soundcloud.com/sceniccityunderground/bobbywub)
 
-**Artist**: ‽ || ! 
+**Artist**: Geodesic & BrothaBurks 
 
-**Track**: Keys Bip Bass
+**Track**: Geodesic & BrothaBurks - BOBBYWUB (FREE DOWNLOAD)
 
-Last updated at 10/29/2025, 10:31:32 AM
+Last updated at 10/29/2025, 10:43:08 AM
