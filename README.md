@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MLezhywwLzuyYBEA-yEuIpw-t500x500.png">](https://soundcloud.com/lucalush/rhythmofthenight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QeJlzaqJFar7YdS4-AUqjwQ-t500x500.png">](https://soundcloud.com/krisp-dj/liquid-child-diving-faces)
 
-**Artist**: 𝐋𝐔𝐂𝐀 𝐋𝐔𝐒𝐇 
+**Artist**: KrisP, Liquid Child 
 
-**Track**: LUCA LUSH - RHYTHM OF THE NIGHT
+**Track**: Liquid Child - Diving Faces (KrisP Remix)
 
-Last updated at 10/29/2025, 9:59:09 AM
+Last updated at 10/29/2025, 10:03:59 AM
