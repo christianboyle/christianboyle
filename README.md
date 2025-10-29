@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5pfv6KbWAMHRPAc7-wwPLtA-t500x500.jpg">](https://soundcloud.com/belavie/ravers-fantasy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WaDMYhdoyoybmZra-yyqbVA-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-no-broke-boys)
 
-**Artist**: Bélavie 
+**Artist**: The Bounce Brothers 
 
-**Track**: Bélavie - Raver's Fantasy
+**Track**: The Bounce Brothers - No Broke Boys
 
-Last updated at 10/29/2025, 10:07:04 AM
+Last updated at 10/29/2025, 10:10:40 AM
