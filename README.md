@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QeJlzaqJFar7YdS4-AUqjwQ-t500x500.png">](https://soundcloud.com/krisp-dj/liquid-child-diving-faces)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n6v1pDLEIenpanWN-9BHFIw-t500x500.png">](https://soundcloud.com/justinhawkes/sell-my-soul-vip)
 
-**Artist**: KrisP, Liquid Child 
+**Artist**: Justin Hawkes, Bensley, Kumarion 
 
-**Track**: Liquid Child - Diving Faces (KrisP Remix)
+**Track**: Sell My Soul VIP
 
-Last updated at 10/30/2025, 6:30:42 AM
+Last updated at 10/30/2025, 6:31:52 AM
