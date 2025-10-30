@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4nDZ5yzgBd5zRVzp-N9cIXw-t500x500.png">](https://soundcloud.com/speedworldrecs/know-what-you-want)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XNfNWOVVAMBzQvJp-gSyo9w-t500x500.png">](https://soundcloud.com/djfinny1/bs-051025-mix-2-1)
 
-**Artist**: Oing & Alenn 
+**Artist**: djfinny1 (Darren Finlayson) 
 
-**Track**: Know What You Want
+**Track**: BS 051025 mix 2
 
-Last updated at 10/30/2025, 7:13:49 AM
+Last updated at 10/30/2025, 7:14:54 AM
