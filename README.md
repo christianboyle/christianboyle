@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ysCGKG3IZ4nqqfF-PrWmaQ-t500x500.png">](https://soundcloud.com/yuk0o/all-stars-clip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QeJlzaqJFar7YdS4-AUqjwQ-t500x500.png">](https://soundcloud.com/krisp-dj/liquid-child-diving-faces)
 
-**Artist**: ️️yuko 
+**Artist**: KrisP, Liquid Child 
 
-**Track**: all stars (+ mynorth, keymoow, seanpotter, okmax, adrien)
+**Track**: Liquid Child - Diving Faces (KrisP Remix)
 
-Last updated at 10/30/2025, 6:23:31 AM
+Last updated at 10/30/2025, 6:30:42 AM
