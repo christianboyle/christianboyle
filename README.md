@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2ysCGKG3IZ4nqqfF-PrWmaQ-t500x500.png">](https://soundcloud.com/yuk0o/all-stars-clip)
 
-**Artist**: bambinodj 
+**Artist**: ️️yuko 
 
-**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
+**Track**: all stars (+ mynorth, keymoow, seanpotter, okmax, adrien)
 
-Last updated at 10/29/2025, 10:54:09 AM
+Last updated at 10/30/2025, 6:23:31 AM
