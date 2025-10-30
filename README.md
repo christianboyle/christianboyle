@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AcrCQBwlh36sUhcK-RpHXVw-t500x500.jpg">](https://soundcloud.com/bassrush/sfam-snuffy-cash-only)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a5fa945JswdSzGbX-k3xNtA-t500x500.png">](https://soundcloud.com/oklou93/the-fishsong-unplugged-2)
 
-**Artist**: sfam, snuffy 
+**Artist**: oklou 
 
-**Track**: sfam & snuffy - Cash Only
+**Track**: the fishsong unplugged
 
-Last updated at 10/30/2025, 7:11:08 AM
+Last updated at 10/30/2025, 7:12:43 AM
