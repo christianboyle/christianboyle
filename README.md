@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l32vhcO4nbYIT5Ir-4yfzTw-t500x500.png">](https://soundcloud.com/wappaa/isle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZyjd0qYQ2tXKprj-li82bA-t500x500.png">](https://soundcloud.com/weight_of_the_world_2025/intercity-faxing?in=yerbownik/sets/weight-of-the-world)
 
-**Artist**: Wappa 
+**Artist**: Weight of The World, yerbby, lostageless 
 
-**Track**: Isle
+**Track**: intercity faxing
 
-Last updated at 10/30/2025, 9:17:46 AM
+Last updated at 10/30/2025, 9:18:57 AM
