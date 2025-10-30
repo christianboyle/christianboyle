@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XNfNWOVVAMBzQvJp-gSyo9w-t500x500.png">](https://soundcloud.com/djfinny1/bs-051025-mix-2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-miP1sE0D3QOazBGY-grcSUg-t500x500.png">](https://soundcloud.com/david-cruickshanks/hell-of-a-bounce-podcast-episode-33)
 
-**Artist**: djfinny1 (Darren Finlayson) 
+**Artist**: SHANKS 
 
-**Track**: BS 051025 mix 2
+**Track**: HELL OF A BOUNCE PODCAST EPISODE 33
 
-Last updated at 10/30/2025, 7:14:54 AM
+Last updated at 10/30/2025, 7:15:54 AM
