@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQLho7guTdPyDy0F-xE00kw-t500x500.jpg">](https://soundcloud.com/iifi/niotech-x-area-one-sexy-and-i-know-it-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WUyKWe70jo7J8eQY-zWAvTQ-t500x500.png">](https://soundcloud.com/rob-sheppard-463948710/ozone-master-2-faster-ozone-11)
 
-**Artist**: AREA ØNE 
+**Artist**: Cumfi R.A.S. 
 
-**Track**: Niotech X AREA ØNE - Sexy And I Know It [Free DL]
+**Track**: FASTER (feat) JKILL
 
-Last updated at 10/30/2025, 6:39:05 AM
+Last updated at 10/30/2025, 6:41:50 AM
