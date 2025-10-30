@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OCpbhra4gbB3iQ4H-nsGERg-t500x500.jpg">](https://soundcloud.com/basskrap/chase-status-bou-feat-irah-flowdan-trigga-takura-baddadan-basskrap-hardcore-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zQLho7guTdPyDy0F-xE00kw-t500x500.jpg">](https://soundcloud.com/iifi/niotech-x-area-one-sexy-and-i-know-it-free-dl)
 
-**Artist**: BASSKRAP 
+**Artist**: AREA ØNE 
 
-**Track**: Chase & Status, Bou Feat. IRAH, Flowdan, Trigga, Takura - Baddadan (Basskrap Hardcore Remix)
+**Track**: Niotech X AREA ØNE - Sexy And I Know It [Free DL]
 
-Last updated at 10/30/2025, 6:38:05 AM
+Last updated at 10/30/2025, 6:39:05 AM
