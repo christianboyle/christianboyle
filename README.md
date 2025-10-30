@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a5fa945JswdSzGbX-k3xNtA-t500x500.png">](https://soundcloud.com/oklou93/the-fishsong-unplugged-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4nDZ5yzgBd5zRVzp-N9cIXw-t500x500.png">](https://soundcloud.com/speedworldrecs/know-what-you-want)
 
-**Artist**: oklou 
+**Artist**: Oing & Alenn 
 
-**Track**: the fishsong unplugged
+**Track**: Know What You Want
 
-Last updated at 10/30/2025, 7:12:43 AM
+Last updated at 10/30/2025, 7:13:49 AM
