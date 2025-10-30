@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n6v1pDLEIenpanWN-9BHFIw-t500x500.png">](https://soundcloud.com/justinhawkes/sell-my-soul-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M0KjC4qQdyLiBgtf-hclbog-t500x500.png">](https://soundcloud.com/presentlylifted/smokestax-lse-cntrl)
 
-**Artist**: Justin Hawkes, Bensley, Kumarion 
+**Artist**: Smokestax 
 
-**Track**: Sell My Soul VIP
+**Track**: Smokestax - LSE CNTRL
 
-Last updated at 10/30/2025, 6:31:52 AM
+Last updated at 10/30/2025, 6:32:52 AM
