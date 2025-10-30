@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-miP1sE0D3QOazBGY-grcSUg-t500x500.png">](https://soundcloud.com/david-cruickshanks/hell-of-a-bounce-podcast-episode-33)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzUebRLyfBU6RI2c-TjpHiw-t500x500.png">](https://soundcloud.com/illintent_hard_dance/lonely-dnz-records)
 
-**Artist**: SHANKS 
+**Artist**: Illintent, Jayme D 
 
-**Track**: HELL OF A BOUNCE PODCAST EPISODE 33
+**Track**: Lonely (DNZ RECORDS)
 
-Last updated at 10/30/2025, 7:15:54 AM
+Last updated at 10/30/2025, 7:32:56 AM
