@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A86ga3Bz6ypy8SAU-NzxTvw-t500x500.jpg">](https://soundcloud.com/percluu/want-dat-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHnAb9QAtzIisE0V-wwKjyg-t500x500.png">](https://soundcloud.com/weight_of_the_world_2025/movements-feat-lunarr?in=yerbownik/sets/weight-of-the-world)
 
-**Artist**: cluu 
+**Artist**: Weight of The World, yerbby, lostageless, lunarr 
 
-**Track**: want dat back prod uuundevoted
+**Track**: movements (feat. lunarr)
 
-Last updated at 10/30/2025, 8:30:52 AM
+Last updated at 10/30/2025, 8:40:53 AM
