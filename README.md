@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMLYRmZX6uZnI8mX-ZfDTNA-t500x500.png">](https://soundcloud.com/2siikmusic/dont-eat-the-dogs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zKl8vnWYI60CzfdE-2RVPgg-t500x500.png">](https://soundcloud.com/scantraxx/bleed-like-a-king)
 
-**Artist**: 2SiiK 
+**Artist**: Digital Punk, Nightcraft 
 
-**Track**: Don't Eat The Dogs
+**Track**: Bleed Like A King
 
-Last updated at 10/30/2025, 7:25:49 PM
+Last updated at 10/30/2025, 7:32:05 PM
