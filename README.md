@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1gQjyQmXteutt24m-tryIzw-t500x500.png">](https://soundcloud.com/djpaulelstak/scooter-paul-elstak-joost-luv)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v3JvitTJ5zKZ9PWx-5sks1g-t500x500.png">](https://soundcloud.com/jessebloch/disco-lines-x-tinashe-no-broke-boys-jesse-blochs-hard-edit)
 
-**Artist**: Scooter, Paul Elstak, Joost 
+**Artist**: Jesse Bloch 
 
-**Track**: Scooter & Paul Elstak & Joost - Luv U More
+**Track**: Disco Lines x Tinashe - No Broke Boys (Jesse Bloch's Hard Edit)
 
-Last updated at 10/31/2025, 6:13:50 AM
+Last updated at 10/31/2025, 6:15:50 AM
