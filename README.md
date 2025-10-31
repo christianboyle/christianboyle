@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHnAb9QAtzIisE0V-wwKjyg-t500x500.png">](https://soundcloud.com/weight_of_the_world_2025/movements-feat-lunarr?in=yerbownik/sets/weight-of-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tMLYRmZX6uZnI8mX-ZfDTNA-t500x500.png">](https://soundcloud.com/2siikmusic/dont-eat-the-dogs)
 
-**Artist**: Weight of The World, yerbby, lostageless, lunarr 
+**Artist**: 2SiiK 
 
-**Track**: movements (feat. lunarr)
+**Track**: Don't Eat The Dogs
 
-Last updated at 10/30/2025, 9:28:42 AM
+Last updated at 10/30/2025, 7:25:49 PM
