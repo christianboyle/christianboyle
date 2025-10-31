@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zKl8vnWYI60CzfdE-2RVPgg-t500x500.png">](https://soundcloud.com/scantraxx/bleed-like-a-king)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qc4V5nwKShLReoI0-P72Tlg-t500x500.png">](https://soundcloud.com/falcons/when-i-hear-squabble-up)
 
-**Artist**: Digital Punk, Nightcraft 
+**Artist**: Dos Flakos, Falcons 
 
-**Track**: Bleed Like A King
+**Track**: When I Hear Squabble Up
 
-Last updated at 10/31/2025, 6:01:45 AM
+Last updated at 10/31/2025, 6:05:35 AM
