@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pyzlq6qOMOy5zjxD-kToHVw-t500x500.png">](https://soundcloud.com/djmarshy1984/marshy-klubb-efekt-bow-chi-masteredsample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H7awqeJIEDtajGbJ-eSETxA-t500x500.png">](https://soundcloud.com/chassimusic/chassi-power)
 
-**Artist**: Marshy 
+**Artist**: Chassi 
 
-**Track**: Marshy & Klubb Efekt - Bow-Chi (mastered)Sample
+**Track**: Chassi - POWER
 
-Last updated at 10/31/2025, 3:39:23 PM
+Last updated at 10/31/2025, 3:40:53 PM
