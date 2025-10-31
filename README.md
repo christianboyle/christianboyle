@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tuJInxU7Il4v0oPw-O9UYpQ-t500x500.jpg">](https://soundcloud.com/spfinfini/1-dj-genevie-ve-aamourocean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1gQjyQmXteutt24m-tryIzw-t500x500.png">](https://soundcloud.com/djpaulelstak/scooter-paul-elstak-joost-luv)
 
-**Artist**: DJ Geneviève, Aamourocean, SPF INFINI 
+**Artist**: Scooter, Paul Elstak, Joost 
 
-**Track**: DJ Geneviève, Aamourocean - 2HJI
+**Track**: Scooter & Paul Elstak & Joost - Luv U More
 
-Last updated at 10/31/2025, 6:11:34 AM
+Last updated at 10/31/2025, 6:13:50 AM
