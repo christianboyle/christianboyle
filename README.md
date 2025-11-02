@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydN5a61QBKDdJzIh-40e05g-t500x500.png">](https://soundcloud.com/barongfamily/omoyhexadroneblood)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozkfmHQGrdqumhnC-Wgz85g-t500x500.png">](https://soundcloud.com/musicbyinnocent/innocent-boynothome-monster-3k-insta-spesh)
 
-**Artist**: OMOY, Hexadrone 
+**Artist**: INNOCENT, Boynothome 
 
-**Track**: OMOY, Hexadrone - BLOOD
+**Track**: INNOCENT & Boynothome - Monster (3k insta spesh)
 
-Last updated at 11/2/2025, 9:49:24 AM
+Last updated at 11/2/2025, 9:50:34 AM
