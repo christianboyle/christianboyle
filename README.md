@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-QGXZ0MyJlykx3fsg-C0tpNw-t500x500.jpg">](https://soundcloud.com/don-k-donk/977cb8d0-bd68-4b1a-b868-0d7dce9892fb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0SqmD71BJzjAXxx5-05SDEg-t500x500.jpg">](https://soundcloud.com/wesley-percival-950058140/synth-nation-vol-12)
 
-**Artist**: Don-K 
+**Artist**: DJ WES P ™ 
 
-**Track**: Chasing Highs
+**Track**: SYNTH NATION VOL 12
 
-Last updated at 11/2/2025, 9:27:27 AM
+Last updated at 11/2/2025, 9:28:42 AM
