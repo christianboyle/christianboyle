@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f531Su564BXSpODM-u8UIeQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/vennootschap-million-days)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BQH62JzMAHeoIwBC-xWQ74w-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-d-l-e-frozen)
 
 **Artist**: Revolution-Records UK 
 
-**Track**: VENNOOTSCHAP - MILLION DAYS OUT NOW ( Click Buy Now)
+**Track**: GEE & D.L.E - FROZEN - OUT NOW
 
-Last updated at 11/2/2025, 9:31:42 AM
+Last updated at 11/2/2025, 9:32:47 AM
