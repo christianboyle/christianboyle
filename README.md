@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0SqmD71BJzjAXxx5-05SDEg-t500x500.jpg">](https://soundcloud.com/wesley-percival-950058140/synth-nation-vol-12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0mQ7pnG8etHE63fh-wOM3YA-t500x500.jpg">](https://soundcloud.com/phrva/acti-ii)
 
-**Artist**: DJ WES P ™ 
+**Artist**: Phrva 
 
-**Track**: SYNTH NATION VOL 12
+**Track**: a desire burns: act ii
 
-Last updated at 11/2/2025, 9:28:42 AM
+Last updated at 11/2/2025, 9:29:42 AM
