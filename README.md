@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozkfmHQGrdqumhnC-Wgz85g-t500x500.png">](https://soundcloud.com/musicbyinnocent/innocent-boynothome-monster-3k-insta-spesh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AVmuA3sAuZvL28yW-ypVxyQ-t500x500.jpg">](https://soundcloud.com/rvstyy/looking-for)
 
-**Artist**: INNOCENT, Boynothome 
+**Artist**: rvsty (prod kenzee) 
 
-**Track**: INNOCENT & Boynothome - Monster (3k insta spesh)
+**Track**: what r u looking for?
 
-Last updated at 11/2/2025, 9:50:34 AM
+Last updated at 11/2/2025, 9:52:19 AM
