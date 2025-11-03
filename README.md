@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wenFnWf3Joj2Ksff-9GV7pg-t500x500.png">](https://soundcloud.com/dj-adam-taylor-official/preview-adam-taylor-4-oclock-in-the-morning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000514582680-xpito6-t500x500.jpg">](https://soundcloud.com/rikkigray/in-my-mind-bounce-remix)
 
-**Artist**: DJ Adam Taylor Official 
+**Artist**: Rikki Gray 
 
-**Track**: PREVIEW: Adam Taylor - 4 O'Clock In The Morning
+**Track**: In My Mind (Bounce remix)
 
-Last updated at 11/3/2025, 8:47:08 AM
+Last updated at 11/3/2025, 8:50:09 AM
