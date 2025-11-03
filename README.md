@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0MKN80VaMhlIjxHA-MBa3BQ-t500x500.png">](https://soundcloud.com/audioboyz-521906163/audioboyz-kingston-town-coming-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-euRYsEIBPmhazJ83-IVaoww-t500x500.png">](https://soundcloud.com/biff-jones-0/bounce-fresh-162)
 
-**Artist**: AudioBoyz 
+**Artist**: F.E.A.R. 
 
-**Track**: AudioBoyz - Kingston Town [COMING SOON]
+**Track**: Bounce Fresh 162
 
-Last updated at 11/3/2025, 8:27:41 AM
+Last updated at 11/3/2025, 8:30:07 AM
