@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHDm76xRBoT1neR1-Bzb4Hw-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-646216773)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WluTu6FO4Z3qsCb4-NOdtzw-t500x500.jpg">](https://soundcloud.com/41rossco/nov25mix)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: DJ.Rossco 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 32(Tracklist In Description)
+**Track**: Nov25Mix
 
-Last updated at 11/3/2025, 9:59:04 AM
+Last updated at 11/3/2025, 10:26:17 AM
