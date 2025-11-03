@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAZ7lWel74m6umP8-BubF1Q-t500x500.png">](https://soundcloud.com/ellahox/vampire-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xp873gYMwydK4ndY-Ju0mjA-t500x500.png">](https://soundcloud.com/matthew-williams-119/matt-williams-sexy-dancer-sample)
 
-**Artist**: ELLA HOX 
+**Artist**: (DJ) Matt Williams 
 
-**Track**: FREE DL | ELLA HOX - VAMPIRE RAVE
+**Track**: Matt Williams - Sexy Dancer (Sample)
 
-Last updated at 11/3/2025, 8:52:24 AM
+Last updated at 11/3/2025, 8:53:24 AM
