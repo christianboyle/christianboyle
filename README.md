@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuncMFobZJqSUAHo-El4rMA-t500x500.png">](https://soundcloud.com/piercesounds/what-so-not-jaguar-pierce-hazea-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N2shy5PkwycxnHfX-L2OdxA-t500x500.png">](https://soundcloud.com/proxysmusic/proxys-shade)
 
-**Artist**: PIERCE, HAZEA 
+**Artist**: Proxys 
 
-**Track**: WHAT SO NOT - JAGUAR (PIERCE & HAZEA REMIX)
+**Track**: Proxys - SHADE (FREE DOWNLOAD)
 
-Last updated at 11/3/2025, 8:25:41 AM
+Last updated at 11/3/2025, 8:26:41 AM
