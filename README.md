@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-spggne0fCcy6izC3-1HVfqg-t500x500.png">](https://soundcloud.com/david-nicholson-534592227/ae1c9add-a778-47df-8e3a-832e396f1c0f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wenFnWf3Joj2Ksff-9GV7pg-t500x500.png">](https://soundcloud.com/dj-adam-taylor-official/preview-adam-taylor-4-oclock-in-the-morning)
 
-**Artist**: Vibe  
+**Artist**: DJ Adam Taylor Official 
 
-**Track**: Dj Vibe November Mix
+**Track**: PREVIEW: Adam Taylor - 4 O'Clock In The Morning
 
-Last updated at 11/3/2025, 8:32:57 AM
+Last updated at 11/3/2025, 8:47:08 AM
