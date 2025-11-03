@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3wPyMXvIP9hWvaF5-YMbd7Q-t500x500.jpg">](https://soundcloud.com/jay-woody/grtb-30-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XuncMFobZJqSUAHo-El4rMA-t500x500.png">](https://soundcloud.com/piercesounds/what-so-not-jaguar-pierce-hazea-remix)
 
-**Artist**: 🅹🅰🆈 🆆🅾🅾🅳🆈 
+**Artist**: PIERCE, HAZEA 
 
-**Track**: Get Ready To Bounce Vol 30 - Jay Woody
+**Track**: WHAT SO NOT - JAGUAR (PIERCE & HAZEA REMIX)
 
-Last updated at 11/3/2025, 8:24:41 AM
+Last updated at 11/3/2025, 8:25:41 AM
