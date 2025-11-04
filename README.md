@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a8F2NnCHhdupCtay-ke0kCg-t500x500.png">](https://soundcloud.com/subcarbon/undehfined-unanimous-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WluTu6FO4Z3qsCb4-NOdtzw-t500x500.jpg">](https://soundcloud.com/41rossco/nov25mix)
 
-**Artist**: Undehfined 
+**Artist**: DJ.Rossco 
 
-**Track**: Undehfined - Unanimous [Free Download]
+**Track**: Nov25Mix
 
-Last updated at 11/4/2025, 9:36:22 AM
+Last updated at 11/4/2025, 11:04:54 AM
