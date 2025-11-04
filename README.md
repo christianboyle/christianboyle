@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0t5zdgODbVuByiq-mh43QQ-t500x500.jpg">](https://soundcloud.com/djactiv8/bnrgggg6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ps0mv0LkeaTGhqM0-TuHWNg-t500x500.jpg">](https://soundcloud.com/darren-j-3/quality-bounce-pacific-sun-mp3)
 
-**Artist**: DJ ACTiV8 
+**Artist**: Daz Mooney (Quality Bounce) 
 
-**Track**: BOUNCE ENERGY 6
+**Track**: Quality Bounce - Pacific Sun.mp3
 
-Last updated at 11/4/2025, 1:44:34 PM
+Last updated at 11/4/2025, 1:46:59 PM
