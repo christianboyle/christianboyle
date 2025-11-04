@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2etGcFzYVxu2Z8aB-QGIQiQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-i-lied)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JdSS5BYBuaf5IpS1-xFjXxg-t500x500.jpg">](https://soundcloud.com/thiket-esc/hidden-citizen-silent-running)
 
-**Artist**: DJ Oggy 
+**Artist**: Thiket 
 
-**Track**: DJ Oggy - I Lied
+**Track**: Hidden Citizen - Silent Running (Thiket Bootleg)
 
-Last updated at 11/4/2025, 5:35:05 PM
+Last updated at 11/4/2025, 5:50:24 PM
