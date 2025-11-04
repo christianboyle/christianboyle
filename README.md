@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000514582680-xpito6-t500x500.jpg">](https://soundcloud.com/rikkigray/in-my-mind-bounce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f531Su564BXSpODM-u8UIeQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/vennootschap-million-days)
 
-**Artist**: Rikki Gray 
+**Artist**: Revolution-Records UK 
 
-**Track**: In My Mind (Bounce remix)
+**Track**: VENNOOTSCHAP - MILLION DAYS OUT NOW ( Click Buy Now)
 
-Last updated at 11/4/2025, 9:22:26 AM
+Last updated at 11/4/2025, 9:27:06 AM
