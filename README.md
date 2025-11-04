@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9Qfl3HWKeTdC1d6-dn6yTA-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-healing-coming-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OHy6SXETyvjygn92-bZNOUA-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-sweet-but-psycho)
 
-**Artist**: Revolution-Records UK 
+**Artist**: DJ MOFF-EL MOFF-M DEE 21 
 
-**Track**: GEE - HEALING - OUT NOW
+**Track**: El Moff-Sweet But Psycho (Sample)
 
-Last updated at 11/4/2025, 9:30:32 AM
+Last updated at 11/4/2025, 9:33:57 AM
