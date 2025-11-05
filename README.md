@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JdSS5BYBuaf5IpS1-xFjXxg-t500x500.jpg">](https://soundcloud.com/thiket-esc/hidden-citizen-silent-running)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L376rrBteQ2EwhGN-GtdjaA-t500x500.png">](https://soundcloud.com/gabrielgsdj/special-session-halloween-2025)
 
-**Artist**: Thiket 
+**Artist**: Dj Gabo 
 
-**Track**: Hidden Citizen - Silent Running (Thiket Bootleg)
+**Track**: Special session Halloween 2025 by Dj Gabo
 
-Last updated at 11/4/2025, 5:50:24 PM
+Last updated at 11/5/2025, 5:55:13 AM
