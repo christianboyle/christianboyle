@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L376rrBteQ2EwhGN-GtdjaA-t500x500.png">](https://soundcloud.com/gabrielgsdj/special-session-halloween-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OOSCEGlTiPxPw85e-BeeNPg-t500x500.jpg">](https://soundcloud.com/leahsummers/chasinthatcheck-prod-me-n-fashionist)
 
-**Artist**: Dj Gabo 
+**Artist**: leah summers 
 
-**Track**: Special session Halloween 2025 by Dj Gabo
+**Track**: ##ChasinThatCheck 💰 prod. me n fashionist
 
-Last updated at 11/5/2025, 5:55:13 AM
+Last updated at 11/5/2025, 5:57:42 AM
