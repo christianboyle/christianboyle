@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OOSCEGlTiPxPw85e-BeeNPg-t500x500.jpg">](https://soundcloud.com/leahsummers/chasinthatcheck-prod-me-n-fashionist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ipn9HiXE8iuYEerl-J3oYyA-t500x500.png">](https://soundcloud.com/iamsammyporter/livin-joy-dont-stop-moving-sammy-porter-remix)
 
-**Artist**: leah summers 
+**Artist**: Sammy Porter 
 
-**Track**: ##ChasinThatCheck 💰 prod. me n fashionist
+**Track**: Livin' Joy - Dont Stop Moving (Sammy Porter Remix) [FREE DOWNLOAD]
 
-Last updated at 11/5/2025, 8:32:37 AM
+Last updated at 11/5/2025, 8:33:42 AM
