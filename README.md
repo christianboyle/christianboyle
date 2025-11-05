@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SyRzBHSrySzuONKo-zTl35A-t500x500.jpg">](https://soundcloud.com/cool-tracks-records/c761e1f1-cb81-4019-8e41-e9e2797b7e8a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6YMA4Unn5kNZUmyt-h1cA9g-t500x500.jpg">](https://soundcloud.com/nachtwasser/vanta)
 
-**Artist**: Z1K, Cool Tracks Records 
+**Artist**: Nachtwasser 
 
-**Track**: SALTAR BAIXO - Z1K
+**Track**: VANTA
 
-Last updated at 11/5/2025, 8:42:28 AM
+Last updated at 11/5/2025, 8:43:43 AM
