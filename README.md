@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQmxCggq4OzPBky-LFualA-t500x500.jpg">](https://soundcloud.com/rvstyy/ion-like-that-fuck-you-ho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ITUMSjccu2KHztV5-VZ5ezg-t500x500.png">](https://soundcloud.com/s3rl/boy-slut)
 
-**Artist**: rvsty (prod. 2ukko) 
+**Artist**: S3RL, PiNKII 
 
-**Track**: ion like that (lyrics in desc)
+**Track**: Boy Slut
 
-Last updated at 11/6/2025, 6:06:56 AM
+Last updated at 11/6/2025, 6:25:37 AM
