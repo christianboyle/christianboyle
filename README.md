@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ITUMSjccu2KHztV5-VZ5ezg-t500x500.png">](https://soundcloud.com/s3rl/boy-slut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPVRG8cymkpjpjXD-73k8oQ-t500x500.png">](https://soundcloud.com/unchainedlabel/hard-bass-raver)
 
-**Artist**: S3RL, PiNKII 
+**Artist**: MOJI, BLVCK CROWZ 
 
-**Track**: Boy Slut
+**Track**: Hard Bass Raver
 
-Last updated at 11/6/2025, 6:25:37 AM
+Last updated at 11/6/2025, 8:55:05 AM
