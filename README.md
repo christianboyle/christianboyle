@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ba4NslbL2iCTIaJw-LcpAzA-t500x500.png">](https://soundcloud.com/above_the_surface/marshall-anderson-coffee-between-breaths-feat-shlomes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQmxCggq4OzPBky-LFualA-t500x500.jpg">](https://soundcloud.com/rvstyy/ion-like-that-fuck-you-ho)
 
-**Artist**: Marshall Anderson  
+**Artist**: rvsty (prod. 2ukko) 
 
-**Track**: Marshall Anderson - Coffee Between Breaths (feat. Shlomes)
+**Track**: ion like that (lyrics in desc)
 
-Last updated at 11/5/2025, 8:47:33 AM
+Last updated at 11/6/2025, 6:06:56 AM
