@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGVG1vYcJPZzJZ0H-3eYc2w-t500x500.png">](https://soundcloud.com/cocobrycebeats/coco-bryce-noches-sephardies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EZ2A9yJrI9jZHLy-vvn1og-t500x500.jpg">](https://soundcloud.com/ryan3138-885309451/sparkybounce-bangers-4)
 
-**Artist**: cocobrycebeats 
+**Artist**: Sparky 
 
-**Track**: Coco Bryce - Noches Sephardies
+**Track**: Bounce Bangers 4
 
-Last updated at 11/6/2025, 8:58:00 AM
+Last updated at 11/7/2025, 6:21:39 AM
