@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000514582680-xpito6-t500x500.jpg">](https://soundcloud.com/rikkigray/in-my-mind-bounce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EZ2A9yJrI9jZHLy-vvn1og-t500x500.jpg">](https://soundcloud.com/ryan3138-885309451/sparkybounce-bangers-4)
 
-**Artist**: Rikki Gray 
+**Artist**: Sparky 
 
-**Track**: In My Mind (Bounce remix)
+**Track**: Bounce Bangers 4
 
-Last updated at 11/8/2025, 5:07:27 PM
+Last updated at 11/8/2025, 5:09:42 PM
