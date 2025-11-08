@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baQudGfvVQuajjGz-u4YTvw-t500x500.png">](https://soundcloud.com/johnathon-o-regan/44c76b72-b4e1-4f47-b7f0-2531ddeba5a5)
 
-**Artist**: Virtual Riot, Eliminate, Crumb Pit 
+**Artist**: REEGZ 
 
-**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
+**Track**: Burnin Like Fire
 
-Last updated at 11/8/2025, 11:37:39 AM
+Last updated at 11/8/2025, 1:34:19 PM
