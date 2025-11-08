@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d3UcXaehdFyU2n0P-6wBCkQ-t500x500.jpg">](https://soundcloud.com/kex-well/set-fire-to-the-rain-vs-in-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura)
 
-**Artist**: Kexwell 
+**Artist**: Virtual Riot, Eliminate, Crumb Pit 
 
-**Track**: Set Fire To The Rain vs in My mind - [Kexwell & Cenora Mashup Edit]
+**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
 
-Last updated at 11/8/2025, 4:51:20 PM
+Last updated at 11/8/2025, 4:54:31 PM
