@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7WzAzm7duaAizg4Q-UsyoFQ-t500x500.jpg">](https://soundcloud.com/paul-maxwell-476935967/horny-horns-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3beoVCCUI5slphM-JjlKhg-t500x500.png">](https://soundcloud.com/uprisemusicofficial/makla-x-exyt-holla)
 
-**Artist**: PUMPING 
+**Artist**: Uprise Music 
 
-**Track**: HORNY HORNS BOOTLEG???
+**Track**: Makla X EXYT - Holla
 
-Last updated at 11/8/2025, 7:12:32 AM
+Last updated at 11/8/2025, 7:13:37 AM
