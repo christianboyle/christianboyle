@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baQudGfvVQuajjGz-u4YTvw-t500x500.png">](https://soundcloud.com/johnathon-o-regan/44c76b72-b4e1-4f47-b7f0-2531ddeba5a5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLbPuiT9LbI581N8-azXyHQ-t500x500.jpg">](https://soundcloud.com/itsmekilla/naruto-blue-bird-killa-remix)
 
-**Artist**: REEGZ 
+**Artist**: KILLA 
 
-**Track**: Burnin Like Fire
+**Track**: NARUTO ナルト 疾風伝 - Blue Bird (KILLA Bootleg)
 
-Last updated at 11/8/2025, 9:30:51 AM
+Last updated at 11/8/2025, 9:32:01 AM
