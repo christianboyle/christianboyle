@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baQudGfvVQuajjGz-u4YTvw-t500x500.png">](https://soundcloud.com/johnathon-o-regan/44c76b72-b4e1-4f47-b7f0-2531ddeba5a5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USHc6jk5rZElmyNl-64ypOQ-t500x500.jpg">](https://soundcloud.com/danheist/dan-heist-feel-alone-extended)
 
-**Artist**: REEGZ 
+**Artist**: Dan Heist 
 
-**Track**: Burnin Like Fire
+**Track**: Dan Heist - Feel Alone (Extended) FREE DL
 
-Last updated at 11/8/2025, 1:34:19 PM
+Last updated at 11/8/2025, 4:40:59 PM
