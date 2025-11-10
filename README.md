@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-qBdWFGWLLJAQhaZL-yx2m2Q-t500x500.jpg">](https://soundcloud.com/narisxofficial/naris-x-smashup-zombie-of-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvzdqdnIY2kuBzf3-8yaPkw-t500x500.jpg">](https://soundcloud.com/tidyofficial/tidy-hq-mix-powers-paterson?in=tidyofficial/sets/tidy-hq-dj-mixes)
 
-**Artist**: Naris X 
+**Artist**: Tidy Trax 
 
-**Track**: NARIS X SMASHUP - ZOMBIE OF THE NIGHT (Original Version Radio Edit)
+**Track**: Tidy HQ Mix - Powers & Paterson
 
-Last updated at 11/10/2025, 10:12:17 AM
+Last updated at 11/10/2025, 10:15:28 AM
