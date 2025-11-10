@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-USHc6jk5rZElmyNl-64ypOQ-t500x500.jpg">](https://soundcloud.com/danheist/dan-heist-feel-alone-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/flex-shine-for-you)
 
-**Artist**: Dan Heist 
+**Artist**: Revolution-Records UK 
 
-**Track**: Dan Heist - Feel Alone (Extended) FREE DL
+**Track**: FLEX - SHINE FOR YOU
 
-Last updated at 11/10/2025, 6:17:51 AM
+Last updated at 11/10/2025, 8:23:43 AM
