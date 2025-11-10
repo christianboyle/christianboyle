@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s3fLxcdgtYEci3w-jMTkdQ-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-revolution-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-qBdWFGWLLJAQhaZL-yx2m2Q-t500x500.jpg">](https://soundcloud.com/narisxofficial/naris-x-smashup-zombie-of-the)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: Naris X 
 
-**Track**: BOUNCE REVOLUTION 🎆 DJ STE MAJOR 💥2025💥MIX
+**Track**: NARIS X SMASHUP - ZOMBIE OF THE NIGHT (Original Version Radio Edit)
 
-Last updated at 11/10/2025, 10:11:17 AM
+Last updated at 11/10/2025, 10:12:17 AM
