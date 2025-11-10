@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ITUMSjccu2KHztV5-VZ5ezg-t500x500.png">](https://soundcloud.com/s3rl/boy-slut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ebzw2R98Qz8Cc3yS-BhUBhA-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/hevynfire-rosey-place-called)
 
-**Artist**: S3RL, PiNKII 
+**Artist**: Revolution-Records UK 
 
-**Track**: Boy Slut
+**Track**: HEVYNFIRE & ROSEY - PLACE CALLED HEAVEN - OUT NOW
 
-Last updated at 11/10/2025, 2:44:14 PM
+Last updated at 11/10/2025, 2:47:54 PM
