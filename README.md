@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPVRG8cymkpjpjXD-73k8oQ-t500x500.png">](https://soundcloud.com/unchainedlabel/hard-bass-raver)
 
-**Artist**: Virtual Riot, Eliminate, Crumb Pit 
+**Artist**: MOJI, BLVCK CROWZ 
 
-**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
+**Track**: Hard Bass Raver
 
-Last updated at 11/10/2025, 2:38:34 PM
+Last updated at 11/10/2025, 2:41:54 PM
