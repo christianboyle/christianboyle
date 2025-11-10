@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EZ2A9yJrI9jZHLy-vvn1og-t500x500.jpg">](https://soundcloud.com/ryan3138-885309451/sparkybounce-bangers-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC17NtNuszdgqj7z-C8kk7Q-t500x500.jpg">](https://soundcloud.com/beauzworld/look-at-me-now-beauz-hard-techno-remix)
 
-**Artist**: Sparky 
+**Artist**: BEAUZ 
 
-**Track**: Bounce Bangers 4
+**Track**: Look At Me Now (BEAUZ Hard Techno Remix)
 
-Last updated at 11/10/2025, 2:53:40 PM
+Last updated at 11/10/2025, 3:33:44 PM
