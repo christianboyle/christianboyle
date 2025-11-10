@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fvzdqdnIY2kuBzf3-8yaPkw-t500x500.jpg">](https://soundcloud.com/tidyofficial/tidy-hq-mix-powers-paterson?in=tidyofficial/sets/tidy-hq-dj-mixes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PmWDnosiBQNL-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/drive-line?in=tidyofficial/sets/this-is-hard-trance-2024)
 
-**Artist**: Tidy Trax 
+**Artist**: ELV 
 
-**Track**: Tidy HQ Mix - Powers & Paterson
+**Track**: Drive Line
 
-Last updated at 11/10/2025, 10:15:28 AM
+Last updated at 11/10/2025, 10:16:48 AM
