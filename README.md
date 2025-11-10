@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zKm6wUdGaCzJbIn5-HIz55w-t500x500.png">](https://soundcloud.com/the_bounce_brothers/41125-free-download-crazykaos-takeover-of-dnz-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s3fLxcdgtYEci3w-jMTkdQ-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-revolution-2025)
 
-**Artist**: R4Y V (THE BOUNCE BROTHERS) 
+**Artist**: DJ STE MAJOR 
 
-**Track**: 4..11..25 FREE DOWNLOAD CrazyKaos takeover of DNZ Records This is THAT mix 👌
+**Track**: BOUNCE REVOLUTION 🎆 DJ STE MAJOR 💥2025💥MIX
 
-Last updated at 11/10/2025, 10:10:07 AM
+Last updated at 11/10/2025, 10:11:17 AM
