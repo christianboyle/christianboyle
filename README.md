@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ebzw2R98Qz8Cc3yS-BhUBhA-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/hevynfire-rosey-place-called)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000514582680-xpito6-t500x500.jpg">](https://soundcloud.com/rikkigray/in-my-mind-bounce-remix)
 
-**Artist**: Revolution-Records UK 
+**Artist**: Rikki Gray 
 
-**Track**: HEVYNFIRE & ROSEY - PLACE CALLED HEAVEN - OUT NOW
+**Track**: In My Mind (Bounce remix)
 
-Last updated at 11/11/2025, 9:43:15 AM
+Last updated at 11/11/2025, 9:46:45 AM
