@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC17NtNuszdgqj7z-C8kk7Q-t500x500.jpg">](https://soundcloud.com/beauzworld/look-at-me-now-beauz-hard-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPVRG8cymkpjpjXD-73k8oQ-t500x500.png">](https://soundcloud.com/unchainedlabel/hard-bass-raver)
 
-**Artist**: BEAUZ 
+**Artist**: MOJI, BLVCK CROWZ 
 
-**Track**: Look At Me Now (BEAUZ Hard Techno Remix)
+**Track**: Hard Bass Raver
 
-Last updated at 11/10/2025, 3:33:44 PM
+Last updated at 11/11/2025, 6:17:17 AM
