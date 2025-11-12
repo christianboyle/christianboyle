@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zmQjCjVzXbEFQ6ED-opx8Ww-t500x500.jpg">](https://soundcloud.com/on1yone/how-i-like-it-prod-enuar-xyz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okKiFijyOtzHdi9x-dTEzIQ-t500x500.jpg">](https://soundcloud.com/quentinravn/ravn-its-not-hype)
 
-**Artist**: on1y 
+**Artist**: RAVN 
 
-**Track**: how i like it (prod enuar xyz bsterthegawd)
+**Track**: RAVN - IT'S NOT HYPE
 
-Last updated at 11/12/2025, 2:19:35 PM
+Last updated at 11/12/2025, 2:20:36 PM
