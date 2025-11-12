@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lqsc5FfEceP8POfZ-QZIm3g-t500x500.jpg">](https://soundcloud.com/melodicdancemusic/eklipse-ofc-noctua-es-falling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YMhDpjfbf7ozfejD-0MFd8g-t500x500.png">](https://soundcloud.com/gcodeav/eitheror)
 
-**Artist**: Eklipse, Noctua 
+**Artist**: .GCODE 
 
-**Track**: Eklipse (ofc), Noctua (ES) - Falling Back [Eve Label]
+**Track**: Either/Or
 
-Last updated at 11/12/2025, 11:14:06 AM
+Last updated at 11/12/2025, 11:17:46 AM
