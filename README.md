@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GCGceU9DMBn1k1i0-jtlkxw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-pulse-die-with-a-smile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QmR9kFLCYXH1kVJb-JcHC8Q-t500x500.jpg">](https://soundcloud.com/djstoker/ts7-feat-charlotte-plank)
 
-**Artist**: DJ Pulse 
+**Artist**: Dirty Donk DJs 
 
-**Track**: DJ Pulse - Die With A Smile
+**Track**: TS7 Feat. Charlotte Plank – Moment (Dirty Donk DJs Edit)
 
-Last updated at 11/12/2025, 9:27:22 AM
+Last updated at 11/12/2025, 9:28:22 AM
