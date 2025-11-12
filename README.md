@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0sEAiipYoUfYHbDB-ypJ2IQ-t500x500.jpg">](https://soundcloud.com/primaldistortion/room-shaking)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jPE5No4fMDbDRNax-3z2yVQ-t500x500.png">](https://soundcloud.com/eckhaus-music/blessings-free-download)
 
-**Artist**: Primal Distortion 
+**Artist**: Eckhaus 
 
-**Track**: Room Shaking
+**Track**: Blessings
 
-Last updated at 11/12/2025, 2:13:00 PM
+Last updated at 11/12/2025, 2:14:05 PM
