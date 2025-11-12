@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b30rBUIFqjXCLJ6y-kWEFvQ-t500x500.png">](https://soundcloud.com/infrasound84/halfway-home)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lM10aAnSCVLW8Y5P-8ne2Sg-t500x500.png">](https://soundcloud.com/obscuurrecords/premiere-uptones-dance-with-me)
 
-**Artist**: Infrasound 
+**Artist**: OBSCUUR, UPTONES 
 
-**Track**: Halfway Home
+**Track**: Premiere: UPTONES - DANCE WITH ME
 
-Last updated at 11/12/2025, 9:19:21 AM
+Last updated at 11/12/2025, 9:20:21 AM
