@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5l7mZywOqiRj7r4G-buZZlA-t500x500.png">](https://soundcloud.com/justicehardcore/icanhearthedrums)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xWbizIGiyEnhA4VQ-wML8sg-t500x500.png">](https://soundcloud.com/centrecourt/alexis-jordan-happiness-centre-court-edit)
 
-**Artist**: Justice Hardcore 
+**Artist**: Centre Court 
 
-**Track**: NUGGET - I CAN HEAR THE DRUMS (OUT NOW)
+**Track**: Alexis Jordan - Happiness (Centre Court Edit)
 
-Last updated at 11/12/2025, 9:22:37 AM
+Last updated at 11/12/2025, 9:23:36 AM
