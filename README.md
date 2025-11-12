@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xWbizIGiyEnhA4VQ-wML8sg-t500x500.png">](https://soundcloud.com/centrecourt/alexis-jordan-happiness-centre-court-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQmxCggq4OzPBky-LFualA-t500x500.jpg">](https://soundcloud.com/rvstyy/ion-like-that-fuck-you-ho)
 
-**Artist**: Centre Court 
+**Artist**: rvsty (prod. 2ukko) 
 
-**Track**: Alexis Jordan - Happiness (Centre Court Edit)
+**Track**: ion like that (lyrics in desc)
 
-Last updated at 11/12/2025, 2:49:07 PM
+Last updated at 11/12/2025, 2:53:42 PM
