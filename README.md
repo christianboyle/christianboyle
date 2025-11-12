@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5S7ojhZxA9s27xrM-qSehPA-t500x500.jpg">](https://soundcloud.com/adamenoise/pink-get-the-party-started)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RTmwCHz1K8jFvExV-v7CGtg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/disco-lines-tinashe-no-broke)
 
-**Artist**: ADAME 
+**Artist**: DRIFT 
 
-**Track**: Pink - Get The Party Started (ADAME FLIP)
+**Track**: Disco Lines & Tinashe - No Broke Boys (DRIFT REMAKE)
 
-Last updated at 11/11/2025, 8:29:30 PM
+Last updated at 11/12/2025, 5:55:32 AM
