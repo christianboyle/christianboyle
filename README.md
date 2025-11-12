@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xWbizIGiyEnhA4VQ-wML8sg-t500x500.png">](https://soundcloud.com/centrecourt/alexis-jordan-happiness-centre-court-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GCGceU9DMBn1k1i0-jtlkxw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-pulse-die-with-a-smile)
 
-**Artist**: Centre Court 
+**Artist**: DJ Pulse 
 
-**Track**: Alexis Jordan - Happiness (Centre Court Edit)
+**Track**: DJ Pulse - Die With A Smile
 
-Last updated at 11/12/2025, 9:23:36 AM
+Last updated at 11/12/2025, 9:27:22 AM
