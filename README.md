@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okKiFijyOtzHdi9x-dTEzIQ-t500x500.jpg">](https://soundcloud.com/quentinravn/ravn-its-not-hype)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7ScwixgIa1pF8we-trH7ZQ-t500x500.jpg">](https://soundcloud.com/anduj/marie-vaunt-that-acid-anduj)
 
-**Artist**: RAVN 
+**Artist**: ANDUJ 
 
-**Track**: RAVN - IT'S NOT HYPE
+**Track**: Marie vaunt - That acid (ANDUJ Edit)
 
-Last updated at 11/12/2025, 2:20:36 PM
+Last updated at 11/12/2025, 2:33:22 PM
