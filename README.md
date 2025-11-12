@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-AwVDm2K448ysnwcT-lHG7ow-t500x500.jpg">](https://soundcloud.com/the_bounce_brothers/09-01-25-crazykaos-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7ScwixgIa1pF8we-trH7ZQ-t500x500.jpg">](https://soundcloud.com/anduj/marie-vaunt-that-acid-anduj)
 
-**Artist**: The Bounce Brothers 
+**Artist**: ANDUJ 
 
-**Track**: 09.01.25 CrazyKaos  Live
+**Track**: Marie vaunt - That acid (ANDUJ Edit)
 
-Last updated at 11/12/2025, 2:41:47 PM
+Last updated at 11/12/2025, 2:46:01 PM
