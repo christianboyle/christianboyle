@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WaFaEj5TGNKeO4Ky-yPSwmg-t500x500.png">](https://soundcloud.com/exolightmusic/suncatcher-exolight-186929602)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xwx17AnY94q77Uqn-vq5RcQ-t500x500.jpg">](https://soundcloud.com/aharebrain/slapandtickle)
 
-**Artist**: Exolight, Suncatcher 
+**Artist**: Hare Brain 
 
-**Track**: Suncatcher & Exolight - Critical Exposure Radio 199
+**Track**: Slap and Tickle
 
-Last updated at 11/12/2025, 11:08:50 AM
+Last updated at 11/12/2025, 11:10:16 AM
