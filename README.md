@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zsFZEdKT2lPXaHdd-VMS5VQ-t500x500.png">](https://soundcloud.com/mallabelmusic/3-weird-science-feat-too-hort-illexotic-remix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-toI0rCNVEDS3Z8kX-bQ1cww-t500x500.png">](https://soundcloud.com/ponicz/fe3c7239-3c4c-4687-aecb-47d8be9e71cf)
 
-**Artist**: illexotic 
+**Artist**: Ponicz 
 
-**Track**: El Diablo - Weird Science (feat. Too $hort) - illexotic Remix
+**Track**: Ponicz - Skankerz [FREE DOWNLOAD]
 
-Last updated at 11/12/2025, 9:32:22 AM
+Last updated at 11/12/2025, 9:33:23 AM
