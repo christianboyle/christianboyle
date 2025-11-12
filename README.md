@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqT9lhvfMdkf-0-t500x500.jpg">](https://soundcloud.com/tylernance/shovel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHIQltJOHfE7J8ja-pg4Y5Q-t500x500.png">](https://soundcloud.com/audiofreqdj/audiofreq-asmodeus)
 
-**Artist**: Tyler Nance 
+**Artist**: Audiofreq 
 
-**Track**: Shovel
+**Track**: Audiofreq - Asmodeus
 
-Last updated at 11/12/2025, 9:09:41 AM
+Last updated at 11/12/2025, 9:12:21 AM
