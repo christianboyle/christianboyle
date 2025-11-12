@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RTmwCHz1K8jFvExV-v7CGtg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/disco-lines-tinashe-no-broke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QqT9lhvfMdkf-0-t500x500.jpg">](https://soundcloud.com/tylernance/shovel)
 
-**Artist**: DRIFT 
+**Artist**: Tyler Nance 
 
-**Track**: Disco Lines & Tinashe - No Broke Boys (DRIFT REMAKE)
+**Track**: Shovel
 
-Last updated at 11/12/2025, 7:02:42 AM
+Last updated at 11/12/2025, 9:09:41 AM
