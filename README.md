@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQmxCggq4OzPBky-LFualA-t500x500.jpg">](https://soundcloud.com/rvstyy/ion-like-that-fuck-you-ho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RTmwCHz1K8jFvExV-v7CGtg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/disco-lines-tinashe-no-broke)
 
-**Artist**: rvsty (prod. 2ukko) 
+**Artist**: DRIFT 
 
-**Track**: ion like that (lyrics in desc)
+**Track**: Disco Lines & Tinashe - No Broke Boys (DRIFT REMAKE)
 
-Last updated at 11/12/2025, 2:53:42 PM
+Last updated at 11/12/2025, 2:54:57 PM
