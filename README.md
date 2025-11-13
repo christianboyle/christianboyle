@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JxzQj6wQRSJwmqyk-E2Jt5w-t500x500.png">](https://soundcloud.com/djg2g/dj-g2g-nghthyp-i-whip-my-2011-swag?in=nightcore4totalsluts/sets/nightcore4totalsluts-va6-xo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2z87iYXmjyuPgdI-hydRqQ-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/frozen-2?in=nightcore4totalsluts/sets/nightcore4totalsluts-va6-xo)
 
-**Artist**: d̤̮j̤̮ g̤̮2g̤̮ ♪ ͜ ♪, NGHTHYP 
+**Artist**: Stripe N Co vs Dee Jay Say La Vee 
 
-**Track**: i whip my 2011 swag [𝓯𝓻𝓮𝓪𝓴 𝓶𝓸𝓭𝓮]
+**Track**: Frozen
 
-Last updated at 11/13/2025, 11:06:16 AM
+Last updated at 11/13/2025, 11:10:11 AM
