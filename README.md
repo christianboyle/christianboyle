@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZ2PZkhkjA6m-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/theres-nothing-i-wont-do-k14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2z87iYXmjyuPgdI-hydRqQ-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/magiclock-1?in=nightcore4totalsluts/sets/nightcore4totalsluts-va6-xo)
 
-**Artist**: K-Series, Hayley Colleen 
+**Artist**: Texas Baby 
 
-**Track**: There's Nothing I Won't Do (K14)
+**Track**: Magiclock
 
-Last updated at 11/13/2025, 6:13:05 AM
+Last updated at 11/13/2025, 11:02:50 AM
