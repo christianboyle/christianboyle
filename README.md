@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7ScwixgIa1pF8we-trH7ZQ-t500x500.jpg">](https://soundcloud.com/anduj/marie-vaunt-that-acid-anduj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xWbizIGiyEnhA4VQ-wML8sg-t500x500.png">](https://soundcloud.com/centrecourt/alexis-jordan-happiness-centre-court-edit)
 
-**Artist**: ANDUJ 
+**Artist**: Centre Court 
 
-**Track**: Marie vaunt - That acid (ANDUJ Edit)
+**Track**: Alexis Jordan - Happiness (Centre Court Edit)
 
-Last updated at 11/14/2025, 9:58:17 AM
+Last updated at 11/14/2025, 10:01:28 AM
