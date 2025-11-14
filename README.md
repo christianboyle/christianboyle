@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X2z87iYXmjyuPgdI-hydRqQ-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/frozen-2?in=nightcore4totalsluts/sets/nightcore4totalsluts-va6-xo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KBdh750WzvtTDFo2-rsw7FA-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-blackpool-pleasure)
 
-**Artist**: Stripe N Co vs Dee Jay Say La Vee 
+**Artist**: DJ STE MAJOR 
 
-**Track**: Frozen
+**Track**: BOUNCE BLACKPOOL PLEASURE BEACH 💫 2025 💫 DJ STE MAJOR MIX
 
-Last updated at 11/13/2025, 11:10:11 AM
+Last updated at 11/14/2025, 6:02:02 AM
