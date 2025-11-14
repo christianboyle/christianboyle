@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CY6n5WGfmjFzeDI2-3ww8Bw-t500x500.jpg">](https://soundcloud.com/sachsentrance/sachsentrance-podcast-146-vince-alphen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHhDeNhW5Faz3eyV-YFojNA-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-sjt-project-40th-bday)
 
-**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
 
-**Track**: SACHSENTRANCE PODCAST #146 VINCE ALPHEN
+**Track**: Yes ii - SJT  Project 40th bday promo 💥💥
 
-Last updated at 11/14/2025, 8:33:19 AM
+Last updated at 11/14/2025, 8:34:29 AM
