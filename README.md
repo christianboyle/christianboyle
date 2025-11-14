@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EChDpsLYSnUWQLpa-HgaDxQ-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/the-glow-of-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-txIiOqSPX7xk-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/maniac-radio-edit)
 
-**Artist**: SHAUNA HILLS 
+**Artist**: Tindle 
 
-**Track**: The Glow of You.
+**Track**: Maniac (Radio Edit)
 
-Last updated at 11/14/2025, 8:31:13 AM
+Last updated at 11/14/2025, 8:32:13 AM
