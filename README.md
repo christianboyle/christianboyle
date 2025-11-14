@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EktDOF0MKMTvqfhg-pdHJpA-t500x500.jpg">](https://soundcloud.com/shereen-mills-910278790/rebellion-promo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EChDpsLYSnUWQLpa-HgaDxQ-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/the-glow-of-you-1)
 
-**Artist**: SHEREEN MILLS 
+**Artist**: SHAUNA HILLS 
 
-**Track**: REBELLION Promo Mix💙
+**Track**: The Glow of You.
 
-Last updated at 11/14/2025, 8:30:08 AM
+Last updated at 11/14/2025, 8:31:13 AM
