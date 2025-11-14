@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-XWFZlTS9SDlM9aku-hhkeDg-t500x500.jpg">](https://soundcloud.com/fknkieran/hynz-fck-knows-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-akTGS4BmfYIq9Mjg-jBvkLA-t500x500.jpg">](https://soundcloud.com/sopranosbounce/dj-benji-rock-decoy-sopranos-presents-battle-of-the-brands)
 
-**Artist**: HYNZ 
+**Artist**: Sopranos Bounce 
 
-**Track**: HYNZ - Fck Knows (Free Download)
+**Track**: DJ Benji Rock & Decoy - Sopranos Presents 'Battle Of The Brands'
 
-Last updated at 11/14/2025, 8:28:08 AM
+Last updated at 11/14/2025, 8:29:08 AM
