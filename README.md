@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bHhDeNhW5Faz3eyV-YFojNA-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-sjt-project-40th-bday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xxlkzl2bHzDwD2f0-KALEyg-t500x500.png">](https://soundcloud.com/dancingdeadrecords/skill)
 
-**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
+**Artist**: Damn Low, Shade. 
 
-**Track**: Yes ii - SJT  Project 40th bday promo 💥💥
+**Track**: Damn Low x Shade. - Skill
 
-Last updated at 11/14/2025, 8:34:29 AM
+Last updated at 11/14/2025, 8:48:40 AM
