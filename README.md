@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KBdh750WzvtTDFo2-rsw7FA-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-blackpool-pleasure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-XWFZlTS9SDlM9aku-hhkeDg-t500x500.jpg">](https://soundcloud.com/fknkieran/hynz-fck-knows-free-download)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: HYNZ 
 
-**Track**: BOUNCE BLACKPOOL PLEASURE BEACH 💫 2025 💫 DJ STE MAJOR MIX
+**Track**: HYNZ - Fck Knows (Free Download)
 
-Last updated at 11/14/2025, 6:02:02 AM
+Last updated at 11/14/2025, 8:28:08 AM
