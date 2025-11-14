@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-akTGS4BmfYIq9Mjg-jBvkLA-t500x500.jpg">](https://soundcloud.com/sopranosbounce/dj-benji-rock-decoy-sopranos-presents-battle-of-the-brands)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EktDOF0MKMTvqfhg-pdHJpA-t500x500.jpg">](https://soundcloud.com/shereen-mills-910278790/rebellion-promo-mix)
 
-**Artist**: Sopranos Bounce 
+**Artist**: SHEREEN MILLS 
 
-**Track**: DJ Benji Rock & Decoy - Sopranos Presents 'Battle Of The Brands'
+**Track**: REBELLION Promo Mix💙
 
-Last updated at 11/14/2025, 8:29:08 AM
+Last updated at 11/14/2025, 8:30:08 AM
