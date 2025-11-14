@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xxlkzl2bHzDwD2f0-KALEyg-t500x500.png">](https://soundcloud.com/dancingdeadrecords/skill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EMPWC3m9ezseAjyo-BZeM7g-t500x500.png">](https://soundcloud.com/paul-maxwell-476935967/maxi-2-hearts)
 
-**Artist**: Damn Low, Shade. 
+**Artist**: Pumping House 
 
-**Track**: Damn Low x Shade. - Skill
+**Track**: Maxi - 2 Hearts
 
-Last updated at 11/14/2025, 8:48:40 AM
+Last updated at 11/14/2025, 9:07:17 AM
