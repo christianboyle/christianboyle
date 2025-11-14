@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kceZGhI4u97A-0-t500x500.png">](https://soundcloud.com/sadkomusic/like-this-140-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7ScwixgIa1pF8we-trH7ZQ-t500x500.jpg">](https://soundcloud.com/anduj/marie-vaunt-that-acid-anduj)
 
-**Artist**: SVDKO 
+**Artist**: ANDUJ 
 
-**Track**: LIKE THIS (140)
+**Track**: Marie vaunt - That acid (ANDUJ Edit)
 
-Last updated at 11/14/2025, 9:53:52 AM
+Last updated at 11/14/2025, 9:58:17 AM
