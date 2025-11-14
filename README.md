@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EMPWC3m9ezseAjyo-BZeM7g-t500x500.png">](https://soundcloud.com/paul-maxwell-476935967/maxi-2-hearts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FN7ZiDGgCyVOargy-yZR6GA-t500x500.png">](https://soundcloud.com/shopkeepers/ghosts)
 
-**Artist**: Pumping House 
+**Artist**: shopkeeper 
 
-**Track**: Maxi - 2 Hearts
+**Track**: GHOSTS
 
-Last updated at 11/14/2025, 9:07:17 AM
+Last updated at 11/14/2025, 9:20:03 AM
