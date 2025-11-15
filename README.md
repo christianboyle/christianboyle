@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7qbOa9PWA6pBX8i-u4nsbQ-t500x500.jpg">](https://soundcloud.com/tiny-topkat/bitch-itz-a-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hJd2ozoJzCzPGcN0-DK26Wg-t500x500.png">](https://soundcloud.com/intoxikatedevents/intoxikated-with-dj-sy-28-11-6)
 
-**Artist**: TopKat 
+**Artist**: Intoxikated Hard Dance Events 
 
-**Track**: BItcH ITz A MiX
+**Track**: Intoxikated With DJ Sy 28-11-25 Dangerous Dave Promo Mix
 
-Last updated at 11/15/2025, 6:14:26 AM
+Last updated at 11/15/2025, 6:15:31 AM
