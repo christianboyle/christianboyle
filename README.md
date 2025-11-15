@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VafIhIuIPREKX0AX-KGksKQ-t500x500.jpg">](https://soundcloud.com/lucastheflow/dlight-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2z1EcJO5jmdeGFDR-HUqkmg-t500x500.png">](https://soundcloud.com/simonjayofficial/simon-jay-only-you)
 
-**Artist**: Lucas The Flow 
+**Artist**: Simon Jay 
 
-**Track**: D.Light
+**Track**: Simon Jay - Only you
 
-Last updated at 11/15/2025, 10:14:09 AM
+Last updated at 11/15/2025, 10:15:09 AM
