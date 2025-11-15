@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7qbOa9PWA6pBX8i-u4nsbQ-t500x500.jpg">](https://soundcloud.com/tiny-topkat/bitch-itz-a-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmOtsnFybJMBKaeu-rqUWWQ-t500x500.png">](https://soundcloud.com/maakgmakesmusic/jamesjamesjames-fatshaudi-dreams-maakg-flip)
 
-**Artist**: TopKat 
+**Artist**: Maāk.G 
 
-**Track**: BItcH ITz A MiX
+**Track**: jamesjamesjames, Fatshaudi  - dreams (Maāk.G Flip)
 
-Last updated at 11/15/2025, 9:51:07 AM
+Last updated at 11/15/2025, 9:53:52 AM
