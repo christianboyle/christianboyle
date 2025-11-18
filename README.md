@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7uyuqw644k5qvIiw-EPGFwQ-t500x500.png">](https://soundcloud.com/niklz_music/angelic-uplift-04-ren-faye-vocal-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h23BDU6KufbLHDFb-3rEIRw-t500x500.jpg">](https://soundcloud.com/dj-sol-3/bonfires-and-bangers)
 
-**Artist**: NiKLZ, Ren Faye 
+**Artist**: dj-sol 
 
-**Track**: Angelic Uplift 04 | Ren Faye Vocal Showcase
+**Track**: bonfires and bangers
 
-Last updated at 11/18/2025, 8:31:46 AM
+Last updated at 11/18/2025, 8:33:21 AM
