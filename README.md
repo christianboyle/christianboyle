@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7uyuqw644k5qvIiw-EPGFwQ-t500x500.png">](https://soundcloud.com/niklz_music/angelic-uplift-04-ren-faye-vocal-showcase)
 
-**Artist**: bambinodj 
+**Artist**: NiKLZ, Ren Faye 
 
-**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
+**Track**: Angelic Uplift 04 | Ren Faye Vocal Showcase
 
-Last updated at 11/18/2025, 6:09:54 AM
+Last updated at 11/18/2025, 8:31:46 AM
