@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hQTYWCPxer0XGNuL-ztVsyA-t500x500.png">](https://soundcloud.com/luhvmusic/luhv-big-dub-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
 
-**Artist**: Luhv 
+**Artist**: bambinodj 
 
-**Track**: Luhv @ Big Dub 2025 (Tracklist + IDs In Description)
+**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
 
-Last updated at 11/17/2025, 10:20:19 AM
+Last updated at 11/18/2025, 6:09:54 AM
