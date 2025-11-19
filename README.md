@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h9Qfl3HWKeTdC1d6-dn6yTA-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-healing-coming-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mi4A4tNxhOLklUCj-RuM0OA-t500x500.png">](https://soundcloud.com/kindred_ldn/madjestic-kasual-dj-corpmane)
 
-**Artist**: Revolution-Records UK 
+**Artist**: KINDRED 
 
-**Track**: GEE - HEALING - OUT NOW
+**Track**: MADJESTIC KASUAL + DJ CORPMANE + RISH 18.11.25
 
-Last updated at 11/19/2025, 5:58:40 AM
+Last updated at 11/19/2025, 9:09:59 AM
