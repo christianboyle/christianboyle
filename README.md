@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-J89v7LtWWD5X5IaC-3ZyhiA-t500x500.jpg">](https://soundcloud.com/steven-straub-114111305/north-core-project-awakening-steven-straub-remix-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l1UziUWjRYNYXxL9-DAKqbQ-t500x500.png">](https://soundcloud.com/jayxsol/endearing)
 
-**Artist**: Steven Straub (Back Up) 
+**Artist**: Jacob Sollars 
 
-**Track**: North Core Project - Awakening (Steven Straub Remix) WIP
+**Track**: ENDEARING
 
-Last updated at 11/19/2025, 10:19:04 AM
+Last updated at 11/19/2025, 10:20:10 AM
