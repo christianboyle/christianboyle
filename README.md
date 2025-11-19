@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2XyLZb7Ot7mI6yZN-YSFO0g-t500x500.jpg">](https://soundcloud.com/user-125489149/tired-official-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NjByy6YRlWCMl3HL-oD1OjA-t500x500.png">](https://soundcloud.com/saint-baek/where-have-you-been-saint)
 
-**Artist**: 2flydd 
+**Artist**: RIHANNA, SAINT MILLER 
 
-**Track**: Tired (Official Audio)
+**Track**: WHERE HAVE YOU BEEN
 
-Last updated at 11/19/2025, 10:14:44 AM
+Last updated at 11/19/2025, 10:16:39 AM
