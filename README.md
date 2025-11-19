@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xgzYx7K6NVrqaOjZ-9T0WPg-t500x500.png">](https://soundcloud.com/manifestdnb/bitsune-mgo-lya-back-to-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcqdDm2FM21D-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/neverland-bridgey-b-remix)
 
-**Artist**: Bitsune, M'Go, Lya 
+**Artist**: Brett Cooper, Bridgey-B 
 
-**Track**: Bitsune, M'Go, Lya - Back To Life
+**Track**: Neverland (Bridgey B Remix)
 
-Last updated at 11/19/2025, 3:12:54 PM
+Last updated at 11/19/2025, 3:13:54 PM
