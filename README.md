@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-owrOX1G6iubcNfAy-yFwMBw-t500x500.jpg">](https://soundcloud.com/industrialsounds/phoesy-rndr-levitate-extended-mix-deep-dip-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zszuX86rugLz8vVp-mtY82w-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/cracked-foundation)
 
-**Artist**: Phoesy & RNDR 
+**Artist**: Gunnar Nash 
 
-**Track**: PREMIERE: Phoesy & RNDR - Levitate (Extended Mix) [deep dip]
+**Track**: Cracked Foundation
 
-Last updated at 11/19/2025, 10:22:40 AM
+Last updated at 11/19/2025, 10:25:00 AM
