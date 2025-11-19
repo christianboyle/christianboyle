@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qHuwl0OKWBH9-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/universe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zLmBEyNngqRezqbZ-kEWUiw-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-presents-the-bounce-8)
 
-**Artist**: KINN, Brett Cooper 
+**Artist**: Yes ii 🎵🎵 aka Lisa Higham 
 
-**Track**: Universe
+**Track**: Yes ii presents The Bounce Generation volume 76 feat Batchee 👀🤩
 
-Last updated at 11/19/2025, 3:10:09 PM
+Last updated at 11/19/2025, 3:11:19 PM
