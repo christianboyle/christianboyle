@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgotMzTxvECJyNDg-E4B3Rg-t500x500.png">](https://soundcloud.com/drake-liddell/hevynfire-x-drake-liddell)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mRQoIpWqyikDqHuY-8VdFXA-t500x500.jpg">](https://soundcloud.com/41rossco/19-11-25)
 
-**Artist**: Drake Liddell 
+**Artist**: DJ.Rossco 
 
-**Track**: HEVYNFIRE x Drake Liddell - Unbreakable Together PREVIEW
+**Track**: 19.11.25
 
-Last updated at 11/19/2025, 9:44:17 AM
+Last updated at 11/19/2025, 9:45:52 AM
