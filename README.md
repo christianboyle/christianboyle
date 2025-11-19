@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mDmoqV4IyMlpbZPD-iko0tw-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/the-unknown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1yadxXpXSfDr-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/sweetest-rhyme)
 
-**Artist**: CPARK x DROPWIZZ 
+**Artist**: Brett Cooper, Joe Boylan 
 
-**Track**: THE UNKNOWN
+**Track**: Sweetest Rhyme
 
-Last updated at 11/19/2025, 3:06:39 PM
+Last updated at 11/19/2025, 3:07:43 PM
