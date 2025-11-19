@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mIfwnq0BEfFKezE8-zX3qsw-t500x500.png">](https://soundcloud.com/user-720306681/lee-pollitt-fix-me-locked-loaded-remixfree-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgotMzTxvECJyNDg-E4B3Rg-t500x500.png">](https://soundcloud.com/drake-liddell/hevynfire-x-drake-liddell)
 
-**Artist**: Lee Pollitt 
+**Artist**: Drake Liddell 
 
-**Track**: Lee Pollitt - Fix Me (Locked & Loaded remix)(FREE DOWNLOAD)
+**Track**: HEVYNFIRE x Drake Liddell - Unbreakable Together PREVIEW
 
-Last updated at 11/19/2025, 9:41:51 AM
+Last updated at 11/19/2025, 9:44:17 AM
