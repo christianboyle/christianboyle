@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xcqdDm2FM21D-0-t500x500.jpg">](https://soundcloud.com/the-world-of-obsession/neverland-bridgey-b-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b5TOT2c7dmQdRSv8-WV1iKw-t500x500.png">](https://soundcloud.com/swufm/josi-devil-b2b-tsvi-11-november-2025)
 
-**Artist**: Brett Cooper, Bridgey-B 
+**Artist**: SWU FM 
 
-**Track**: Neverland (Bridgey B Remix)
+**Track**: Josi Devil B2B TSVI - 11 November 2025
 
-Last updated at 11/19/2025, 3:13:54 PM
+Last updated at 11/19/2025, 4:28:03 PM
