@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LCaDrYMeibDwqyP8-sx2L3w-t500x500.png">](https://soundcloud.com/cryontix/cryo-like-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwZJnBWnzCYKm71d-EiBjoA-t500x500.jpg">](https://soundcloud.com/mddltnmusic/lp-rhythm-versatile-mddltn-1)
 
-**Artist**: CRYO 
+**Artist**: MDDLTN. 
 
-**Track**: CRYO - LIKE THAT
+**Track**: LP Rhythm - Versatile (MDDLTN & Liam Wilson Bootleg)
 
-Last updated at 11/20/2025, 6:26:31 AM
+Last updated at 11/20/2025, 6:27:36 AM
