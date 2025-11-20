@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PwZJnBWnzCYKm71d-EiBjoA-t500x500.jpg">](https://soundcloud.com/mddltnmusic/lp-rhythm-versatile-mddltn-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QnYyf3AFUEdPx2vL-3Crk4g-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/toza-epik-knockout-acid-reign)
 
-**Artist**: MDDLTN. 
+**Artist**: TOZA 
 
-**Track**: LP Rhythm - Versatile (MDDLTN & Liam Wilson Bootleg)
+**Track**: TOZA - EPIK KNOCKOUT (Acid Reign)
 
-Last updated at 11/20/2025, 6:27:36 AM
+Last updated at 11/20/2025, 6:33:22 AM
