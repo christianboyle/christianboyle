@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypwPPkqwvQOQ4YRu-zSdIJw-t500x500.jpg">](https://soundcloud.com/platform/panteros666-lyon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUrRj2koazqj17lz-MbTHkA-t500x500.png">](https://soundcloud.com/crumbpitmusic/dont-hit-my-line?in=crumbpitmusic/sets/crumbcore)
 
-**Artist**: Boiler Room 
+**Artist**: Crumb Pit 
 
-**Track**: Panteros666 | Boiler Room: Lyon
+**Track**: Don't Hit My Line
 
-Last updated at 11/21/2025, 10:33:07 AM
+Last updated at 11/21/2025, 1:39:53 PM
