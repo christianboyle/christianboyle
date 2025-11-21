@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dDNhs99KnfumQbqs-afAzGw-t500x500.png">](https://soundcloud.com/psychocybinrec/horus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypwPPkqwvQOQ4YRu-zSdIJw-t500x500.jpg">](https://soundcloud.com/platform/panteros666-lyon)
 
-**Artist**: Psyoptic 
+**Artist**: Boiler Room 
 
-**Track**: Psyoptic - Horus
+**Track**: Panteros666 | Boiler Room: Lyon
 
-Last updated at 11/20/2025, 8:39:28 AM
+Last updated at 11/21/2025, 6:24:05 AM
