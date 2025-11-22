@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkWHVsVXdfhSBmy6-RJlTAw-t500x500.png">](https://soundcloud.com/thefinesttechno/temp-free-dl-blocked-receptors-give-ya-some-b2l002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/joz-b-ampm?in=revolution-records-uk/sets/coming-soon-989297108)
 
-**Artist**: BLOCKED RECEPTORS 
+**Artist**: Revolution-Records UK 
 
-**Track**: TEMP FREE DL | BLOCKED RECEPTORS - GIVE YA SOME [B2L002]
+**Track**: JOZ B - AMPM
 
-Last updated at 11/22/2025, 9:50:56 AM
+Last updated at 11/22/2025, 9:56:22 AM
