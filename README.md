@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypwPPkqwvQOQ4YRu-zSdIJw-t500x500.jpg">](https://soundcloud.com/platform/panteros666-lyon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3uTo2U6LBfzvMje8-gn4czA-t500x500.png">](https://soundcloud.com/slowboyyy/destruction)
 
-**Artist**: Boiler Room 
+**Artist**: Slowboy, Dabow, Lenny 
 
-**Track**: Panteros666 | Boiler Room: Lyon
+**Track**: Slowboy, Dabow, Lenny - DESTRUCTION
 
-Last updated at 11/22/2025, 8:18:27 AM
+Last updated at 11/22/2025, 8:19:57 AM
