@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/joz-b-ampm?in=revolution-records-uk/sets/coming-soon-989297108)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hY8IA2vr7FLYulHl-zr9tfQ-t500x500.png">](https://soundcloud.com/tokyo-heals/porter-robinson-language-x-gammer-darren-styles-youi-dossyx-bootleg-14)
 
-**Artist**: Revolution-Records UK 
+**Artist**: dossyx 
 
-**Track**: JOZ B - AMPM
+**Track**: Porter Robinson - Language x Gammer , Darren Styles - You&I (dossyx Bootleg)
 
-Last updated at 11/22/2025, 9:56:22 AM
+Last updated at 11/22/2025, 9:57:22 AM
