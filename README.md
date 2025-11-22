@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ipLaDiH1nuhInRJy-paqxTw-t500x500.png">](https://soundcloud.com/kojiaikendnb/run-this-town-koji-aiken-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySxN7cUd0AVuiH2f-Skgcyw-t500x500.png">](https://soundcloud.com/cozykevvv/cozy-kev-no-love)
 
-**Artist**: Koji Aiken 
+**Artist**: cozy kev 
 
-**Track**: Rihanna, Jay-Z, Kanye West - Run This Town (Koji Aiken Bootleg)
+**Track**: cozy kev - NO LOVE
 
-Last updated at 11/22/2025, 10:00:32 AM
+Last updated at 11/22/2025, 10:01:33 AM
