@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-seoHTk1qr60S-0-t500x500.jpg">](https://soundcloud.com/phrva/wanna-go-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFNuUxvXD9cEdRY8-SGdTHQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-552117839)
 
-**Artist**: Phrva 
+**Artist**: Doaky & Dj Jas L 
 
-**Track**: Wanna Go
+**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 33(Tracklist In Description)
 
-Last updated at 11/22/2025, 8:23:37 AM
+Last updated at 11/22/2025, 8:25:07 AM
