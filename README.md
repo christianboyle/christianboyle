@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ySxN7cUd0AVuiH2f-Skgcyw-t500x500.png">](https://soundcloud.com/cozykevvv/cozy-kev-no-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OaLx8HDTWmM0clph-NmXKTg-t500x500.png">](https://soundcloud.com/viledeep/nov192025-day-1)
 
-**Artist**: cozy kev 
+**Artist**: vile deep 
 
-**Track**: cozy kev - NO LOVE
+**Track**: day 1
 
-Last updated at 11/22/2025, 10:01:33 AM
+Last updated at 11/22/2025, 10:02:48 AM
