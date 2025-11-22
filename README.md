@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3uTo2U6LBfzvMje8-gn4czA-t500x500.png">](https://soundcloud.com/slowboyyy/destruction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-deAZVlXHxNyJqhPj-ZiTzPw-t500x500.jpg">](https://soundcloud.com/ariaveil/cant-show)
 
-**Artist**: Slowboy, Dabow, Lenny 
+**Artist**: ARIA VEIL 
 
-**Track**: Slowboy, Dabow, Lenny - DESTRUCTION
+**Track**: CAN'T SHOW
 
-Last updated at 11/22/2025, 8:19:57 AM
+Last updated at 11/22/2025, 8:21:37 AM
