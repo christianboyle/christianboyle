@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFNuUxvXD9cEdRY8-SGdTHQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-552117839)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVzZkwGZAKqPZ9Hy-mbckeA-t500x500.png">](https://soundcloud.com/majesmusic/majes-kx-chr-fake-doctor-2)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: FAKE DOCTOR 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 33(Tracklist In Description)
+**Track**: Majes, KX CHR - FAKE DOCTOR (FREE DL)
 
-Last updated at 11/22/2025, 8:25:07 AM
+Last updated at 11/22/2025, 8:32:08 AM
