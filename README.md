@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IPHnySPEhuQ1yl6i-1CZVyw-t500x500.jpg">](https://soundcloud.com/damianj1234/sjt-project-wildfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkWHVsVXdfhSBmy6-RJlTAw-t500x500.png">](https://soundcloud.com/thefinesttechno/temp-free-dl-blocked-receptors-give-ya-some-b2l002)
 
-**Artist**: SJT PROJECT 
+**Artist**: BLOCKED RECEPTORS 
 
-**Track**: SJT PROJECT - WILDFIRE - ( BOUNCE REMIX ) SIDE A - FREE DOWNLOAD
+**Track**: TEMP FREE DL | BLOCKED RECEPTORS - GIVE YA SOME [B2L002]
 
-Last updated at 11/22/2025, 9:46:56 AM
+Last updated at 11/22/2025, 9:50:56 AM
