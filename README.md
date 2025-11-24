@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFAzmyyvz9h0s9kS-ZZ4EZA-t500x500.jpg">](https://soundcloud.com/crime-music/alice-deejay-better-off-alone-crime-hard-rave-remixfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K0A8rzhQIObOz5Iu-nqoBmw-t500x500.jpg">](https://soundcloud.com/41rossco/12-11-25)
 
-**Artist**: CRIME 
+**Artist**: DJ.Rossco 
 
-**Track**: Alice Deejay - Better Off Alone (CRIME Hard Rave Remix)FREE DL
+**Track**: 12.11.25
 
-Last updated at 11/24/2025, 7:05:43 AM
+Last updated at 11/24/2025, 3:54:03 PM
