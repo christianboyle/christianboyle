@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K0A8rzhQIObOz5Iu-nqoBmw-t500x500.jpg">](https://soundcloud.com/41rossco/12-11-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4t6zavCQNNZBV3mc-HJLH8A-t500x500.png">](https://soundcloud.com/bo0tyleak/tabuao)
 
-**Artist**: DJ.Rossco 
+**Artist**: BOOTY LEAK, Obviousgod, CØV3R1st, GodDamn 
 
-**Track**: 12.11.25
+**Track**: Booty Leak + Obviousgod & CØV3R1st + GodDamn - TABUAO [ FREE DOWNLOAD ]
 
-Last updated at 11/25/2025, 9:21:10 AM
+Last updated at 11/25/2025, 9:22:10 AM
