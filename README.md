@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JtP3gUBycK4S2E9Z-Jdperg-t500x500.png">](https://soundcloud.com/cookseyyukbounce/cookseyy-my-hump-hardbass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dEtW0IefykgiQ4Da-bg1JJA-t500x500.jpg">](https://soundcloud.com/n-smith1/5da489d4-704a-457c-be00-5b4a3f6047a3)
 
-**Artist**: CookseyyUK 
+**Artist**: CeeJay Daryl      
 
-**Track**: Cookseyy - My Hump (HARDBASS)
+**Track**: Edge EDM
 
-Last updated at 11/25/2025, 9:23:25 AM
+Last updated at 11/25/2025, 9:24:25 AM
