@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4t6zavCQNNZBV3mc-HJLH8A-t500x500.png">](https://soundcloud.com/bo0tyleak/tabuao)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JtP3gUBycK4S2E9Z-Jdperg-t500x500.png">](https://soundcloud.com/cookseyyukbounce/cookseyy-my-hump-hardbass)
 
-**Artist**: BOOTY LEAK, Obviousgod, CØV3R1st, GodDamn 
+**Artist**: CookseyyUK 
 
-**Track**: Booty Leak + Obviousgod & CØV3R1st + GodDamn - TABUAO [ FREE DOWNLOAD ]
+**Track**: Cookseyy - My Hump (HARDBASS)
 
-Last updated at 11/25/2025, 9:22:10 AM
+Last updated at 11/25/2025, 9:23:25 AM
