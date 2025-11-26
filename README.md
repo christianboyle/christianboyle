@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eCL8bvFiBumX6yay-4ynz3A-t500x500.jpg">](https://soundcloud.com/brandnewbaretta/up-with-the-birdz-prod-cranes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EivdHw4sOhR48pYO-6XLy9Q-t500x500.jpg">](https://soundcloud.com/old-pcdj-tunes/dunne-break-the-spell-fur)
 
-**Artist**: MOH BARETTA 
+**Artist**: OLD PCDJ TUNES 
 
-**Track**: UP WITH THE BIRDZ PROD CRANES REK & REMGHOST
+**Track**: Dunne - Break The Spell [Fur Barry Boyle]
 
-Last updated at 11/26/2025, 11:53:22 AM
+Last updated at 11/26/2025, 11:54:22 AM
