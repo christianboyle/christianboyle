@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I1rdqfanmRMKea7h-wa0pXA-t500x500.png">](https://soundcloud.com/johny-svk-927167216/cold-room-sessions-274)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRJhq7cZDx9wGKOY-jQfJrg-t500x500.jpg">](https://soundcloud.com/belavie/strobe1)
 
-**Artist**: Cold Junction 
+**Artist**: Bélavie 
 
-**Track**: Cold Room Sessions 274
+**Track**: Bélavie - Strobe
 
-Last updated at 11/26/2025, 11:50:06 AM
+Last updated at 11/26/2025, 11:51:06 AM
