@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DgyQS7onq6jfhj96-PbOSbg-t500x500.jpg">](https://soundcloud.com/stephane-boyer-421908434/on-a-rate-le-dernier-train)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5x0VVUbvNyjcR4A4-Rf1LOw-t500x500.jpg">](https://soundcloud.com/darn84/sy-unknown-love-for-95-1)
 
-**Artist**: Stephan B 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: On a raté le dernier train
+**Track**: Sy & Unknown - Love For '95 - Triffik Toons (1995)
 
-Last updated at 11/26/2025, 9:34:04 AM
+Last updated at 11/26/2025, 9:36:29 AM
