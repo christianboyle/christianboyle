@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000033521627-z3ta9q-t500x500.jpg">](https://soundcloud.com/mikeyb_mixes/wigan-piers-21st-birthday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I1rdqfanmRMKea7h-wa0pXA-t500x500.png">](https://soundcloud.com/johny-svk-927167216/cold-room-sessions-274)
 
-**Artist**: Dj Mikey_B 
+**Artist**: Cold Junction 
 
-**Track**: Wigan Pier's 21st Birthday - Mikey B
+**Track**: Cold Room Sessions 274
 
-Last updated at 11/26/2025, 9:42:40 AM
+Last updated at 11/26/2025, 10:50:32 AM
