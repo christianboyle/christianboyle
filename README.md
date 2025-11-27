@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-u5vVzA8JKjkagdUF-BWspgQ-t500x500.jpg">](https://soundcloud.com/old-pcdj-tunes/dunne-english-comp-tune-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mRQoIpWqyikDqHuY-8VdFXA-t500x500.jpg">](https://soundcloud.com/41rossco/19-11-25)
 
-**Artist**: OLD PCDJ TUNES 
+**Artist**: DJ.Rossco 
 
-**Track**: Dunne - English Comp Tune 1
+**Track**: 19.11.25
 
-Last updated at 11/26/2025, 11:55:22 AM
+Last updated at 11/27/2025, 7:06:58 AM
