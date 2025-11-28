@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl27v1UI9t2pHPPw-pS5unQ-t500x500.png">](https://soundcloud.com/cheekytracks/unspoken)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pG0dbuSbsSI81ovJ-iUGXDA-t500x500.jpg">](https://soundcloud.com/djpulsepodcast/dj-pulse-freefalling-dhr)
 
-**Artist**: Marc B & Jayme D 
+**Artist**: Dj Pulse 
 
-**Track**: Marc B & Jayme D - Unspoken
+**Track**: DJ Pulse FreeFalling (DHR)
 
-Last updated at 11/28/2025, 10:13:27 AM
+Last updated at 11/28/2025, 1:12:33 PM
