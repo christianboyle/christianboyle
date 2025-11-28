@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyIidVUoIMWnnEPA-KNd1cg-t500x500.jpg">](https://soundcloud.com/bounceheavenofficial/bh46)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xIf2q7v0cVUk6kBA-iyXCcQ-t500x500.jpg">](https://soundcloud.com/adbcrecords/luhv-x-kurei-waiting-4)
 
-**Artist**: BOUNCE HEAVEN with Andy Whitby 
+**Artist**: ADBC Records 
 
-**Track**: Bounce Heaven 46 mixed by Andy Whitby x Kie Hughes x Blend
+**Track**: Luhv x Kurei - WAITING
 
-Last updated at 11/28/2025, 10:09:46 AM
+Last updated at 11/28/2025, 10:10:51 AM
