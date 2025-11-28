@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s3fLxcdgtYEci3w-jMTkdQ-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-revolution-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DxSmtEKHRJaGS55M-qbawGQ-t500x500.jpg">](https://soundcloud.com/beansclub/likeyoudo)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: beansclub 
 
-**Track**: BOUNCE REVOLUTION 🎆 DJ STE MAJOR 💥2025💥MIX
+**Track**: like you do
 
-Last updated at 11/28/2025, 10:06:27 AM
+Last updated at 11/28/2025, 10:07:27 AM
