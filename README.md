@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LzScASDO3u5xykl-wcaIog-t500x500.jpg">](https://soundcloud.com/twisted-chris/sylver-turn-the-tide-twisted-chris-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gXDSfWfXM6LMMC77-X0FPyw-t500x500.jpg">](https://soundcloud.com/fionn-curran-1/ul60)
 
-**Artist**: Twisted Chris 
+**Artist**: Fionn Curran 
 
-**Track**: Sylver -Turn The Tide ( Twisted Chris Rework )
+**Track**: Fionn Curran - I Feel Alive
 
-Last updated at 11/28/2025, 4:25:49 PM
+Last updated at 11/28/2025, 4:32:45 PM
