@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pG0dbuSbsSI81ovJ-iUGXDA-t500x500.jpg">](https://soundcloud.com/djpulsepodcast/dj-pulse-freefalling-dhr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LzScASDO3u5xykl-wcaIog-t500x500.jpg">](https://soundcloud.com/twisted-chris/sylver-turn-the-tide-twisted-chris-rework)
 
-**Artist**: Dj Pulse 
+**Artist**: Twisted Chris 
 
-**Track**: DJ Pulse FreeFalling (DHR)
+**Track**: Sylver -Turn The Tide ( Twisted Chris Rework )
 
-Last updated at 11/28/2025, 1:12:33 PM
+Last updated at 11/28/2025, 4:25:49 PM
