@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gXDSfWfXM6LMMC77-X0FPyw-t500x500.jpg">](https://soundcloud.com/fionn-curran-1/ul60)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FitBdTwxt41XZAVX-emGfyw-t500x500.png">](https://soundcloud.com/dj_dazzy_b/bounce-mix-126-uk-bounce-donk-mix-ukbounce-donk-bounce-dance-vocal-djgbx-fyp)
 
-**Artist**: Fionn Curran 
+**Artist**: DAZZY B 
 
-**Track**: Fionn Curran - I Feel Alive
+**Track**: BOUNCE MIX 126 - Uk Bounce / Donk Mix #ukbounce #donk #bounce #dance #vocal #dj#gbx #fyp
 
-Last updated at 11/28/2025, 4:32:45 PM
+Last updated at 11/28/2025, 4:36:10 PM
