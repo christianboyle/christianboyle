@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d9l8LU86yAIbqGTx-40MLmg-t500x500.png">](https://soundcloud.com/dvdmtl/gabriela-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2s3fLxcdgtYEci3w-jMTkdQ-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-revolution-2025)
 
-**Artist**: D V D 
+**Artist**: DJ STE MAJOR 
 
-**Track**: GABRIELA (EDIT)
+**Track**: BOUNCE REVOLUTION 🎆 DJ STE MAJOR 💥2025💥MIX
 
-Last updated at 11/27/2025, 8:27:36 AM
+Last updated at 11/28/2025, 6:20:01 AM
