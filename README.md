@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXzhLnTTwvt6AaDO-8M91PQ-t500x500.png">](https://soundcloud.com/dnzrecords/fadeaway-starry-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dl27v1UI9t2pHPPw-pS5unQ-t500x500.png">](https://soundcloud.com/cheekytracks/unspoken)
 
-**Artist**: Fadeaway 
+**Artist**: Marc B & Jayme D 
 
-**Track**: Fadeaway - Starry Night
+**Track**: Marc B & Jayme D - Unspoken
 
-Last updated at 11/28/2025, 10:11:51 AM
+Last updated at 11/28/2025, 10:13:27 AM
