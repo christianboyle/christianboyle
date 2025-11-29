@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8LEWxe0c26ZyJEcY-aAPuJA-t500x500.png">](https://soundcloud.com/djkenty/this-is-bounce-uk-x-kenty-dance-all-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3DQVKPczBzulaPHy-8ZGaxw-t500x500.jpg">](https://soundcloud.com/stratisbambam/clubby-vibez-v11)
 
-**Artist**: DJ Kenty 
+**Artist**: INF3RNUS 
 
-**Track**: This Is Bounce UK x Kenty  - Dance All Night
+**Track**: Clubby Vibez v11
 
-Last updated at 11/29/2025, 9:05:35 AM
+Last updated at 11/29/2025, 9:06:42 AM
