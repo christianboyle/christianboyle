@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3GTyuO8Cd2YyLs99-A6DNDA-t500x500.jpg">](https://soundcloud.com/sopranosbounce/dj-scott-simms-cal-red-sopranos-presents-battle-of-the-brands)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MI7yyCdBxmNJHm7V-ZpmKhA-t500x500.png">](https://soundcloud.com/zentryc/free-dl-wtf-blurredmovement-x-jazzy-x-jowi)
 
-**Artist**: Sopranos Bounce  
+**Artist**: Zentryc 
 
-**Track**: DJ Scott Simms & Cal Red - Sopranos Presents 'Battle Of The Brands'
+**Track**: [FREE DL] WTF - BLURRED x JAZZY x JOWI
 
-Last updated at 11/28/2025, 5:06:02 PM
+Last updated at 11/29/2025, 7:27:32 AM
