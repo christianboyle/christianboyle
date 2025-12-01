@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FU9MaAgk2dn4ZEMe-7FtMzA-t500x500.png">](https://soundcloud.com/lowpolysound/wargreymon-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WEK68LL7AnVydrab-PhIjyw-t500x500.jpg">](https://soundcloud.com/millirecs/knallplatten-sunrise)
 
-**Artist**: Low Poly 
+**Artist**: Knallplatten 
 
-**Track**: Wargreymon Dub
+**Track**: Knallplatten - Sunrise [FREE DL]
 
-Last updated at 12/1/2025, 9:20:14 AM
+Last updated at 12/1/2025, 11:17:27 AM
