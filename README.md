@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWEvoU6UECU5M3h4-rcyGmQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-695666934)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: bambinodj 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 31(Tracklist In Description)
+**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
 
-Last updated at 12/1/2025, 12:50:43 PM
+Last updated at 12/1/2025, 1:15:00 PM
