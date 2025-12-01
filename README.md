@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8LEWxe0c26ZyJEcY-aAPuJA-t500x500.png">](https://soundcloud.com/djkenty/this-is-bounce-uk-x-kenty-dance-all-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWEvoU6UECU5M3h4-rcyGmQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-695666934)
 
-**Artist**: DJ Kenty 
+**Artist**: Doaky & Dj Jas L 
 
-**Track**: This Is Bounce UK x Kenty  - Dance All Night
+**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 31(Tracklist In Description)
 
-Last updated at 12/1/2025, 6:09:30 AM
+Last updated at 12/1/2025, 9:01:52 AM
