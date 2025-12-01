@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LY0llL3ocLx1WY6-tyY6zQ-t500x500.jpg">](https://soundcloud.com/itslucha/bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVzTSBLBnxmofNra-VYZiKg-t500x500.png">](https://soundcloud.com/sidepiece/cry-for-you-2025-sidepiece-extended-mix-out-926)
 
-**Artist**: Lucha 
+**Artist**: SIDEPIECE 
 
-**Track**: BOUNCE
+**Track**: CRY FOR YOU (2025) - SIDEPIECE (Extended Mix) - OUT NOW!
 
-Last updated at 12/1/2025, 9:12:28 AM
+Last updated at 12/1/2025, 9:16:03 AM
