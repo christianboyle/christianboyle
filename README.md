@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWEvoU6UECU5M3h4-rcyGmQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-695666934)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WJktc0DPlqu6DCo5-4AvJRg-t500x500.jpg">](https://soundcloud.com/user-576583325/nicky-romero-nervo-like-home)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: Spac3oy 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 31(Tracklist In Description)
+**Track**: Nicky Romero & NERVO - Like home (Spac3oy remix)
 
-Last updated at 12/1/2025, 9:01:52 AM
+Last updated at 12/1/2025, 9:03:07 AM
