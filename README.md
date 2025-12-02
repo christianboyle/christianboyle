@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VafIhIuIPREKX0AX-KGksKQ-t500x500.jpg">](https://soundcloud.com/lucastheflow/neo-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7RR5VNIEAsPowI12-kjJ2rw-t500x500.png">](https://soundcloud.com/eyelander_music/eyelander-free)
 
-**Artist**: Lucas The Flow 
+**Artist**: EYELANDER 
 
-**Track**: Neo
+**Track**: Eyelander - FREE.
 
-Last updated at 12/2/2025, 9:52:58 AM
+Last updated at 12/2/2025, 9:55:58 AM
