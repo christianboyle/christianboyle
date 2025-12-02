@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyvLgEeU1oWwyRvy-IkJ6Lg-t500x500.png">](https://soundcloud.com/hyperionbass/little-simz-rollin-stone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VafIhIuIPREKX0AX-KGksKQ-t500x500.jpg">](https://soundcloud.com/lucastheflow/neo-8)
 
-**Artist**: Hyperion 
+**Artist**: Lucas The Flow 
 
-**Track**: Little Simz - Rollin' Stone (Hyperion Flip)
+**Track**: Neo
 
-Last updated at 12/2/2025, 9:50:23 AM
+Last updated at 12/2/2025, 9:52:58 AM
