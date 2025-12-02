@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aPHQNYHPQslBk9Nh-SKKkaA-t500x500.jpg">](https://soundcloud.com/uberjakd/9pm-uberjakd-remix-atb)
 
-**Artist**: bambinodj 
+**Artist**: Uberjak'd 
 
-**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
+**Track**: 9PM [Uberjakd Remix] - ATB
 
-Last updated at 12/2/2025, 6:15:11 AM
+Last updated at 12/2/2025, 9:14:34 AM
