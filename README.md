@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C02YQT5Xe3cT3IWC-zKSPhg-t500x500.png">](https://soundcloud.com/dnzrecords/craigy-b-time-after-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PDN7wmzpKyWkHGAY-BDIrmQ-t500x500.png">](https://soundcloud.com/djtrixyofficial/nathan-dawe-abi-flynn-hereinyourarms-trixyremix)
 
-**Artist**: Craigy B! 
+**Artist**: TRIXY 
 
-**Track**: Craigy B! - Time After Time
+**Track**: Nathan Dawe X Abi Flynn - Here In Your Arms (Trixy Remix)
 
-Last updated at 12/2/2025, 2:33:27 PM
+Last updated at 12/2/2025, 2:36:37 PM
