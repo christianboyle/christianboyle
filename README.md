@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cTW6pcZznNKcdIJq-KT9C6w-t500x500.png">](https://soundcloud.com/cmabounce/donk-play-nice-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDbGMosUxT0ZMQh2-vspzJw-t500x500.png">](https://soundcloud.com/spfinfini/d-v-d-nabii-the-sky)
 
-**Artist**: CMA 
+**Artist**: D V D, nabii, SPF INFINI 
 
-**Track**: Donk Play Nice (Sample)
+**Track**: D V D & nabii - The Sky
 
-Last updated at 12/2/2025, 2:14:30 PM
+Last updated at 12/2/2025, 2:17:55 PM
