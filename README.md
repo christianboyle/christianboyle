@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7RR5VNIEAsPowI12-kjJ2rw-t500x500.png">](https://soundcloud.com/eyelander_music/eyelander-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6eJoRpsKjOG6LxN-cofeyg-t500x500.jpg">](https://soundcloud.com/lobsta-b/lobsta-b-mashup-pack)
 
-**Artist**: EYELANDER 
+**Artist**: LOBSTA B 
 
-**Track**: Eyelander - FREE.
+**Track**: LOBSTA B MASHUP PACK
 
-Last updated at 12/2/2025, 9:55:58 AM
+Last updated at 12/2/2025, 9:58:23 AM
