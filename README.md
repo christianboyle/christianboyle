@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDbGMosUxT0ZMQh2-vspzJw-t500x500.png">](https://soundcloud.com/spfinfini/d-v-d-nabii-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3uKdVEz1qHgHFBi-DVeA2Q-t500x500.png">](https://soundcloud.com/dvdmtl/2-life-extended-mix)
 
-**Artist**: D V D, nabii, SPF INFINI 
+**Artist**: D V D, nabii 
 
-**Track**: D V D & nabii - The Sky
+**Track**: 2 Life (Extended Mix)
 
-Last updated at 12/2/2025, 2:17:55 PM
+Last updated at 12/2/2025, 2:21:40 PM
