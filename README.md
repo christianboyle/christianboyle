@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4VLhlkcaEy6A71pq-JI72Fw-t500x500.jpg">](https://soundcloud.com/jay-woody/bits-n-bobs-vol-10-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wNwziIU9MBfBDxM1-s8hPyg-t500x500.png">](https://soundcloud.com/paul-gannon-2nd-account/paul-gannon-hero-radio-edit)
 
-**Artist**: 🅹🅰🆈 🆆🅾🅾🅳🆈 
+**Artist**: Paul Gannon 
 
-**Track**: Get Ready To Bounce - Bits N Bobs Vol 10
+**Track**: Paul Gannon - Hero
 
-Last updated at 12/3/2025, 8:23:10 AM
+Last updated at 12/3/2025, 8:24:20 AM
