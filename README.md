@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrlX9bETd6qUFz5P-YAj11A-t500x500.jpg">](https://soundcloud.com/re1ntergr8/re1ntergr8-shining-star-sneak-peak-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4VLhlkcaEy6A71pq-JI72Fw-t500x500.jpg">](https://soundcloud.com/jay-woody/bits-n-bobs-vol-10-master)
 
-**Artist**: Re1ntergr8 / RBM Project 
+**Artist**: 🅹🅰🆈 🆆🅾🅾🅳🆈 
 
-**Track**: Re1ntergr8 - Shining Star (Master) out now on bounce heaven
+**Track**: Get Ready To Bounce - Bits N Bobs Vol 10
 
-Last updated at 12/3/2025, 8:22:10 AM
+Last updated at 12/3/2025, 8:23:10 AM
