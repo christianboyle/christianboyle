@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pBAA4xQ6yN6oqLni-yj6cGw-t500x500.jpg">](https://soundcloud.com/peggyviennetta/daicon-lost-dub?in=saxurn/sets/shady)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix?in=saxurn/sets/topo-tweako)
 
-**Artist**: Peggy Viennetta 
+**Artist**: Initi8 
 
-**Track**: DAICON (Lost Dub)
+**Track**: Depressed - (Initi8 Remix)
 
-Last updated at 12/3/2025, 10:40:18 AM
+Last updated at 12/3/2025, 10:43:23 AM
