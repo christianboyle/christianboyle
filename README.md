@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-okKiFijyOtzHdi9x-dTEzIQ-t500x500.jpg">](https://soundcloud.com/quentinravn/ravn-its-not-hype?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PJf6GdPDQtpOywrH-GjjJqw-t500x500.png">](https://soundcloud.com/maakgmakesmusic/goldfinger-99-red-balloons-maakg-cinematic-dnb-mix?in=saxurn/sets/overflow)
 
-**Artist**: RAVN 
+**Artist**: Maāk.G 
 
-**Track**: RAVN - IT'S NOT HYPE
+**Track**: Goldfinger - 99 Red Balloons (Maāk.G Cinematic DnB Mix)
 
-Last updated at 12/3/2025, 11:11:11 AM
+Last updated at 12/3/2025, 2:13:56 PM
