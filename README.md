@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAQuZiAIajYDfqkw-lMc6UQ-t500x500.png">](https://soundcloud.com/ag-audio/daydream-in-blue-ft-spark-master-tape-ag-reboot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrlX9bETd6qUFz5P-YAj11A-t500x500.jpg">](https://soundcloud.com/re1ntergr8/re1ntergr8-shining-star-sneak-peak-wip)
 
-**Artist**: AG 
+**Artist**: Re1ntergr8 / RBM Project 
 
-**Track**: Daydream in Blue Ft. Spark Master Tape (AG Reboot)
+**Track**: Re1ntergr8 - Shining Star (Master) out now on bounce heaven
 
-Last updated at 12/3/2025, 8:20:20 AM
+Last updated at 12/3/2025, 8:22:10 AM
