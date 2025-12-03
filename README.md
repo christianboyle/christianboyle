@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEpnXa4TXMJuLnX8-5TMJPQ-t500x500.png">](https://soundcloud.com/sudleydnb/fred-again-skepta-1?in=saxurn/sets/bubba)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRrtzhBVLj3nDPJg-qf75ng-t500x500.png">](https://soundcloud.com/eldarzeymusic/charli-xcx-so-i-eldar-zey-flip?in=saxurn/sets/shady)
 
-**Artist**: Sudley 
+**Artist**: Eldar Zey 
 
-**Track**: VICTORY LAP (SUDLEY RMX) (FREE DOWNLOAD)
+**Track**: Charli XCX - So I (Eldar Zey Flip)
 
-Last updated at 12/3/2025, 10:07:39 AM
+Last updated at 12/3/2025, 10:08:49 AM
