@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LGXNlwnDCHC7xRZX-FSkEIw-t500x500.png">](https://soundcloud.com/leahxkassel/cocaina?in=saxurn/sets/shady)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LNXn7vcllnfToNOm-idMZ1A-t500x500.jpg">](https://soundcloud.com/maakgmakesmusic/arguruflip?in=saxurn/sets/shady)
 
-**Artist**: LEAH 
+**Artist**: Maāk.G 
 
-**Track**: COCAINA
+**Track**: Deadmau5 - Arguru (Maāk.G Flip)
 
-Last updated at 12/3/2025, 10:28:41 AM
+Last updated at 12/3/2025, 10:32:42 AM
