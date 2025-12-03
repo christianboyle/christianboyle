@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z7J2lHn5lLsfBtIY-phzJ1g-t500x500.png">](https://soundcloud.com/initi8uk/depressed-initi8-remix?in=saxurn/sets/topo-tweako)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3uKdVEz1qHgHFBi-DVeA2Q-t500x500.png">](https://soundcloud.com/dvdmtl/2-life-extended-mix?in=saxurn/sets/overflow)
 
-**Artist**: Initi8 
+**Artist**: D V D, nabii 
 
-**Track**: Depressed - (Initi8 Remix)
+**Track**: 2 Life (Extended Mix)
 
-Last updated at 12/3/2025, 10:43:23 AM
+Last updated at 12/3/2025, 10:45:43 AM
