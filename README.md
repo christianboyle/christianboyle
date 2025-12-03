@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9pHTmM8sOfgIaPgQ-yphdCA-t500x500.jpg">](https://soundcloud.com/dontwakeslasher/aint-us-w-crusey-1crusafix?in=saxurn/sets/bubba)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYpfzucqgbdwRuz9-hPp5AA-t500x500.jpg">](https://soundcloud.com/al-ex-bounce/nathan-dawe-x-abi-flynn-here-in-your-arms-initi8-x-al-ex-remix-sped-up?in=saxurn/sets/bubba)
 
-**Artist**: Slash Santana, crusey, 1crusafix 
+**Artist**: AL-EX 
 
-**Track**: aint us (advxrse + breakfall) [2024]
+**Track**: Nathan Dawe X Abi Flynn - Here In Your Arms (Initi8 X AL-EX Remix) SPED UP
 
-Last updated at 12/3/2025, 9:35:23 AM
+Last updated at 12/3/2025, 9:37:18 AM
