@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CgMJvJNjxM19JltT-swqrog-t500x500.jpg">](https://soundcloud.com/digicolrecords/dreamz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbzBAMkWUWfYrsWt-nNvL5w-t500x500.png">](https://soundcloud.com/ihywarm/psg?in=saxurn/sets/bubba)
 
-**Artist**: VinnyBo! 
+**Artist**: warm 
 
-**Track**: Dreamz
+**Track**: PSG prod lynU
 
-Last updated at 12/3/2025, 9:33:17 AM
+Last updated at 12/3/2025, 9:33:22 AM
