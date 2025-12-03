@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjZvAZZsGGPI-0-t500x500.jpg">](https://soundcloud.com/nikodemus_0/ocean-drift-bambinodj-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a9hgsibcjHzfwIku-X5EEVg-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/conni-tequila-in-my-cup-ncs-release)
 
-**Artist**: Niko Demus 
+**Artist**: Conni 
 
-**Track**: Ocean Drift (bambinodj Remix)
+**Track**: Conni - Tequila In My Cup [NCS Release]
 
-Last updated at 12/3/2025, 8:28:05 AM
+Last updated at 12/3/2025, 8:32:14 AM
