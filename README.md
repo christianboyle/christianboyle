@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6XjNmZvuLOc2YRnE-q8NLpw-t500x500.jpg">](https://soundcloud.com/astix_sah/bounce-jackers-power-within?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C02YQT5Xe3cT3IWC-zKSPhg-t500x500.png">](https://soundcloud.com/dnzrecords/craigy-b-time-after-time)
 
-**Artist**: DJ HAM 
+**Artist**: Craigy B! 
 
-**Track**: BOUNCE JACKERS POWER WITHIN (DJHAM x SHAUNA CHLOE EDIT)
+**Track**: Craigy B! - Time After Time
 
-Last updated at 12/3/2025, 8:57:54 AM
+Last updated at 12/3/2025, 9:00:54 AM
