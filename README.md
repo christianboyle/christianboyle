@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lZ2PZkhkjA6m-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/theres-nothing-i-wont-do-k14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC17NtNuszdgqj7z-C8kk7Q-t500x500.jpg">](https://soundcloud.com/beauzworld/look-at-me-now-beauz-hard-techno-remix)
 
-**Artist**: K-Series, Hayley Colleen 
+**Artist**: BEAUZ 
 
-**Track**: There's Nothing I Won't Do (K14)
+**Track**: Look At Me Now (BEAUZ Hard Techno Remix)
 
-Last updated at 12/3/2025, 9:02:59 AM
+Last updated at 12/3/2025, 9:03:59 AM
