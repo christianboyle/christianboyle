@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8LrQ35TcopJyIRaj-nKxH4g-t500x500.png">](https://soundcloud.com/h-o-double-g-y/mc-tazo-indie-tazos-top-100-55)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRrtzhBVLj3nDPJg-qf75ng-t500x500.png">](https://soundcloud.com/eldarzeymusic/charli-xcx-so-i-eldar-zey-flip?in=saxurn/sets/1a1/)
 
-**Artist**: MC TAZO 
+**Artist**: Eldar Zey 
 
-**Track**: Mc Tazo -  Indie - Tazo's Top 100 #55
+**Track**: Charli XCX - So I (Eldar Zey Flip)
 
-Last updated at 12/3/2025, 8:37:28 AM
+Last updated at 12/3/2025, 8:49:38 AM
