@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRrtzhBVLj3nDPJg-qf75ng-t500x500.png">](https://soundcloud.com/eldarzeymusic/charli-xcx-so-i-eldar-zey-flip?in=saxurn/sets/shady)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTmYaXyWNAQGSeFG-VMlYWg-t500x500.png">](https://soundcloud.com/djkenty/this-is-bounce-uk-x-kenty-broke-boys?in=saxurn/sets/shady)
 
-**Artist**: Eldar Zey 
+**Artist**: DJ Kenty 
 
-**Track**: Charli XCX - So I (Eldar Zey Flip)
+**Track**: This Is Bounce UK x Kenty  - Broke Boys
 
-Last updated at 12/3/2025, 10:08:49 AM
+Last updated at 12/3/2025, 10:11:05 AM
