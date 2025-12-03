@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PDN7wmzpKyWkHGAY-BDIrmQ-t500x500.png">](https://soundcloud.com/djtrixyofficial/nathan-dawe-abi-flynn-hereinyourarms-trixyremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAQuZiAIajYDfqkw-lMc6UQ-t500x500.png">](https://soundcloud.com/ag-audio/daydream-in-blue-ft-spark-master-tape-ag-reboot)
 
-**Artist**: TRIXY 
+**Artist**: AG 
 
-**Track**: Nathan Dawe X Abi Flynn - Here In Your Arms (Trixy Remix)
+**Track**: Daydream in Blue Ft. Spark Master Tape (AG Reboot)
 
-Last updated at 12/3/2025, 6:20:55 AM
+Last updated at 12/3/2025, 8:20:20 AM
