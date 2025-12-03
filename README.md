@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6XjNmZvuLOc2YRnE-q8NLpw-t500x500.jpg">](https://soundcloud.com/astix_sah/bounce-jackers-power-within?in=saxurn/sets/shady)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFXyUoCyxf3GkWZT-HaSpBw-t500x500.png">](https://soundcloud.com/yellowclaw/yellow-claw-touch-it?in=saxurn/sets/shady)
 
-**Artist**: DJ HAM 
+**Artist**: Yellow Claw 
 
-**Track**: BOUNCE JACKERS POWER WITHIN (DJHAM x SHAUNA CHLOE EDIT)
+**Track**: Yellow Claw - Touch It
 
-Last updated at 12/3/2025, 10:17:10 AM
+Last updated at 12/3/2025, 10:22:26 AM
