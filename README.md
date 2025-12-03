@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5FPrZmzzzmHvUHZ2-dzeWHA-t500x500.png">](https://soundcloud.com/officialnohero/lost?in=saxurn/sets/bubba)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VEpnXa4TXMJuLnX8-5TMJPQ-t500x500.png">](https://soundcloud.com/sudleydnb/fred-again-skepta-1?in=saxurn/sets/bubba)
 
-**Artist**: No Hero 
+**Artist**: Sudley 
 
-**Track**: Lost
+**Track**: VICTORY LAP (SUDLEY RMX) (FREE DOWNLOAD)
 
-Last updated at 12/3/2025, 10:03:59 AM
+Last updated at 12/3/2025, 10:07:39 AM
