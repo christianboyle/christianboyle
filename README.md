@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WOfaz6lcL7PE3Idq-xcSluw-t500x500.jpg">](https://soundcloud.com/belavie/generation-loveparade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTMCozzuu3pEvjJP-ejs0Bg-t500x500.png">](https://soundcloud.com/ell1psis/calibration-mix)
 
-**Artist**: Bélavie 
+**Artist**: ell!psis 
 
-**Track**: Bélavie - Generation Loveparade
+**Track**: calibration (mix)
 
-Last updated at 12/4/2025, 4:44:00 PM
+Last updated at 12/4/2025, 4:45:30 PM
