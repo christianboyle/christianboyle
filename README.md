@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mnlizm3MIe0awbjh-CztxSQ-t500x500.png">](https://soundcloud.com/hysteria-dance/hysteria-28th-november-2025-dj-frostie-mcs-turbo-d-ronez)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-612QB4hOlcmX9sx2-tf1XCg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-never-meant-to-be-out-now)
 
-**Artist**: Hysteria Dance 
+**Artist**: DRIFT 
 
-**Track**: Hysteria 28th November 2025 - Dj Frostie - Mc's - Turbo-D, Ronez
+**Track**: DRIFT & IRWIIN - NEVER MEANT TO BE (OUT NOW)
 
-Last updated at 12/4/2025, 9:14:52 AM
+Last updated at 12/4/2025, 9:48:11 AM
