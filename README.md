@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vYpfzucqgbdwRuz9-hPp5AA-t500x500.jpg">](https://soundcloud.com/al-ex-bounce/nathan-dawe-x-abi-flynn-here-in-your-arms-initi8-x-al-ex-remix-sped-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-58E1GIlw34at9UFb-qMBbLg-t500x500.jpg">](https://soundcloud.com/timsweeney/sweeney1085)
 
-**Artist**: AL-EX 
+**Artist**: Tim Sweeney 
 
-**Track**: Nathan Dawe X Abi Flynn - Here In Your Arms (Initi8 X AL-EX Remix) SPED UP
+**Track**: BIS Radio Show #1085 with Tim Sweeney
 
-Last updated at 12/3/2025, 7:03:55 PM
+Last updated at 12/3/2025, 7:05:20 PM
