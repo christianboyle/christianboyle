@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVBMeLPswqIuhHNd-ptWFVQ-t500x500.png">](https://soundcloud.com/neo_trance/dj-try-something-real)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G75HjrhmyaYUgS7i-0EiiRw-t500x500.jpg">](https://soundcloud.com/darren-j-3/daz-mooney-office-party-mix)
 
-**Artist**: dj try 
+**Artist**: Daz Mooney (Quality Bounce) 
 
-**Track**: dj try - Something Real
+**Track**: Daz Mooney Office Party Mix
 
-Last updated at 12/4/2025, 4:46:35 PM
+Last updated at 12/4/2025, 4:49:05 PM
