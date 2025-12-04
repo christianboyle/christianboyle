@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYeACufQRVhZA3Gy-r6j6vA-t500x500.jpg">](https://soundcloud.com/logan-17222564/l2gxn-k4y0-every-little-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ne1E1BdhPydwa2V1-jNHoeQ-t500x500.png">](https://soundcloud.com/sunnidofficial/power)
 
-**Artist**: L2GXN (LOGY-B) - S.B.L - PROJECT HAVOC 
+**Artist**: Sunni D, Lucigen 
 
-**Track**: L2GXN & K4Y0 - Every Little Time [sample]
+**Track**: POWER
 
-Last updated at 12/4/2025, 9:49:16 AM
+Last updated at 12/4/2025, 9:50:16 AM
