@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9UfyuiAwKpe4ovHr-H4FzJw-t500x500.png">](https://soundcloud.com/neo_trance/matty-ralph-nrg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mnlizm3MIe0awbjh-CztxSQ-t500x500.png">](https://soundcloud.com/hysteria-dance/hysteria-28th-november-2025-dj-frostie-mcs-turbo-d-ronez)
 
-**Artist**: Matty Ralph 
+**Artist**: Hysteria Dance 
 
-**Track**: Matty Ralph - NRG
+**Track**: Hysteria 28th November 2025 - Dj Frostie - Mc's - Turbo-D, Ronez
 
-Last updated at 12/4/2025, 9:12:47 AM
+Last updated at 12/4/2025, 9:14:52 AM
