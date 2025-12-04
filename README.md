@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTMCozzuu3pEvjJP-ejs0Bg-t500x500.png">](https://soundcloud.com/ell1psis/calibration-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WVBMeLPswqIuhHNd-ptWFVQ-t500x500.png">](https://soundcloud.com/neo_trance/dj-try-something-real)
 
-**Artist**: ell!psis 
+**Artist**: dj try 
 
-**Track**: calibration (mix)
+**Track**: dj try - Something Real
 
-Last updated at 12/4/2025, 4:45:30 PM
+Last updated at 12/4/2025, 4:46:35 PM
