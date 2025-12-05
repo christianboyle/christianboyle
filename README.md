@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LEso7i4Um077eL4F-vUZvRA-t500x500.jpg">](https://soundcloud.com/bassjackers/caramelle-x-diet-coke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNVPFzy9ZiLTaTaz-9NlyWw-t500x500.png">](https://soundcloud.com/djdougster-gibson/makina-madness)
 
-**Artist**: BASSJACKERS 
+**Artist**: djdougster gibson 
 
-**Track**: Caramelle x Diet Coke (Bassjackers TECH BOUNCE Edit)
+**Track**: MAKINA MADNESS
 
-Last updated at 12/5/2025, 10:31:58 AM
+Last updated at 12/5/2025, 10:32:58 AM
