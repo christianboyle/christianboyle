@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G75HjrhmyaYUgS7i-0EiiRw-t500x500.jpg">](https://soundcloud.com/darren-j-3/daz-mooney-office-party-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a9XmPRVhIozNDC2d-gmYkkA-t500x500.jpg">](https://soundcloud.com/radiorudina/ben-deriss)
 
-**Artist**: Daz Mooney (Quality Bounce) 
+**Artist**: Radio Rudina 
 
-**Track**: Daz Mooney Office Party Mix
+**Track**: BEN DERRIS | Radio Rudina
 
-Last updated at 12/5/2025, 6:06:53 AM
+Last updated at 12/5/2025, 10:24:58 AM
