@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNVPFzy9ZiLTaTaz-9NlyWw-t500x500.png">](https://soundcloud.com/djdougster-gibson/makina-madness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-RByN9srpkATC7fY1-8iQgzw-t500x500.jpg">](https://soundcloud.com/julian-winkworth/trance-ceazar-salad-1)
 
-**Artist**: djdougster gibson 
+**Artist**: Julianwinkworth dj ceazar 
 
-**Track**: MAKINA MADNESS
+**Track**: trance ceazar salad
 
-Last updated at 12/5/2025, 10:32:58 AM
+Last updated at 12/5/2025, 10:33:58 AM
