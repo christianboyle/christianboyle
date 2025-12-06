@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zoUgIJNycpszZyGY-ikpTmQ-t500x500.jpg">](https://soundcloud.com/sipx113/poison)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Obxo41dEjl5BNHJS-VFOyUg-t500x500.png">](https://soundcloud.com/s3rl/unicorn)
 
-**Artist**: sipx113 
+**Artist**: S3RL ft SONJA 
 
-**Track**: Helvetican - Poison
+**Track**: Unicorn
 
-Last updated at 12/5/2025, 6:44:37 PM
+Last updated at 12/5/2025, 6:46:42 PM
