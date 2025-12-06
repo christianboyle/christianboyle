@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Obxo41dEjl5BNHJS-VFOyUg-t500x500.png">](https://soundcloud.com/s3rl/unicorn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjRCbgirmTtD-0-t500x500.png">](https://soundcloud.com/bennicky/castles-in-the-sky-extended)
 
-**Artist**: S3RL ft SONJA 
+**Artist**: Ben Nicky, Dr Phunk, GESES, Fahjah 
 
-**Track**: Unicorn
+**Track**: Castles In The Sky (Extended Mix)
 
-Last updated at 12/5/2025, 6:46:42 PM
+Last updated at 12/5/2025, 6:48:07 PM
