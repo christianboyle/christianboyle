@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AjRCbgirmTtD-0-t500x500.png">](https://soundcloud.com/bennicky/castles-in-the-sky-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyGAXMlI7h8AUCBg-agx11g-t500x500.png">](https://soundcloud.com/wearestudio/minosaur-leto-thumps-premiere)
 
-**Artist**: Ben Nicky, Dr Phunk, GESES, Fahjah 
+**Artist**: STUDIO, Minosaur, & LeTo 
 
-**Track**: Castles In The Sky (Extended Mix)
+**Track**: Minosaur & LeTo - Thumps [Premiere]
 
-Last updated at 12/5/2025, 6:48:07 PM
+Last updated at 12/5/2025, 7:25:21 PM
