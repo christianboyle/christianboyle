@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m0zKHYmPOIxf1Cfq-YM9OIQ-t500x500.png">](https://soundcloud.com/espforever/formation-bambinodj-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aRJUxAyyVRPl-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/pump-it-up)
 
-**Artist**: ESP 
+**Artist**: DJ Kenty, This Is Bounce UK 
 
-**Track**: Formation (bambinodj Remix)
+**Track**: Pump It Up
 
-Last updated at 12/5/2025, 8:00:46 PM
+Last updated at 12/5/2025, 8:07:52 PM
