@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyGAXMlI7h8AUCBg-agx11g-t500x500.png">](https://soundcloud.com/wearestudio/minosaur-leto-thumps-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-zoUgIJNycpszZyGY-ikpTmQ-t500x500.jpg">](https://soundcloud.com/sipx113/poison)
 
-**Artist**: STUDIO, Minosaur, & LeTo 
+**Artist**: sipx113 
 
-**Track**: Minosaur & LeTo - Thumps [Premiere]
+**Track**: Helvetican - Poison
 
-Last updated at 12/5/2025, 7:25:21 PM
+Last updated at 12/5/2025, 7:52:50 PM
