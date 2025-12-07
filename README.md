@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDbGMosUxT0ZMQh2-vspzJw-t500x500.png">](https://soundcloud.com/spfinfini/d-v-d-nabii-the-sky)
 
-**Artist**: S3RL 
+**Artist**: D V D, nabii, SPF INFINI 
 
-**Track**: In My Bones
+**Track**: D V D & nabii - The Sky
 
-Last updated at 12/7/2025, 10:47:14 AM
+Last updated at 12/7/2025, 4:31:26 PM
