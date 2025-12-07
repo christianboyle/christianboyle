@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aRJUxAyyVRPl-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/pump-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oAKuyb6OtyeBUw0-jnGBFQ-t500x500.png">](https://soundcloud.com/s3rl/inmybones)
 
-**Artist**: DJ Kenty, This Is Bounce UK 
+**Artist**: S3RL 
 
-**Track**: Pump It Up
+**Track**: In My Bones
 
-Last updated at 12/6/2025, 7:46:27 AM
+Last updated at 12/7/2025, 7:33:58 AM
