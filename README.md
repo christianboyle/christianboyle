@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-QKjswQ8IqDZTikUu-OOd7zw-t500x500.jpg">](https://soundcloud.com/thenewmonkey_official/ginty-dehilia-space-mix-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZaPcyicnfonD3NT4-iZxYCw-t500x500.png">](https://soundcloud.com/thenewmonkey_official/telf-b2b-dj-zero-studio-session)
 
-**Artist**: The New Monkey 
+**Artist**: PIONEER DJ REC 
 
-**Track**: Ginty - Dehilia (Space mix) Sample
+**Track**: TELF B2B DJ ZERO STUDIO SESSION
 
-Last updated at 12/8/2025, 8:49:08 AM
+Last updated at 12/8/2025, 8:52:18 AM
