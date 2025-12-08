@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gDbGMosUxT0ZMQh2-vspzJw-t500x500.png">](https://soundcloud.com/spfinfini/d-v-d-nabii-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D1TTRv5F2jR79REK-C6nipQ-t500x500.png">](https://soundcloud.com/dj-seinfeld/plush)
 
-**Artist**: D V D, nabii, SPF INFINI 
+**Artist**: DJ SEINFELD 
 
-**Track**: D V D & nabii - The Sky
+**Track**: Plush (Teaser)
 
-Last updated at 12/7/2025, 4:31:26 PM
+Last updated at 12/7/2025, 6:58:55 PM
