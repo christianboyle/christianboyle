@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZaPcyicnfonD3NT4-iZxYCw-t500x500.png">](https://soundcloud.com/thenewmonkey_official/telf-b2b-dj-zero-studio-session)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Ucsi6f6ZZA2iKkZ-lsVw5g-t500x500.jpg">](https://soundcloud.com/maakgmakesmusic/maak-g-create?in_system_playlist=your-playback%3A%3Asaxurn%3A2025)
 
-**Artist**: PIONEER DJ REC 
+**Artist**: Maāk.G 
 
-**Track**: TELF B2B DJ ZERO STUDIO SESSION
+**Track**: Create
 
-Last updated at 12/8/2025, 8:52:18 AM
+Last updated at 12/8/2025, 9:00:39 AM
