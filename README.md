@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aRk9sESVMubATSVm-9QdIYQ-t500x500.png">](https://soundcloud.com/neo_trance/jordan-tilstone-lustre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyGAXMlI7h8AUCBg-agx11g-t500x500.png">](https://soundcloud.com/wearestudio/minosaur-leto-thumps-premiere)
 
-**Artist**: Jordan Tilstone 
+**Artist**: STUDIO, Minosaur, & LeTo 
 
-**Track**: Jordan Tilstone - Lustre
+**Track**: Minosaur & LeTo - Thumps [Premiere]
 
-Last updated at 12/9/2025, 11:07:44 AM
+Last updated at 12/9/2025, 11:12:24 AM
