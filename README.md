@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gyGAXMlI7h8AUCBg-agx11g-t500x500.png">](https://soundcloud.com/wearestudio/minosaur-leto-thumps-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLPW6y8ggCQib9zX-ksYCOA-t500x500.jpg">](https://soundcloud.com/notjtski/brrrrrrr-extended)
 
-**Artist**: STUDIO, Minosaur, & LeTo 
+**Artist**: ‎jtski 
 
-**Track**: Minosaur & LeTo - Thumps [Premiere]
+**Track**: #brrrrrrr extended
 
-Last updated at 12/9/2025, 11:12:24 AM
+Last updated at 12/10/2025, 6:19:09 AM
