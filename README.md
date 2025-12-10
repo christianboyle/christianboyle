@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VLPW6y8ggCQib9zX-ksYCOA-t500x500.jpg">](https://soundcloud.com/notjtski/brrrrrrr-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2mTRwxLMe3HPzyP-zwVDsA-t500x500.jpg">](https://soundcloud.com/adrenalindj/til-death-do-us-part-mixed-by-adrenalin)
 
-**Artist**: ‎jtski 
+**Artist**: Adrenalin 
 
-**Track**: #brrrrrrr extended
+**Track**: Til Death Us Do Party - Mixed By Adrenalin
 
-Last updated at 12/10/2025, 8:24:59 AM
+Last updated at 12/10/2025, 10:23:49 AM
