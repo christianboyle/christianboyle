@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2mTRwxLMe3HPzyP-zwVDsA-t500x500.jpg">](https://soundcloud.com/adrenalindj/til-death-do-us-part-mixed-by-adrenalin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9DgzzOs1d4JDrAq-RY1Vfg-t500x500.jpg">](https://soundcloud.com/technowereld/tw-podcast-155-dizzy)
 
-**Artist**: Adrenalin 
+**Artist**: Techno Wereld, DIZZY  
 
-**Track**: Til Death Us Do Party - Mixed By Adrenalin
+**Track**: TW PODCAST 155 - DIZZY
 
-Last updated at 12/11/2025, 11:17:30 AM
+Last updated at 12/11/2025, 11:18:40 AM
