@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D9DgzzOs1d4JDrAq-RY1Vfg-t500x500.jpg">](https://soundcloud.com/technowereld/tw-podcast-155-dizzy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qzh6eFs6xmhSBFeS-wcu2Eg-t500x500.png">](https://soundcloud.com/dnzrecords/nova-scotia-stand-by-me)
 
-**Artist**: Techno Wereld, DIZZY  
+**Artist**: Nova Scotia 
 
-**Track**: TW PODCAST 155 - DIZZY
+**Track**: Nova Scotia - Stand By Me
 
-Last updated at 12/11/2025, 11:18:40 AM
+Last updated at 12/11/2025, 4:35:25 PM
