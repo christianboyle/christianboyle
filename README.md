@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fgmcuLXqO8x3tg4I-KA0kKw-t500x500.png">](https://soundcloud.com/dgfl/no-point-2-prodkitzfr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWplysBMPjkHyVzo-NfSW9A-t500x500.jpg">](https://soundcloud.com/16arrr-music/hold-that-sucker-down-edit)
 
-**Artist**: warrsun 
+**Artist**: 16ar 
 
-**Track**: No Point 2 prod.kitzfr
+**Track**: HOLD THAT SUCKER DOWN (2025 EDIT)
 
-Last updated at 12/11/2025, 4:39:51 PM
+Last updated at 12/11/2025, 4:46:46 PM
