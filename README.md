@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r92aC0ulUyRGsS88-XSu8mg-t500x500.jpg">](https://soundcloud.com/polo-lilli/free-dl-n-trance-set-you-free-polo-lilli-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g6zVPZrGRpIgEzy8-1wdomQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/josh-wesz-spellbound)
 
-**Artist**: POLO LILLI 
+**Artist**: Josh & Wesz 
 
-**Track**: [FREE DL] N - Trance - Set You Free (POLO LILLI Bootleg)
+**Track**: Josh & Wesz - Spellbound
 
-Last updated at 12/11/2025, 4:55:02 PM
+Last updated at 12/11/2025, 4:57:09 PM
