@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4itySdJ4xvgXk74-gEC3AQ-t500x500.png">](https://soundcloud.com/kayakrecords/fuze-baz-t-m-h-take-my-hand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ugs4p8Xqz7PXfmwX-uJRvBg-t500x500.png">](https://soundcloud.com/dancingdeadrecords/empathy)
 
-**Artist**: Fuze & Baz 
+**Artist**: NEZZY 
 
-**Track**: Fuze & Baz - T.M.H (Take My Hand)
+**Track**: NEZZY - EMPATHY
 
-Last updated at 12/12/2025, 8:19:39 AM
+Last updated at 12/12/2025, 8:20:39 AM
