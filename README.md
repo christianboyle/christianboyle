@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWpujSVecPqeoV8h-m9ZMxQ-t500x500.png">](https://soundcloud.com/speedmasterrecords/hold-my-flip-phone-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FyMptEHkkTh-0-t500x500.jpg">](https://soundcloud.com/datweekaz/let-it-go)
 
-**Artist**: Frankie Elyse 
+**Artist**: Da Tweekaz, AVA CROWN 
 
-**Track**: Hold My Flip Phone (Extended Mix)
+**Track**: Let It Go
 
-Last updated at 12/12/2025, 10:52:43 AM
+Last updated at 12/12/2025, 2:50:06 PM
