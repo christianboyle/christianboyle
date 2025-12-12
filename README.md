@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIyKtazFngfzYm9S-Jb2iXw-t500x500.jpg">](https://soundcloud.com/officialflozone/crystalized-flozone-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uWpujSVecPqeoV8h-m9ZMxQ-t500x500.png">](https://soundcloud.com/speedmasterrecords/hold-my-flip-phone-extended-mix)
 
-**Artist**: flozone 
+**Artist**: Frankie Elyse 
 
-**Track**: JOHN SUMMIT - CRYSTALLIZED (FLOZONE FLIP)
+**Track**: Hold My Flip Phone (Extended Mix)
 
-Last updated at 12/12/2025, 10:50:09 AM
+Last updated at 12/12/2025, 10:52:43 AM
