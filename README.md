@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e9hhx8rCa71yhmHn-goug3w-t500x500.jpg">](https://soundcloud.com/tennerstentun/tennerstentun-happy-hardcore-mix-part-18)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VW5YDdcNIh5I-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/slow-down)
 
-**Artist**: TennersTenTun 
+**Artist**: So Juice, Bloodlust 
 
-**Track**: TennersTenTun-Happy Hardcore Mix Part 18
+**Track**: SLOW DOWN
 
-Last updated at 12/12/2025, 10:47:03 AM
+Last updated at 12/12/2025, 10:48:08 AM
