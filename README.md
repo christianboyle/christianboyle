@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7WhdmheE5BgM2ody-0hhnRw-t500x500.png">](https://soundcloud.com/wormhole-music-group/thew-jet-2-u-redux-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KfSTOcYI4B1jLaEP-603hLg-t500x500.png">](https://soundcloud.com/monstercat/oliverse-moone-adrenaline)
 
-**Artist**: Thew 
+**Artist**: Oliverse & MØØNE 
 
-**Track**: Thew - jet 2 u (redux)
+**Track**: Oliverse & MØØNE - Adrenaline
 
-Last updated at 12/12/2025, 9:52:46 AM
+Last updated at 12/12/2025, 9:56:16 AM
