@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFU0dYFMRYeyNCai-rQ8jow-t500x500.png">](https://soundcloud.com/kerry-jessica-batey/black-party-warm-up-mix-nov-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4itySdJ4xvgXk74-gEC3AQ-t500x500.png">](https://soundcloud.com/kayakrecords/fuze-baz-t-m-h-take-my-hand)
 
-**Artist**: Marc.K.B 
+**Artist**: Fuze & Baz 
 
-**Track**: BLACK PARTY WARM UP MIX NOV 2025
+**Track**: Fuze & Baz - T.M.H (Take My Hand)
 
-Last updated at 12/12/2025, 8:18:39 AM
+Last updated at 12/12/2025, 8:19:39 AM
