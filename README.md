@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4yXeIZRwIzX84ttE-1uVWqQ-t500x500.png">](https://soundcloud.com/rave_alert/vaco-eyes-on-me-ft-alexandra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRp9LfEA5o2Dn72C-UyoDkA-t500x500.png">](https://soundcloud.com/yerbownik/airwave-perspective)
 
-**Artist**: Rave Alert 
+**Artist**: yerbby 
 
-**Track**: Vaco - Eyes On Me (ft Alexandra Kessler)
+**Track**: airwave perspective
 
-Last updated at 12/12/2025, 10:42:48 AM
+Last updated at 12/12/2025, 10:43:48 AM
