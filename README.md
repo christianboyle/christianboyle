@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRp9LfEA5o2Dn72C-UyoDkA-t500x500.png">](https://soundcloud.com/yerbownik/airwave-perspective)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHPJzpyUDHhzfqzP-vkDtdA-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/all-of-my-heart)
 
-**Artist**: yerbby 
+**Artist**: SHAUNA HILLS 
 
-**Track**: airwave perspective
+**Track**: ALL OF MY HEART ❤️
 
-Last updated at 12/12/2025, 10:43:48 AM
+Last updated at 12/12/2025, 10:44:48 AM
