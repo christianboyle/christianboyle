@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HGG4NyTsyEYa2VyF-tfDBeA-t500x500.png">](https://soundcloud.com/klubbheads/dj-boozywoozy-can-u-feel-it-dj-boozywoozy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAQuZiAIajYDfqkw-lMc6UQ-t500x500.png">](https://soundcloud.com/ag-audio/ivri-tower-of-memories-ag-reboot)
 
-**Artist**: Klubbheads 
+**Artist**: AG 
 
-**Track**: Klubbheads - Can U Feel It (DJ BoozyWoozy Remix )
+**Track**: IVRI - Tower of Memories (AG Reboot)
 
-Last updated at 12/12/2025, 8:13:51 AM
+Last updated at 12/12/2025, 8:14:53 AM
