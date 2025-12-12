@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FyMptEHkkTh-0-t500x500.jpg">](https://soundcloud.com/datweekaz/let-it-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-14QoMyC6BWYoNDUr-Kcfugw-t500x500.png">](https://soundcloud.com/adventureclub/kirko-bangz-drank-in-my-cup-adventure-club-ydg-remix)
 
-**Artist**: Da Tweekaz, AVA CROWN 
+**Artist**: Adventure Club, YDG 
 
-**Track**: Let It Go
+**Track**: Kirko Bangz - Drank In My Cup (Adventure Club & YDG Remix)
 
-Last updated at 12/12/2025, 2:50:06 PM
+Last updated at 12/12/2025, 2:51:21 PM
