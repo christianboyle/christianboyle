@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g6zVPZrGRpIgEzy8-1wdomQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/josh-wesz-spellbound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HGG4NyTsyEYa2VyF-tfDBeA-t500x500.png">](https://soundcloud.com/klubbheads/dj-boozywoozy-can-u-feel-it-dj-boozywoozy-remix)
 
-**Artist**: Josh & Wesz 
+**Artist**: Klubbheads 
 
-**Track**: Josh & Wesz - Spellbound
+**Track**: Klubbheads - Can U Feel It (DJ BoozyWoozy Remix )
 
-Last updated at 12/12/2025, 6:17:05 AM
+Last updated at 12/12/2025, 8:13:51 AM
