@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niCjeIHacDuVqF19-EMj8zw-t500x500.png">](https://soundcloud.com/rinsefm/tsvi081225)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyBePvhFYAdzTRxV-FNQ6kw-t500x500.png">](https://soundcloud.com/djwoody2019/club-anthems-vol-16-xmas-edit)
 
-**Artist**: Rinse FM 
+**Artist**: djwoody2019 
 
-**Track**: Nervous Horizon with TSVI - 08 December 2025
+**Track**: CLUB ANTHEMS VOL 16 XMAS EDIT
 
-Last updated at 12/12/2025, 8:28:33 AM
+Last updated at 12/12/2025, 9:44:55 AM
