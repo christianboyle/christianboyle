@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHPJzpyUDHhzfqzP-vkDtdA-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/all-of-my-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JluJ7Pbdy0gD9rjA-ax9zzQ-t500x500.png">](https://soundcloud.com/morejakkie/sarias-turn-up-smochi-more-jakkie-edit)
 
-**Artist**: SHAUNA HILLS 
+**Artist**: Smochi & More Jakkie 
 
-**Track**: ALL OF MY HEART ❤️
+**Track**: Sarias Turn Up (Smochi & More Jakkie Edit)
 
-Last updated at 12/12/2025, 10:44:48 AM
+Last updated at 12/12/2025, 10:45:48 AM
