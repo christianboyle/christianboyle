@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hC1mzysTAnjvnyaF-CnHzQw-t500x500.png">](https://soundcloud.com/bncybncy/mcsmallyinstru)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-niCjeIHacDuVqF19-EMj8zw-t500x500.png">](https://soundcloud.com/rinsefm/tsvi081225)
 
-**Artist**: MC Smally 
+**Artist**: Rinse FM 
 
-**Track**: MC Smally - That's My Name 2025 (instrumental)
+**Track**: Nervous Horizon with TSVI - 08 December 2025
 
-Last updated at 12/12/2025, 8:27:20 AM
+Last updated at 12/12/2025, 8:28:33 AM
