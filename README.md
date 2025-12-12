@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JluJ7Pbdy0gD9rjA-ax9zzQ-t500x500.png">](https://soundcloud.com/morejakkie/sarias-turn-up-smochi-more-jakkie-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e9hhx8rCa71yhmHn-goug3w-t500x500.jpg">](https://soundcloud.com/tennerstentun/tennerstentun-happy-hardcore-mix-part-18)
 
-**Artist**: Smochi & More Jakkie 
+**Artist**: TennersTenTun 
 
-**Track**: Sarias Turn Up (Smochi & More Jakkie Edit)
+**Track**: TennersTenTun-Happy Hardcore Mix Part 18
 
-Last updated at 12/12/2025, 10:45:48 AM
+Last updated at 12/12/2025, 10:47:03 AM
