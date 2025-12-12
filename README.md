@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VW5YDdcNIh5I-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/slow-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h3NCvJyFWymTnMgS-seyNXg-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/worth-the-wait)
 
-**Artist**: So Juice, Bloodlust 
+**Artist**: SHAUNA HILLS 
 
-**Track**: SLOW DOWN
+**Track**: WORTH THE WAIT❤️
 
-Last updated at 12/12/2025, 10:48:08 AM
+Last updated at 12/12/2025, 10:49:09 AM
