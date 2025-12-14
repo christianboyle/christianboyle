@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-14QoMyC6BWYoNDUr-Kcfugw-t500x500.png">](https://soundcloud.com/adventureclub/kirko-bangz-drank-in-my-cup-adventure-club-ydg-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-erhToPRY5ugntiU6-FqkNyg-t500x500.jpg">](https://soundcloud.com/user-732083412/drummyfeb)
 
-**Artist**: Adventure Club, YDG 
+**Artist**: bino's bin 
 
-**Track**: Kirko Bangz - Drank In My Cup (Adventure Club & YDG Remix)
+**Track**: drummyfeb
 
-Last updated at 12/13/2025, 6:27:27 AM
+Last updated at 12/13/2025, 7:20:43 PM
