@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7pboV4iRkwwZkXcF-XyPhrA-t500x500.jpg">](https://soundcloud.com/smiilerecords/chloe-caillet-sg-lewis-b-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NOfqXE5jWYphy1qg-wGxKcA-t500x500.jpg">](https://soundcloud.com/remiblaze/the-future-original-mix-remi-blaze)
 
-**Artist**: SMIILE Records 
+**Artist**: Remi Blaze 
 
-**Track**: Chloé Caillet, SG Lewis 'B Somebody' (X CLUB. Remix)
+**Track**: The Future (Original Mix) - Remi Blaze
 
-Last updated at 12/15/2025, 11:39:54 AM
+Last updated at 12/15/2025, 11:41:00 AM
