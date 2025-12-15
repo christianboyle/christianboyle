@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mavYfdZGiA2UlViy-R1HmBw-t500x500.jpg">](https://soundcloud.com/grazcore/graz-diamond-eyes-demo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QexH1aWfnMow3yee-9fEaKQ-t500x500.png">](https://soundcloud.com/sandsconnection/myles-smith-nice-to-meet-you)
 
-**Artist**: Graz 
+**Artist**: Gaz Summers (uk hardcore dj/producer) 
 
-**Track**: Graz - Diamond Eyes (Demo)
+**Track**: Myles Smith - Nice To Meet You (Gaz Summers Remix)FREE DOWNLOAD
 
-Last updated at 12/15/2025, 1:56:07 PM
+Last updated at 12/15/2025, 1:57:13 PM
