@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5iBtDCC3eY66vyHS-oMASmQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-jay-dee-sharkey-lonely-christmas-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7pboV4iRkwwZkXcF-XyPhrA-t500x500.jpg">](https://soundcloud.com/smiilerecords/chloe-caillet-sg-lewis-b-4)
 
-**Artist**: DJ Oskar & Jay-Dee Sharkey 
+**Artist**: SMIILE Records 
 
-**Track**: DJ Oskar & Jay-Dee Sharkey - Lonely Christmas / FREE DOWNLOAD!
+**Track**: Chloé Caillet, SG Lewis 'B Somebody' (X CLUB. Remix)
 
-Last updated at 12/15/2025, 11:38:29 AM
+Last updated at 12/15/2025, 11:39:54 AM
