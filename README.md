@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KoeGC5yz3R2PLbTq-1JCHuA-t500x500.png">](https://soundcloud.com/14106lyn/down-mini-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUAUFOjft8trKQn6-udckJg-t500x500.jpg">](https://soundcloud.com/blu_beats/need-you-close-1)
 
-**Artist**: lynU 
+**Artist**: blu 
 
-**Track**: down mini flip
+**Track**: Need You Close
 
-Last updated at 12/15/2025, 11:48:08 AM
+Last updated at 12/15/2025, 11:52:12 AM
