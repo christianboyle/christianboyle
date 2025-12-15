@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iz0wKXBawkmJwEnx-Rvgytg-t500x500.jpg">](https://soundcloud.com/sandsconnection/gaz-summers-know-my-worth-sc-clip-full-track-coming-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F4ag0I92CMvF38Cz-E0KXEQ-t500x500.jpg">](https://soundcloud.com/jeffro4/jeff-roscow-feel-love)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: Jeff Roscow ( Da Grafterz ) 
 
-**Track**: Gaz Summers - Know My Worth (FREE DOWNLOAD)
+**Track**: Jeff Roscow - Feel Love
 
-Last updated at 12/14/2025, 6:20:51 PM
+Last updated at 12/15/2025, 5:56:56 AM
