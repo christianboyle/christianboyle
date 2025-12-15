@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUAUFOjft8trKQn6-udckJg-t500x500.jpg">](https://soundcloud.com/blu_beats/need-you-close-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhhnsBlHVnx1TrXT-Unpn7A-t500x500.png">](https://soundcloud.com/ainonow/ainonow-no-gods-no-masters)
 
-**Artist**: blu 
+**Artist**: Ainonow 
 
-**Track**: Need You Close
+**Track**: Ainonow - No Gods No Masters
 
-Last updated at 12/15/2025, 11:52:12 AM
+Last updated at 12/15/2025, 11:53:33 AM
