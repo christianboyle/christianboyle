@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5glMV8F9zz6GuNk-LyNW2g-t500x500.jpg">](https://soundcloud.com/paul-johnny-johnston/bounce-with-it-volume-14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mavYfdZGiA2UlViy-R1HmBw-t500x500.jpg">](https://soundcloud.com/grazcore/graz-diamond-eyes-demo)
 
-**Artist**: Johnny (Paul Johnston) 
+**Artist**: Graz 
 
-**Track**: Bounce With It. Volume 14
+**Track**: Graz - Diamond Eyes (Demo)
 
-Last updated at 12/15/2025, 11:54:43 AM
+Last updated at 12/15/2025, 1:56:07 PM
