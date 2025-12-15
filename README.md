@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/drake-liddell-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4Mhzjus2yzjTGkWh-FwWZfQ-t500x500.png">](https://soundcloud.com/discolines/disco-lines-ty-dolla-ign-quavo)
 
-**Artist**: Revolution-Records UK 
+**Artist**: Disco Lines & Ty Dolla $ign 
 
-**Track**: Drake Liddell - U
+**Track**: Don't Kill The Party Feat. Quavo, Juicy J, Shoreline Mafia
 
-Last updated at 12/15/2025, 11:45:52 AM
+Last updated at 12/15/2025, 11:46:52 AM
