@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqQd0FTICiu0RYte-nU8DjA-t500x500.png">](https://soundcloud.com/luhvmusic/ill-be-there-ft-lil-tracy-damazein-luhv-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJs8fDKcKx8qYpqJ-5W4fTg-t500x500.jpg">](https://soundcloud.com/user-668791245/typical-t-party-love-makina-version)
 
-**Artist**: SinceWhen, Lil Tracy, Damazein, Luhv 
+**Artist**: TYPICAL T 
 
-**Track**: I'll Be there Ft. Lil Tracy & Damazein (Luhv Remix)
+**Track**: TYPICAL T  - PARTY LOVE ❤️ 2025 🎅🏻
 
-Last updated at 12/16/2025, 2:39:59 PM
+Last updated at 12/16/2025, 2:40:59 PM
