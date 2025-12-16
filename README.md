@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QexH1aWfnMow3yee-9fEaKQ-t500x500.png">](https://soundcloud.com/sandsconnection/myles-smith-nice-to-meet-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ulmx37Fg4n8p8zYy-wxi2zA-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/keep-climbing-radio-edit)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: DRIFT 
 
-**Track**: Myles Smith - Nice To Meet You (Gaz Summers Remix)FREE DOWNLOAD
+**Track**: KEEP CLIMBING (RADIO EDIT)
 
-Last updated at 12/15/2025, 7:26:53 PM
+Last updated at 12/15/2025, 7:30:24 PM
