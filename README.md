@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyitWCLquXW0bTBw-NL6lJg-t500x500.png">](https://soundcloud.com/pixelterrorbass/pixel-terror-treats-vol-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-48RdB4d4xGHM0cU8-wY7sWg-t500x500.jpg">](https://soundcloud.com/naemsofficial/from-yesterday-naems-remix?in=naemsofficial/sets/from-yesterday-naems-remix-4)
 
-**Artist**: PIXEL TERROR 
+**Artist**: NAEMS 
 
-**Track**: PIXEL TERROR TREATS Vol. 9 [Free Download]
+**Track**: Thirty Seconds To Mars - From Yesterday  (NAEMS Remix)
 
-Last updated at 12/16/2025, 6:17:06 AM
+Last updated at 12/16/2025, 8:08:11 AM
