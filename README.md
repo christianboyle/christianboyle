@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/pro-basic-be-my-lover-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyitWCLquXW0bTBw-NL6lJg-t500x500.png">](https://soundcloud.com/pixelterrorbass/pixel-terror-treats-vol-9)
 
-**Artist**: Revolution-Records UK 
+**Artist**: PIXEL TERROR 
 
-**Track**: PRO-BASIC - BE MY LOVER 2025 (BUMPING)
+**Track**: PIXEL TERROR TREATS Vol. 9 [Free Download]
 
-Last updated at 12/15/2025, 7:49:57 PM
+Last updated at 12/16/2025, 5:50:29 AM
