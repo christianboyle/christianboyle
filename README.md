@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHxkZvyYy8IVF7ZV-xvYusw-t500x500.png">](https://soundcloud.com/nullrecuk/danny-eclipse-null-void-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrnHPuyy0DjQauYu-zJi1hA-t500x500.jpg">](https://soundcloud.com/user-557885399-983026588/christmas-tree-techno)
 
-**Artist**: NullRec 
+**Artist**: *Šv*Jėzus 
 
-**Track**: Danny Eclipse | Null & Void Vol. 1
+**Track**: Christmas Tree (TECHNO)
 
-Last updated at 12/17/2025, 5:53:02 AM
+Last updated at 12/17/2025, 7:15:03 AM
