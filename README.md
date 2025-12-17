@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQCAs4zSUVzieSPh-IZxdrQ-t500x500.png">](https://soundcloud.com/nullrecuk/static-2001-intro-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V6gxiUJi0w3f276M-cWUFug-t500x500.png">](https://soundcloud.com/nullrecuk/static-lethal-connection-ft-jess-overload)
 
-**Artist**: Static 
+**Artist**: NullRec 
 
-**Track**: Static - 2001 (Intro Mix)
+**Track**: Static & Lethal Connection ft. Jess - Overload
 
-Last updated at 12/17/2025, 10:30:53 AM
+Last updated at 12/17/2025, 10:34:58 AM
