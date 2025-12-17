@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000154979645-6zjo39-t500x500.jpg">](https://soundcloud.com/hyperforce/hyperforce-cail-baroni-too-late-she-cries)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nre4FWYrNnW2Jmnx-TTzH7Q-t500x500.png">](https://soundcloud.com/kimatimusic/wiz-khalifa-work-hard-play-hard-kimati-flip)
 
-**Artist**: Hyperforce (Panegyric) 
+**Artist**: Kimati 
 
-**Track**: Hyperforce & Cail Baroni - Too Late (She Cries)
+**Track**: Wiz Khalifa - Work hard, Play hard (Kimati Flip)
 
-Last updated at 12/17/2025, 10:20:47 AM
+Last updated at 12/17/2025, 10:22:37 AM
