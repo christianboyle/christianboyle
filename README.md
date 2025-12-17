@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrnHPuyy0DjQauYu-zJi1hA-t500x500.jpg">](https://soundcloud.com/user-557885399-983026588/christmas-tree-techno)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DyIa3cw1haYdIsMx-6xltDQ-t500x500.png">](https://soundcloud.com/novascotia/nova-scotia-children-of-the-night)
 
-**Artist**: *Šv*Jėzus 
+**Artist**: Nova Scotia 
 
-**Track**: Christmas Tree (TECHNO)
+**Track**: Nova Scotia - Children Of The Night
 
-Last updated at 12/17/2025, 7:15:03 AM
+Last updated at 12/17/2025, 7:16:03 AM
