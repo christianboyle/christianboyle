@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3DeNn8q0tRPaGKH-yY6Lug-t500x500.png">](https://soundcloud.com/wip-saint/balmain-jeans)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjDlQk8tLlf0iETe-d7TBKw-t500x500.jpg">](https://soundcloud.com/eddiegrandnj/all-i-want-for-christmas-is-you-remix)
 
-**Artist**: wip st. 
+**Artist**: Mariah Carey 
 
-**Track**: balmain jeans
+**Track**: Mariah Carey - All I Want For Christmas Is You (EDDIE GRAND REMIX)
 
-Last updated at 12/17/2025, 8:21:41 AM
+Last updated at 12/17/2025, 8:23:01 AM
