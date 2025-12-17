@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YKuymhJ9TndzZNMx-7rx9pA-t500x500.png">](https://soundcloud.com/deemzoo/octbrfirst-sin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6u9zQ7X9hEQiTt5p-rl4rpQ-t500x500.jpg">](https://soundcloud.com/jayronmusic/jayron-fiya-free-download)
 
-**Artist**: DeemZoo 
+**Artist**: Jayron 
 
-**Track**: Octbrfrst- Sin (DeemZoo Remix)
+**Track**: Jayron - FIYA! [FREE DOWNLOAD]
 
-Last updated at 12/16/2025, 6:22:57 PM
+Last updated at 12/16/2025, 6:23:57 PM
