@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EcX9ZnqsZLwsHar-GjmvdQ-t500x500.png">](https://soundcloud.com/markwilks/destiny-mark-wilks-remix-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-4BnG10cGPk7FWgRJ-rPynTQ-t500x500.jpg">](https://soundcloud.com/andersonphil251/bangingbeatz-of-187722052)
 
-**Artist**: Markus Schulz feat. Delacey 
+**Artist**: Phil Anderson 
 
-**Track**: Destiny (Mark Wilks Remix)
+**Track**: Bangingbeatz of bounce episode 71
 
-Last updated at 12/16/2025, 7:14:39 PM
+Last updated at 12/16/2025, 7:15:39 PM
