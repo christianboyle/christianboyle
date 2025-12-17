@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gcyDJzloqBh61bUF-c4zfQQ-t500x500.png">](https://soundcloud.com/initi8uk/initi8-anyone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EcX9ZnqsZLwsHar-GjmvdQ-t500x500.png">](https://soundcloud.com/markwilks/destiny-mark-wilks-remix-master)
 
-**Artist**: Initi8 
+**Artist**: Markus Schulz feat. Delacey 
 
-**Track**: Initi8 - Anyone
+**Track**: Destiny (Mark Wilks Remix)
 
-Last updated at 12/16/2025, 6:27:27 PM
+Last updated at 12/16/2025, 7:14:39 PM
