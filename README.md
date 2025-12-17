@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Rt8Go9nWsuzK0MP8-KYWjag-t500x500.jpg">](https://soundcloud.com/scottfarrimond/scott-f-kie-hughes-no-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDwcXwynrYHXYkGJ-y6z2pQ-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/mcgraf-inner-strength)
 
-**Artist**: Scott F 
+**Artist**: Rewired Records 
 
-**Track**: Scott F & Kie Hughes - No More Lies [sample]
+**Track**: McGraf - Inner Strength
 
-Last updated at 12/16/2025, 6:18:37 PM
+Last updated at 12/16/2025, 6:21:12 PM
