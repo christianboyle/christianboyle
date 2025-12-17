@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000156228030-kycyik-t500x500.jpg">](https://soundcloud.com/hyperforce/rescue-bombs-away-hyperforce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000154979645-6zjo39-t500x500.jpg">](https://soundcloud.com/hyperforce/hyperforce-cail-baroni-too-late-she-cries)
 
 **Artist**: Hyperforce (Panegyric) 
 
-**Track**: Rescue - Bombs Away (Hyperforce Remix)
+**Track**: Hyperforce & Cail Baroni - Too Late (She Cries)
 
-Last updated at 12/17/2025, 10:17:06 AM
+Last updated at 12/17/2025, 10:20:47 AM
