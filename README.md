@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rJs8fDKcKx8qYpqJ-5W4fTg-t500x500.jpg">](https://soundcloud.com/user-668791245/typical-t-party-love-makina-version)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Rt8Go9nWsuzK0MP8-KYWjag-t500x500.jpg">](https://soundcloud.com/scottfarrimond/scott-f-kie-hughes-no-more)
 
-**Artist**: TYPICAL T 
+**Artist**: Scott F 
 
-**Track**: TYPICAL T  - PARTY LOVE ❤️ 2025 🎅🏻
+**Track**: Scott F & Kie Hughes - No More Lies [sample]
 
-Last updated at 12/16/2025, 2:40:59 PM
+Last updated at 12/16/2025, 6:18:37 PM
