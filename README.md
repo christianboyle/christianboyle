@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rjDlQk8tLlf0iETe-d7TBKw-t500x500.jpg">](https://soundcloud.com/eddiegrandnj/all-i-want-for-christmas-is-you-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMlr9IkbpO8oPC25-KlNDiA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-specific-objects-zoster-trsn042)
 
-**Artist**: Mariah Carey 
+**Artist**: HATE, Specific Objects 
 
-**Track**: Mariah Carey - All I Want For Christmas Is You (EDDIE GRAND REMIX)
+**Track**: Premiere: Specific Objects — Zoster [TRSN042]
 
-Last updated at 12/17/2025, 8:23:01 AM
+Last updated at 12/17/2025, 10:01:40 AM
