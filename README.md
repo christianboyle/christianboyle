@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-4BnG10cGPk7FWgRJ-rPynTQ-t500x500.jpg">](https://soundcloud.com/andersonphil251/bangingbeatz-of-187722052)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V6gxiUJi0w3f276M-cWUFug-t500x500.png">](https://soundcloud.com/nullrecuk/static-lethal-connection-ft-jess-overload)
 
-**Artist**: Phil Anderson 
+**Artist**: NullRec 
 
-**Track**: Bangingbeatz of bounce episode 71
+**Track**: Static & Lethal Connection ft. Jess - Overload
 
-Last updated at 12/16/2025, 7:15:39 PM
+Last updated at 12/16/2025, 7:16:44 PM
