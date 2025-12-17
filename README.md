@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ytydC1kYKJumt2rk-hMr6ZA-t500x500.png">](https://soundcloud.com/benoit-prada/this-is-the-groove-radio-show-102)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQCAs4zSUVzieSPh-IZxdrQ-t500x500.png">](https://soundcloud.com/nullrecuk/static-2001-intro-mix)
 
-**Artist**: B-Prada 
+**Artist**: Static 
 
-**Track**: This Is The Groove Radio Show #102
+**Track**: Static - 2001 (Intro Mix)
 
-Last updated at 12/17/2025, 10:26:17 AM
+Last updated at 12/17/2025, 10:30:53 AM
