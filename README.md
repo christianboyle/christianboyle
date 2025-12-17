@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2EcX9ZnqsZLwsHar-GjmvdQ-t500x500.png">](https://soundcloud.com/markwilks/destiny-mark-wilks-remix-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000471778749-m7heuj-t500x500.jpg">](https://soundcloud.com/dj-peth/mixtape-001-djpetrutes-150bpm)
 
-**Artist**: Markus Schulz feat. Delacey 
+**Artist**: DjPeth 
 
-**Track**: Destiny (Mark Wilks Remix)
+**Track**: MixTape 001 [DjPetrutes] 150bpm
 
-Last updated at 12/17/2025, 10:24:17 AM
+Last updated at 12/17/2025, 10:25:17 AM
