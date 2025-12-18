@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sGjTMaa1LQH7VeJ5-1eyvlQ-t500x500.jpg">](https://soundcloud.com/cheekytracks/better-off-alone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fxGjMtmltMHnIZ30-Nbv82w-t500x500.png">](https://soundcloud.com/dj-davemac/dave-mac-mc-ldot)
 
-**Artist**: Catchy 
+**Artist**: DJ Dave Mac - Project Havoc 
 
-**Track**: Catchy - Better Off Alone - OUT NOW
+**Track**: DAVE MAC & MC LDOT
 
-Last updated at 12/17/2025, 8:21:27 PM
+Last updated at 12/17/2025, 8:23:53 PM
