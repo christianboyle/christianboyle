@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jaKuh1wX6okyQaoy-6YdyWg-t500x500.jpg">](https://soundcloud.com/mr_ours-1/mr-ours-christmas-baddadan-no-intro-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAsOIkTFqpIwjzSn-1MwgOQ-t500x500.jpg">](https://soundcloud.com/angel-dubz/margwa)
 
-**Artist**: Mr. Ours 
+**Artist**: ANGEL 
 
-**Track**: Mr. Ours - Christmas Baddadan (no intro)
+**Track**: ANGEL - MARGWA (FREE DL)
 
-Last updated at 12/19/2025, 9:08:07 AM
+Last updated at 12/19/2025, 9:09:07 AM
