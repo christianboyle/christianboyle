@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1kn8v5cUg6yB2WzK-QRXMAA-t500x500.jpg">](https://soundcloud.com/lumberjvck/nofacenocase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-seXlVWi0JJwq3DGp-a0hzuw-t500x500.png">](https://soundcloud.com/senridubs/midroll-rolling-midz-senri-math-vip-9k-free-download)
 
-**Artist**: LUMBERJVCK 
+**Artist**: SENRI, MIDROLL!!!™ 
 
-**Track**: NO FACE NO CASE
+**Track**: MIDROLL - ROLLING MIDZ (SENRI "MATH" VIP) [FREE DOWNLOAD]
 
-Last updated at 12/19/2025, 9:42:10 AM
+Last updated at 12/19/2025, 9:43:10 AM
