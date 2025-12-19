@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfs6GWVehQX0-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/the-final-verdict)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nre4FWYrNnW2Jmnx-TTzH7Q-t500x500.png">](https://soundcloud.com/kimatimusic/wiz-khalifa-work-hard-play-hard-kimati-flip)
 
-**Artist**: Abaddon 
+**Artist**: Kimati 
 
-**Track**: The Final Verdict
+**Track**: Wiz Khalifa - Work hard, Play hard (Kimati Flip)
 
-Last updated at 12/19/2025, 10:17:03 AM
+Last updated at 12/19/2025, 10:18:03 AM
