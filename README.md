@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vCoK0sUEBtjDG3K-B1KIzw-t500x500.png">](https://soundcloud.com/aramis-pastran/aramis-feel-the-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gh0u3apY5dCIIYWd-zahMtQ-t500x500.jpg">](https://soundcloud.com/d1vwv/ahk)
 
-**Artist**: Aramís 
+**Artist**: d1v, with3r 
 
-**Track**: Aramis Pastran - Feel The Bounce [FREE DOWNLOAD]
+**Track**: d1v+with3r - AHK
 
-Last updated at 12/19/2025, 9:11:17 AM
+Last updated at 12/19/2025, 9:12:17 AM
