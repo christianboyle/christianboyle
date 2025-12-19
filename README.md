@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-seXlVWi0JJwq3DGp-a0hzuw-t500x500.png">](https://soundcloud.com/senridubs/midroll-rolling-midz-senri-math-vip-9k-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfs6GWVehQX0-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/the-final-verdict)
 
-**Artist**: SENRI, MIDROLL!!!™ 
+**Artist**: Abaddon 
 
-**Track**: MIDROLL - ROLLING MIDZ (SENRI "MATH" VIP) [FREE DOWNLOAD]
+**Track**: The Final Verdict
 
-Last updated at 12/19/2025, 9:43:10 AM
+Last updated at 12/19/2025, 10:17:03 AM
