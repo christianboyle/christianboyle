@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-64nyuGz2GMnjt54G-4eDdhg-t500x500.png">](https://soundcloud.com/ninajirachi/fmc-fc?in=ninajirachi/sets/i-love-my-computer-r-e-m-i-x-e)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1kn8v5cUg6yB2WzK-QRXMAA-t500x500.jpg">](https://soundcloud.com/lumberjvck/nofacenocase)
 
-**Artist**: Ninajirachi 
+**Artist**: LUMBERJVCK 
 
-**Track**: Fuck My Computer (Frost Children Remix)
+**Track**: NO FACE NO CASE
 
-Last updated at 12/19/2025, 9:20:13 AM
+Last updated at 12/19/2025, 9:42:10 AM
