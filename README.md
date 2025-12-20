@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDzuRa2p5ZPyiAnx-Q8biZg-t500x500.png">](https://soundcloud.com/seek-n-destroy/paramore-alliwanted-seekndestroyremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pvguu7rN3ds8rhdX-qACgpw-t500x500.jpg">](https://soundcloud.com/officialb2s/lovely-launch-geck-o-get-on-the-train-decibel-outdoor-2025-saturday-pussy-lounge-7)
 
-**Artist**: Seek N Destroy 
+**Artist**: officialb2s 
 
-**Track**: Paramore - All I Wanted (Seek N Destroy Remix)
+**Track**: Lovely Launch Geck-O: Get on the Train | Decibel outdoor 2025 | Saturday | Pussy Lounge
 
-Last updated at 12/20/2025, 10:44:10 AM
+Last updated at 12/20/2025, 11:50:37 AM
