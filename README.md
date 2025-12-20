@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-krZVyqDC47RkbMpV-t4k8NA-t500x500.jpg">](https://soundcloud.com/user-206098042/its-a-dream-remix-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9i7zbQadLKPg6lb-yoO6yw-t500x500.jpg">](https://soundcloud.com/inductordx/gib-mir-die-bass-inductor)
 
-**Artist**: Makina Madness 
+**Artist**: Inductor 
 
-**Track**: CQR - Its A Dream (2025) wip
+**Track**: Tschabos - Gib Mir Die Bass (Inductor Schranz Remix) (FREEDL)
 
-Last updated at 12/20/2025, 3:33:03 PM
+Last updated at 12/20/2025, 3:34:48 PM
