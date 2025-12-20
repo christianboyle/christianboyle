@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w3bM2218nXIyPGgg-hlMXVg-t500x500.png">](https://soundcloud.com/iamleesproat/lee-sproat-december-bounce-mix-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V6gxiUJi0w3f276M-cWUFug-t500x500.png">](https://soundcloud.com/nullrecuk/static-lethal-connection-ft-jess-overload)
 
-**Artist**: Lee Sproat 
+**Artist**: NullRec 
 
-**Track**: Lee Sproat December Bounce Mix 2025
+**Track**: Static & Lethal Connection ft. Jess - Overload
 
-Last updated at 12/19/2025, 10:21:29 AM
+Last updated at 12/20/2025, 6:45:05 AM
