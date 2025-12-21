@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-36tiAYfgGEXffBnz-djBkyg-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/dj-moff-exclusives-more-12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ldzlQgdR5SpKpbmr-3eT8cg-t500x500.jpg">](https://soundcloud.com/hate_music/oton-hate-podcast-468)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: HATE, OTON  
 
-**Track**: Dj Moff-Exclusives & More 1.2 (Xmas Edition)
+**Track**: OTON — HATE Podcast 468
 
-Last updated at 12/21/2025, 7:46:26 AM
+Last updated at 12/21/2025, 7:51:11 AM
