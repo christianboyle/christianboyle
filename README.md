@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyn7uB98YCFKrLmu-OI8L5w-t500x500.jpg">](https://soundcloud.com/corebeats03/daft-punk-technologic-noise-mafia-editsummer-hits-30)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TgxGMf2T0du5c3Lt-zHjpzA-t500x500.jpg">](https://soundcloud.com/juchs/maddix-open-sesame-juchs-edit1)
 
-**Artist**: Core Beats 
+**Artist**: Juchs! 
 
-**Track**: Daft Punk - Technologic  (Noise Mafia EDIT)(SUMMER HITS 3.0)
+**Track**: Maddix - Open Sesame (Rorey Remix) Juchs! Edit (FREE DOWNLOAD)
 
-Last updated at 12/22/2025, 9:25:05 AM
+Last updated at 12/22/2025, 9:40:00 AM
