@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jThnTgi0ny3mAy5T-Q7BIPA-t500x500.jpg">](https://soundcloud.com/steff-little/892f71e6-3ebf-45be-9381-4ee8abc99c6c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4WwutC3MOSqwukA-7t0vBg-t500x500.png">](https://soundcloud.com/gaz-fort/tiesto-live-from-the-pyramids)
 
-**Artist**: Steff Little  
+**Artist**: Gaz Fort 
 
-**Track**: Infinite - Unstoppable (Steff little Remix)
+**Track**: Tiësto Live from the Pyramids 2025
 
-Last updated at 12/21/2025, 7:31:19 PM
+Last updated at 12/21/2025, 7:36:39 PM
