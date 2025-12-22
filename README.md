@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpH5qjGHym5TuLYu-12eJjw-t500x500.jpg">](https://soundcloud.com/djlittlepea/rec050)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbY2R02TEXLkxAiy-2kPtcg-t500x500.jpg">](https://soundcloud.com/user-667408965/audioboyz-feat-roachy-picking)
 
-**Artist**: DJ LittlePea 
+**Artist**: ROACHY 
 
-**Track**: LittlePea Bounce Bangers Part Two
+**Track**: AudioBoyz Feat Roachy - Picking Up The Pieces [Radio Edit]
 
-Last updated at 12/21/2025, 7:01:25 PM
+Last updated at 12/21/2025, 7:02:31 PM
