@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hjtbyr6Cvz88LCV6-fH6aZA-t500x500.png">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-the-girl-86)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YyiVBOMtgGZ2ztQQ-ot3x0g-t500x500.png">](https://soundcloud.com/middleearthentertainment/bassquake)
 
-**Artist**: the girl 
+**Artist**: Indubitably 
 
-**Track**: LIVE FROM EARTH Mix w/ the girl (86)
+**Track**: Bassquake
 
-Last updated at 12/22/2025, 2:31:39 PM
+Last updated at 12/22/2025, 2:33:36 PM
