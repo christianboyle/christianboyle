@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYp7QEb9QV9uyRHN-QE0PdQ-t500x500.png">](https://soundcloud.com/djjoetaylor/joe-tayor-i-wont-let-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNVPFzy9ZiLTaTaz-9NlyWw-t500x500.png">](https://soundcloud.com/djdougster-gibson/djdougster-in-the-mix-1)
 
-**Artist**: DJ JoE TaY!oR 
+**Artist**: djdougster gibson 
 
-**Track**: JoE TaY!oR - I Won't Let Go
+**Track**: DJDOUGSTER IN THE MIX
 
-Last updated at 12/22/2025, 2:35:21 PM
+Last updated at 12/22/2025, 3:11:40 PM
