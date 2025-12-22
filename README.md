@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6a6hyoElVB6K8sH1-AQEt8Q-t500x500.jpg">](https://soundcloud.com/svrgnx/fe628415-d950-4513-b7b3-3c335bc0b8aa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura)
 
-**Artist**: SVRGN 
+**Artist**: Virtual Riot, Eliminate, Crumb Pit 
 
-**Track**: Tremor (5VRGN Edit)
+**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
 
-Last updated at 12/22/2025, 9:44:35 AM
+Last updated at 12/22/2025, 2:26:38 PM
