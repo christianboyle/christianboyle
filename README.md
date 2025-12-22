@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TgxGMf2T0du5c3Lt-zHjpzA-t500x500.jpg">](https://soundcloud.com/juchs/maddix-open-sesame-juchs-edit1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6a6hyoElVB6K8sH1-AQEt8Q-t500x500.jpg">](https://soundcloud.com/svrgnx/fe628415-d950-4513-b7b3-3c335bc0b8aa)
 
-**Artist**: Juchs! 
+**Artist**: SVRGN 
 
-**Track**: Maddix - Open Sesame (Rorey Remix) Juchs! Edit (FREE DOWNLOAD)
+**Track**: Tremor (5VRGN Edit)
 
-Last updated at 12/22/2025, 9:40:00 AM
+Last updated at 12/22/2025, 9:44:35 AM
