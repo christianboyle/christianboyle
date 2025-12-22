@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BtLQgSCy7KN1tnVL-JFxjUw-t500x500.jpg">](https://soundcloud.com/logan-17222564/l2gxn-lover-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nyn7uB98YCFKrLmu-OI8L5w-t500x500.jpg">](https://soundcloud.com/corebeats03/daft-punk-technologic-noise-mafia-editsummer-hits-30)
 
-**Artist**: L2GXN (LOGY-B) - S.B.L - PROJECT HAVOC 
+**Artist**: Core Beats 
 
-**Track**: L2GXN - LOVER (WIP)
+**Track**: Daft Punk - Technologic  (Noise Mafia EDIT)(SUMMER HITS 3.0)
 
-Last updated at 12/22/2025, 9:24:05 AM
+Last updated at 12/22/2025, 9:25:05 AM
