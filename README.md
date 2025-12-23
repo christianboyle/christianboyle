@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OPySVKQ7gMVszPpS-y0yZ7A-t500x500.png">](https://soundcloud.com/ninajirachi/csiraceffy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2f4thTKPZ0sf95Zz-4ro18g-t500x500.png">](https://soundcloud.com/marlonhoffstadt/yeat-come-n-go-marlon-hoffstadt-edit)
 
-**Artist**: Ninajirachi 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: CSIRAC (Effy Remix)
+**Track**: Yeat - COMË N GO  (Marlon Hoffstadt Edit)
 
-Last updated at 12/23/2025, 4:55:19 PM
+Last updated at 12/23/2025, 4:59:25 PM
