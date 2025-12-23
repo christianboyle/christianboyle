@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jn5oJPBu7J6bSCX0-NtlMyw-t500x500.jpg">](https://soundcloud.com/darren-j-3/daz-mooney-1k-followers-quality-bounce-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jk2QJImACWupwtBa-tUmgbQ-t500x500.png">](https://soundcloud.com/seductive-noise/keep-me-in-orbit)
 
-**Artist**: Daz Mooney (Quality Bounce) 
+**Artist**: Silhouetted Horizons 
 
-**Track**: Daz Mooney 1K Followers  Quality Bounce mix
+**Track**: Keep Me in Orbit (SNR0003)
 
-Last updated at 12/23/2025, 8:39:33 AM
+Last updated at 12/23/2025, 8:40:33 AM
