@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynAoZF20E40Yvycu-346FGQ-t500x500.jpg">](https://soundcloud.com/alu-rsa/keanu-raves-the-cc-is-for-crowd-control-master-v1-arthurvanwassenhove-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jn5oJPBu7J6bSCX0-NtlMyw-t500x500.jpg">](https://soundcloud.com/darren-j-3/daz-mooney-1k-followers-quality-bounce-mix)
 
-**Artist**: ALU 
+**Artist**: Daz Mooney (Quality Bounce) 
 
-**Track**: Keanu Raves - The CC Is For Crowd Control
+**Track**: Daz Mooney 1K Followers  Quality Bounce mix
 
-Last updated at 12/23/2025, 8:38:32 AM
+Last updated at 12/23/2025, 8:39:33 AM
