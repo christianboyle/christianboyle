@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGkWGM03pqfmfBve-tuVBpg-t500x500.jpg">](https://soundcloud.com/timcosmos/kate-bush-running-up-that-hill-tim-cosmos-funky-remixfree-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2f4thTKPZ0sf95Zz-4ro18g-t500x500.png">](https://soundcloud.com/marlonhoffstadt/yeat-come-n-go-marlon-hoffstadt-edit)
 
-**Artist**: Tim Cosmos 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Kate Bush - Running Up That Hill (Tim Cosmos Funky Remix) [HYPEDDIT #01 NUDISCO CHART]
+**Track**: Yeat - COMË N GO  (Marlon Hoffstadt Edit)
 
-Last updated at 12/23/2025, 8:47:09 AM
+Last updated at 12/23/2025, 1:41:14 PM
