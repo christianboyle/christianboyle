@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNVPFzy9ZiLTaTaz-9NlyWw-t500x500.png">](https://soundcloud.com/djdougster-gibson/djdougster-in-the-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7sKyF2jJsdxzxlDL-mp8eMQ-t500x500.jpg">](https://soundcloud.com/hgods/bad-flesh)
 
-**Artist**: djdougster gibson 
+**Artist**: HGods 
 
-**Track**: DJDOUGSTER IN THE MIX
+**Track**: BAD FLESH
 
-Last updated at 12/23/2025, 8:36:27 AM
+Last updated at 12/23/2025, 8:37:32 AM
