@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dze1wGjb7TkMqdZm-tuYsug-t500x500.png">](https://soundcloud.com/magma_bass/no-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzik2KXHgX7FK92i-DA9FLA-t500x500.jpg">](https://soundcloud.com/k-oneee/good-lies-above-ground-mix)
 
-**Artist**: MAGMA 
+**Artist**: K.ONE 
 
-**Track**: No Control
+**Track**: Good Lies (Above Ground Mix)
 
-Last updated at 12/23/2025, 5:03:35 PM
+Last updated at 12/23/2025, 5:05:25 PM
