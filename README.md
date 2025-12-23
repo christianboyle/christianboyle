@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rIDLCDfRWFUUGsH5-bEONiA-t500x500.jpg">](https://soundcloud.com/darn84/m-zone-ds-33-bank-holiday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DGkWGM03pqfmfBve-tuVBpg-t500x500.jpg">](https://soundcloud.com/timcosmos/kate-bush-running-up-that-hill-tim-cosmos-funky-remixfree-dl)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Tim Cosmos 
 
-**Track**: M-Zone @ DS 33 - Bank Holiday Payback - Part 2 (28/08/1999)
+**Track**: Kate Bush - Running Up That Hill (Tim Cosmos Funky Remix) [HYPEDDIT #01 NUDISCO CHART]
 
-Last updated at 12/23/2025, 8:45:48 AM
+Last updated at 12/23/2025, 8:47:09 AM
