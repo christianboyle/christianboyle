@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pf6o5ynInDe83l5a-uGR3vA-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-x-lee-keenan-burn-for-you-2025-remix-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1AS4GNB2X6iwyfz-iRU2kA-t500x500.png">](https://soundcloud.com/wakaan/gardella-havoc-toad-tune)
 
-**Artist**: DRIFT & LEE KEENAN 
+**Artist**: Gardella, Havoc 
 
-**Track**: DRIFT X LEE KEENAN - BURN FOR YOU (2025 REMIX) OUT NOW
+**Track**: Gardella, Havoc - Toad Tune
 
-Last updated at 12/23/2025, 8:41:38 AM
+Last updated at 12/23/2025, 8:43:18 AM
