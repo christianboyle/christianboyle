@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BxDUbprJtd4Sczk-5S0luw-t500x500.jpg">](https://soundcloud.com/earth-hz/volume-unit-dispersion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EbIt4g3SujZ6-0-t500x500.jpg">](https://soundcloud.com/thepogues/fairytale-of-new-york-2)
 
-**Artist**: earth Hz 
+**Artist**: The Pogues, Kirsty MacColl 
 
-**Track**: Volume Unit - dispersion
+**Track**: Fairytale of New York (Instrumental)
 
-Last updated at 12/24/2025, 9:57:39 AM
+Last updated at 12/24/2025, 9:58:54 AM
