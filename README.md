@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4E6hsRQ2ckRFzyh1-Ghfj6w-t500x500.png">](https://soundcloud.com/enfor_music/the-prodigy-funky-shit-cibus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOR7sl1tzseHAgWy-DBPyUg-t500x500.png">](https://soundcloud.com/3nthal/still-waiting)
 
-**Artist**: ENFOR 
+**Artist**: 3NTHAL 
 
-**Track**: The Prodigy - Funky Shit (CIBUS & ENFOR HARD RMX)
+**Track**: Sum 41 - Still waiting (3NTHAL Remix)
 
-Last updated at 12/24/2025, 9:49:03 AM
+Last updated at 12/24/2025, 9:50:39 AM
