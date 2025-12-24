@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydSD3qJAB6hvJWzq-zM1k9A-t500x500.png">](https://soundcloud.com/humble-bass-records/prometheus-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dt8hLPuGxXeaklas-rTekqg-t500x500.png">](https://soundcloud.com/ketamakina/ketamakina-ft-siobbhan-mackin-i-wonder-rvrz-records-out-now)
 
-**Artist**: Pride Music 
+**Artist**: Ketamakina 
 
-**Track**: Prometheus
+**Track**: Ketamakina Ft. Siobbhan Mackin - I Wonder (RVRZ Records) *OUT NOW*
 
-Last updated at 12/24/2025, 11:08:59 AM
+Last updated at 12/24/2025, 11:14:46 AM
