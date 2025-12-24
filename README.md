@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A5JHx4CTKmTFifC9-vumGOQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-blitz1-heart-bleeds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P1XyeHEHNKaNryyB-AQAsYg-t500x500.png">](https://soundcloud.com/eufeion/upsidedown)
 
-**Artist**: DJ Blitz1 
+**Artist**: Eufeion  
 
-**Track**: DJ Blitz1 - Heart Bleeds
+**Track**: Into The Upside Down - (Release Boxing Day 2025)
 
-Last updated at 12/24/2025, 9:52:24 AM
+Last updated at 12/24/2025, 9:54:44 AM
