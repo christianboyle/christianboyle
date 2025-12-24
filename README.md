@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3R25yltR3HYyR8I-Yv37jA-t500x500.png">](https://soundcloud.com/djmizzt/mizz-t-claires-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydSD3qJAB6hvJWzq-zM1k9A-t500x500.png">](https://soundcloud.com/humble-bass-records/prometheus-1)
 
-**Artist**: Dj Mizz T 
+**Artist**: Pride Music 
 
-**Track**: Mizz-T - Claire's Mix
+**Track**: Prometheus
 
-Last updated at 12/24/2025, 11:08:00 AM
+Last updated at 12/24/2025, 11:08:59 AM
