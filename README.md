@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P1XyeHEHNKaNryyB-AQAsYg-t500x500.png">](https://soundcloud.com/eufeion/upsidedown)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BxDUbprJtd4Sczk-5S0luw-t500x500.jpg">](https://soundcloud.com/earth-hz/volume-unit-dispersion)
 
-**Artist**: Eufeion  
+**Artist**: earth Hz 
 
-**Track**: Into The Upside Down - (Release Boxing Day 2025)
+**Track**: Volume Unit - dispersion
 
-Last updated at 12/24/2025, 9:54:44 AM
+Last updated at 12/24/2025, 9:57:39 AM
