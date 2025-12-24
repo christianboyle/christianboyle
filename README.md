@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9mPFlCz8uXJVh2H-0kt6yg-t500x500.png">](https://soundcloud.com/azassin/one-hell-of-a-life-fossils-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3R25yltR3HYyR8I-Yv37jA-t500x500.png">](https://soundcloud.com/djmizzt/mizz-t-claires-mix)
 
-**Artist**: AZASSIN, FOSSILS 
+**Artist**: Dj Mizz T 
 
-**Track**: ONE HELL OF A LIFE - (FOSSILS X AZASSIN REMIX)
+**Track**: Mizz-T - Claire's Mix
 
-Last updated at 12/24/2025, 9:59:54 AM
+Last updated at 12/24/2025, 11:08:00 AM
