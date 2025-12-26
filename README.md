@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjbTukaqyDQsejLs-J9UeTA-t500x500.png">](https://soundcloud.com/7senss/frostbite-maple-with3r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E9LNheoOYvAn1Jlh-cDdDkg-t500x500.png">](https://soundcloud.com/user-533446488/boxing-day-bangers)
 
-**Artist**: Senses 
+**Artist**: DJ Crisis 
 
-**Track**: frostbite  (maple + with3r)
+**Track**: Boxing Day bangers
 
-Last updated at 12/26/2025, 4:53:04 PM
+Last updated at 12/26/2025, 4:56:10 PM
