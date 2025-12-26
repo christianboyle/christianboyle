@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3R25yltR3HYyR8I-Yv37jA-t500x500.png">](https://soundcloud.com/djmizzt/mizz-t-claires-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KhAaHdbVBGbtBtY6-NgKBPA-t500x500.jpg">](https://soundcloud.com/afrotricks/gdrl-get-down-real-low)
 
-**Artist**: Dj Mizz T 
+**Artist**: AFROTRICKS☑️ ⚔️ 
 
-**Track**: Mizz-T - Claire's Mix
+**Track**: AFROTRICKS- GDRL (Get Down Real Low)
 
-Last updated at 12/25/2025, 7:04:35 AM
+Last updated at 12/25/2025, 6:42:34 PM
