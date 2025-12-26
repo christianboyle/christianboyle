@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pnhTqyBsfxt8TPHC-1JdERA-t500x500.png">](https://soundcloud.com/nobodyhardcore/poisontree?in=justicehardcore/sets/nobody-going-under-thealbum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r3R25yltR3HYyR8I-Yv37jA-t500x500.png">](https://soundcloud.com/djmizzt/mizz-t-claires-mix)
 
-**Artist**: Nobody (Justice Hardcore) 
+**Artist**: Dj Mizz T 
 
-**Track**: Nobody - Poison Tree [GOING UNDER 'THE ALBUM] PRE SAVE NOW
+**Track**: Mizz-T - Claire's Mix
 
-Last updated at 12/25/2025, 6:44:54 PM
+Last updated at 12/26/2025, 8:16:15 AM
