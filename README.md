@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBD8jya5K8VLl40p-iuSDOA-t500x500.jpg">](https://soundcloud.com/hexed-official/this-is-why-im-hot-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0iksxfXCQAAEIXib-zRlF8w-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/pro-basic-be-my-lover-2025?in=revolution-records-uk/sets/out-next-friday)
 
-**Artist**: HEXED 
+**Artist**: Revolution-Records UK 
 
-**Track**: MIMS - THIS IS WHY I'M HOT (HEXED FLIP)
+**Track**: PRO-BASIC - BE MY LOVER 2025 (BUMPING)
 
-Last updated at 12/26/2025, 3:09:10 PM
+Last updated at 12/26/2025, 3:10:20 PM
