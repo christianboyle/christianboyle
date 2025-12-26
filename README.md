@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9OS5yt2ATNDNcL3Q-v4OXCg-t500x500.png">](https://soundcloud.com/sbokesmusic/drift-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8BxDUbprJtd4Sczk-5S0luw-t500x500.jpg">](https://soundcloud.com/earth-hz/volume-unit-refraction)
 
-**Artist**: SBOKES 
+**Artist**: earth Hz 
 
-**Track**: Drift Control
+**Track**: Volume Unit - refraction
 
-Last updated at 12/26/2025, 4:16:46 PM
+Last updated at 12/26/2025, 4:17:46 PM
