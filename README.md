@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZci5nonpzyWqoYN-ibkT0w-t500x500.jpg">](https://soundcloud.com/sopranosbounce/pitch-invader-lover-that-rocks-sopranos-sounds-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDNN5oJMoIKjJlA6-a7Dg2A-t500x500.png">](https://soundcloud.com/wakaan/shanghai-doom-wreckno-tsimba-out-for-the-count)
 
-**Artist**: Sopranos Bounce 
+**Artist**: Shanghai Doom, Wreckno, Tsimba 
 
-**Track**: Pitch Invader - Lover That Rocks | Sopranos Sounds **FREE DOWNLOAD**
+**Track**: Shanghai Doom, Wreckno, Tsimba - Out For The Count
 
-Last updated at 12/26/2025, 4:40:48 PM
+Last updated at 12/26/2025, 4:42:03 PM
