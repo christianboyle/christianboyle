@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000282728966-setfrp-t500x500.jpg">](https://soundcloud.com/bubba_davidson15/fuckingg-tunee)
 
-**Artist**: Aidan McCrae 
+**Artist**: bubba♛ 
 
-**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
+**Track**: fuckingg tunee
 
-Last updated at 12/26/2025, 3:07:10 PM
+Last updated at 12/26/2025, 3:08:10 PM
