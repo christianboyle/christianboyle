@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E9LNheoOYvAn1Jlh-cDdDkg-t500x500.png">](https://soundcloud.com/user-533446488/boxing-day-bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1)
 
-**Artist**: DJ Crisis 
+**Artist**: mersichrist, deepinparis, apkghost, crusafix 
 
-**Track**: Boxing Day bangers
+**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
 
-Last updated at 12/26/2025, 4:56:10 PM
+Last updated at 12/26/2025, 5:28:16 PM
