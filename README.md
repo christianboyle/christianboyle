@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZci5nonpzyWqoYN-ibkT0w-t500x500.jpg">](https://soundcloud.com/sopranosbounce/cal-juss-dropz-sopranos-sounds-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwopZ9025dk944h3-ALXiXw-t500x500.png">](https://soundcloud.com/paul-maxwell-476935967/boxing-day-house-vibes)
 
-**Artist**: Sopranos Bounce 
+**Artist**: MAXI 
 
-**Track**: Cal - Juss Dropz | Sopranos Sounds **FREE DOWNLOAD**
+**Track**: Boxing Day House Vibes
 
-Last updated at 12/26/2025, 4:21:26 PM
+Last updated at 12/26/2025, 4:34:18 PM
