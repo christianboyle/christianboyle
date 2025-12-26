@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mwopZ9025dk944h3-ALXiXw-t500x500.png">](https://soundcloud.com/paul-maxwell-476935967/boxing-day-house-vibes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yZci5nonpzyWqoYN-ibkT0w-t500x500.jpg">](https://soundcloud.com/sopranosbounce/pitch-invader-lover-that-rocks-sopranos-sounds-free-download)
 
-**Artist**: MAXI 
+**Artist**: Sopranos Bounce 
 
-**Track**: Boxing Day House Vibes
+**Track**: Pitch Invader - Lover That Rocks | Sopranos Sounds **FREE DOWNLOAD**
 
-Last updated at 12/26/2025, 4:34:18 PM
+Last updated at 12/26/2025, 4:40:48 PM
