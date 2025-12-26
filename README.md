@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dwdUqveZ8Dhf-0-t500x500.jpg">](https://soundcloud.com/tall-paul-official/trick-and-kubic?in=tall-paul-official/sets/the-beat-technique)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg)
 
-**Artist**: Tall Paul 
+**Artist**: Aidan McCrae 
 
-**Track**: Trick And Kubic (feat. Valeska)
+**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
 
-Last updated at 12/26/2025, 4:44:04 PM
+Last updated at 12/26/2025, 4:47:09 PM
