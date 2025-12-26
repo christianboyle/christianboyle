@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gWc2viXPwleybj0g-f6GydA-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/joz-b-smithy-fx-destiny?in=revolution-records-uk/sets/out-next-friday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2bbyzmnYeAUhvCud-t0DqYQ-t500x500.png">](https://soundcloud.com/muti/audiovoid-dusty-orchid)
 
-**Artist**: Revolution-Records UK 
+**Artist**: Audiovoid 
 
-**Track**: JOZ B & SMITHY FX - DESTINY
+**Track**: Audiovoid - Dusty Orchid
 
-Last updated at 12/26/2025, 3:11:20 PM
+Last updated at 12/26/2025, 3:12:24 PM
