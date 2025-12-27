@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBD8jya5K8VLl40p-iuSDOA-t500x500.jpg">](https://soundcloud.com/hexed-official/this-is-why-im-hot-flip)
 
-**Artist**: mersichrist, deepinparis, apkghost, crusafix 
+**Artist**: HEXED 
 
-**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
+**Track**: MIMS - THIS IS WHY I'M HOT (HEXED FLIP)
 
-Last updated at 12/27/2025, 7:14:38 AM
+Last updated at 12/27/2025, 1:22:27 PM
