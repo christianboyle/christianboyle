@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBD8jya5K8VLl40p-iuSDOA-t500x500.jpg">](https://soundcloud.com/hexed-official/this-is-why-im-hot-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg)
 
-**Artist**: HEXED 
+**Artist**: Aidan McCrae 
 
-**Track**: MIMS - THIS IS WHY I'M HOT (HEXED FLIP)
+**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
 
-Last updated at 12/27/2025, 1:22:27 PM
+Last updated at 12/27/2025, 1:27:18 PM
