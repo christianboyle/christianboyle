@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E9LNheoOYvAn1Jlh-cDdDkg-t500x500.png">](https://soundcloud.com/user-533446488/boxing-day-bangers)
 
-**Artist**: Aidan McCrae 
+**Artist**: DJ Crisis 
 
-**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
+**Track**: Boxing Day bangers
 
-Last updated at 12/27/2025, 1:27:18 PM
+Last updated at 12/27/2025, 1:31:13 PM
