@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UtDBd7xuekqXOgPM-YSsHBQ-t500x500.png">](https://soundcloud.com/mkevents/cal-red-valentines-special-2026-promo-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pf4Kc8Ltawd0RtUN-ybfWyQ-t500x500.png">](https://soundcloud.com/anthem-power/e-s-christmas-mix-esline)
 
-**Artist**: Cal Red 
+**Artist**: ESLINE, SLAMMA 
 
-**Track**: Cal Red - Valentines Special 2026 Promo Mix
+**Track**: E&S Christmas Mix (Esline & Slamma)
 
-Last updated at 12/28/2025, 11:47:05 AM
+Last updated at 12/28/2025, 11:48:50 AM
