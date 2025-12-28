@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4v0dPZk7WBD7b84S-Y0Ly9w-t500x500.jpg">](https://soundcloud.com/officialflozone/chase-status-x-bou-baddadan-flozone-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZdtWt9VZzToHbNGI-ZEadPw-t500x500.png">](https://soundcloud.com/volumeunitmusic/crystalize-flip-1)
 
-**Artist**: flozone 
+**Artist**: Volume Unit 
 
-**Track**: chase & status x bou - baddadan (flozone flip)
+**Track**: John Summit - Crystallized (feat. Inéz) [Volume Unit Flip]
 
-Last updated at 12/28/2025, 9:13:26 AM
+Last updated at 12/28/2025, 9:16:01 AM
