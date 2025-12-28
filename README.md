@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bUIwI3yFZUqR43PD-z9hpvg-t500x500.png">](https://soundcloud.com/djkenty/kenty-track-id-unreleased-tunes-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UtDBd7xuekqXOgPM-YSsHBQ-t500x500.png">](https://soundcloud.com/mkevents/cal-red-valentines-special-2026-promo-mix)
 
-**Artist**: DJ Kenty 
+**Artist**: Cal Red 
 
-**Track**: Kenty - Track ID ? *Unreleased Tunes Mix*
+**Track**: Cal Red - Valentines Special 2026 Promo Mix
 
-Last updated at 12/28/2025, 11:46:05 AM
+Last updated at 12/28/2025, 11:47:05 AM
