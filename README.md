@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E9LNheoOYvAn1Jlh-cDdDkg-t500x500.png">](https://soundcloud.com/user-533446488/boxing-day-bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OPySVKQ7gMVszPpS-y0yZ7A-t500x500.png">](https://soundcloud.com/ninajirachi/csiraceffy)
 
-**Artist**: DJ Crisis 
+**Artist**: Ninajirachi 
 
-**Track**: Boxing Day bangers
+**Track**: CSIRAC (Effy Remix)
 
-Last updated at 12/27/2025, 1:31:13 PM
+Last updated at 12/28/2025, 6:30:30 AM
