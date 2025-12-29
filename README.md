@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vjibbAdExwJken8M-oly2IQ-t500x500.png">](https://soundcloud.com/fatalenergyrecords/d-railed-chainsaw-revolt-2026-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVYSwtahkYtnQezL-tBIDkA-t500x500.jpg">](https://soundcloud.com/bassrush/ravenscoon-wiley-stomp-out)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Ravenscoon, Wiley 
 
-**Track**: D-Railed - Chainsaw Revolt (2026 Remix)
+**Track**: Ravenscoon & Wiley - STOMP OUT
 
-Last updated at 12/29/2025, 7:04:36 AM
+Last updated at 12/29/2025, 7:40:17 AM
