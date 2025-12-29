@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G1PkOLDJqEnTBZIh-nr9b5w-t500x500.png">](https://soundcloud.com/djfinny1/bouncy-streams-live-271225)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-haF4Wuly5HrgZZrf-wKcZgw-t500x500.png">](https://soundcloud.com/djmarshy1984/bounce-madness-set-marshy)
 
-**Artist**: djfinny1 (Darren Finlayson) 
+**Artist**: Marshy 
 
-**Track**: Bouncy Streams Live 271225
+**Track**: Bounce Madness Set - Marshy
 
-Last updated at 12/29/2025, 8:03:11 AM
+Last updated at 12/29/2025, 8:16:12 AM
