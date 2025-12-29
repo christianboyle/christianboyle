@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-haF4Wuly5HrgZZrf-wKcZgw-t500x500.png">](https://soundcloud.com/djmarshy1984/bounce-madness-set-marshy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J9JtVIsCH2RFFzLS-Q4Lr7w-t500x500.jpg">](https://soundcloud.com/claredowney/fantasty-mix)
 
-**Artist**: Marshy 
+**Artist**: Dj Yesss Clare 
 
-**Track**: Bounce Madness Set - Marshy
+**Track**: FANTASTY MIX
 
-Last updated at 12/29/2025, 8:16:12 AM
+Last updated at 12/29/2025, 8:17:22 AM
