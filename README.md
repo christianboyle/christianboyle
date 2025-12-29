@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjoEFEJhuMltIruY-e6ossQ-t500x500.jpg">](https://soundcloud.com/br09402/bedrock-disc-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pRKtqsFLrRNdO9TG-oAPs1w-t500x500.png">](https://soundcloud.com/stantonwarriors/stanton-warriors-jem-haynes-heaven)
 
-**Artist**: Jimmy Van M 
+**Artist**: Stanton Warriors, Jem Haynes 
 
-**Track**: Bedrock: Compiled And Mixed By Jimmy Van M - [Disc 2] - 2001
+**Track**: Stanton Warriors & Jem Haynes - Heaven
 
-Last updated at 12/29/2025, 9:12:43 AM
+Last updated at 12/29/2025, 9:14:08 AM
