@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-8QQrO3LkksjDvLdw-tKyuag-t500x500.jpg">](https://soundcloud.com/jordanirwin/turn-the-lights-off-jordan-irwin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G1PkOLDJqEnTBZIh-nr9b5w-t500x500.png">](https://soundcloud.com/djfinny1/bouncy-streams-live-271225)
 
-**Artist**: Jordan Irwin 
+**Artist**: djfinny1 (Darren Finlayson) 
 
-**Track**: Turn The Lights Off ( Jordan Irwin Remix )
+**Track**: Bouncy Streams Live 271225
 
-Last updated at 12/29/2025, 7:41:17 AM
+Last updated at 12/29/2025, 8:03:11 AM
