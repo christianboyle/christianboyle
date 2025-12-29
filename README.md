@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J9JtVIsCH2RFFzLS-Q4Lr7w-t500x500.jpg">](https://soundcloud.com/claredowney/fantasty-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H3HUN7C3IDGwlmko-Hnffzg-t500x500.jpg">](https://soundcloud.com/polyamor-berlin/sidney-samon-riverside)
 
-**Artist**: Dj Yesss Clare 
+**Artist**: Polyamor Records 
 
-**Track**: FANTASTY MIX
+**Track**: Sidney Samson - Riverside (4times4  Flip)
 
-Last updated at 12/29/2025, 8:17:22 AM
+Last updated at 12/29/2025, 8:18:27 AM
