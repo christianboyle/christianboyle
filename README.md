@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjoEFEJhuMltIruY-e6ossQ-t500x500.jpg">](https://soundcloud.com/br09402/bedrock-disc-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XaHftNuNDOqOklGG-P0k4fQ-t500x500.jpg">](https://soundcloud.com/dj-mickey-byker/dj-mickey-byker-dj-spud)
 
-**Artist**: Jimmy Van M 
+**Artist**: Dj Mickey Byker & Dj Spud 
 
-**Track**: Bedrock: Compiled And Mixed By Jimmy Van M - [Disc 1] - 2001
+**Track**: Dj Mickey Byker & Dj Spud Christmas Cracker Volume 1
 
-Last updated at 12/29/2025, 10:06:26 AM
+Last updated at 12/29/2025, 11:55:14 AM
