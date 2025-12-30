@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ageF3oKufG4TshuY-Gmj9SQ-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-wicked-xxx-rave-all-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6z18H7E1ZhyoAQW3-usowVw-t500x500.png">](https://soundcloud.com/so-kuu/everyend)
 
-**Artist**: M-Project 
+**Artist**: sokuu 
 
-**Track**: M-Project & Wicked XXX - Rave All Night
+**Track**: Dance Music
 
-Last updated at 12/30/2025, 9:08:40 AM
+Last updated at 12/30/2025, 9:13:30 AM
