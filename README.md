@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6z18H7E1ZhyoAQW3-usowVw-t500x500.png">](https://soundcloud.com/so-kuu/everyend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G8xaW2SSaazdPcuc-LUHy1Q-t500x500.jpg">](https://soundcloud.com/noizetosh-fumi/kick-romp)
 
-**Artist**: sokuu 
+**Artist**: FUMI [Noizetosh] 
 
-**Track**: Dance Music
+**Track**: KICK ROMP
 
-Last updated at 12/30/2025, 9:13:30 AM
+Last updated at 12/30/2025, 2:00:04 PM
