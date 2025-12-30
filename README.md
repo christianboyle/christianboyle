@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3r0zQ39TRWKmczO9-XzdGkA-t500x500.jpg">](https://soundcloud.com/djshimamura/ode-2-joy-nye-anthem-in-jpn-25-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ZycDqVYm2yyMzZp-binyvw-t500x500.png">](https://soundcloud.com/noizetosh-fumi/e4732ef8-70fa-4f3c-a245-11a9f5e23276)
 
-**Artist**: DJ Shimamura 
+**Artist**: FUMI [Noizetosh] 
 
-**Track**: DJ Paul-O - Uprising (DJ Shimamura's NYE Anthem in JPN 25-26 Bootleg Remix)
+**Track**: FUMI - Für Elise
 
-Last updated at 12/30/2025, 8:59:59 AM
+Last updated at 12/30/2025, 9:01:49 AM
