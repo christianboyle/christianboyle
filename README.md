@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JFzL188PGJuKjNyj-zssjWQ-t500x500.png">](https://soundcloud.com/sorzaofficial/over-you?in=jukaamusic/sets/2025a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IwUsSA3FklCJr11-UolyvQ-t500x500.png">](https://soundcloud.com/wwenszy/2night-aftrr-remix)
 
-**Artist**: Sorza 
+**Artist**: wenszy 
 
-**Track**: Over you
+**Track**: 2NIGHT (aftrr! remix)
 
-Last updated at 12/30/2025, 8:03:39 AM
+Last updated at 12/30/2025, 8:04:39 AM
