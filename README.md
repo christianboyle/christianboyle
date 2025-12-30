@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C9bPShdwhmqTevxr-vz8r9Q-t500x500.jpg">](https://soundcloud.com/user-14337291/pretty-green-eyes-turn-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000001159132-iwhvfq-t500x500.jpg">](https://soundcloud.com/stantonwarriors/stanton-warriors-live-the-stanton-session-2003)
 
-**Artist**: Ian Buddie 
+**Artist**: Stanton Warriors 
 
-**Track**: Pretty Green Eyes Turn The Lights Off
+**Track**: Stanton Warriors - Stanton Sessions Vol.1 (2001)
 
-Last updated at 12/29/2025, 1:20:34 PM
+Last updated at 12/30/2025, 5:51:00 AM
