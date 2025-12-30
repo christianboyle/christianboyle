@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vS121AhHOT3qB6KQ-Kr2EyA-t500x500.png">](https://soundcloud.com/dj-guilty/guilty-new-years-eve-2025-dnb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3r0zQ39TRWKmczO9-XzdGkA-t500x500.jpg">](https://soundcloud.com/djshimamura/ode-2-joy-nye-anthem-in-jpn-25-26)
 
-**Artist**: Guilty DnB 
+**Artist**: DJ Shimamura 
 
-**Track**: Guilty - New Years Eve 2025 DnB Mix
+**Track**: DJ Paul-O - Uprising (DJ Shimamura's NYE Anthem in JPN 25-26 Bootleg Remix)
 
-Last updated at 12/30/2025, 8:12:25 AM
+Last updated at 12/30/2025, 8:59:59 AM
