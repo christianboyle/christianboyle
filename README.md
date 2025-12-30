@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5HSW9G23gGppYIGg-Njxcig-t500x500.png">](https://soundcloud.com/atura/like-this-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ageF3oKufG4TshuY-Gmj9SQ-t500x500.png">](https://soundcloud.com/m-project_suzumoto/m-project-wicked-xxx-rave-all-night)
 
-**Artist**: Atura 
+**Artist**: M-Project 
 
-**Track**: LIKE THIS
+**Track**: M-Project & Wicked XXX - Rave All Night
 
-Last updated at 12/30/2025, 9:05:44 AM
+Last updated at 12/30/2025, 9:06:44 AM
