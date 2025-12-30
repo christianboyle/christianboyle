@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rw9lQvDlj5zIMgd2-R9WHUA-t500x500.png">](https://soundcloud.com/noctilucents/dont-cry-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31hWrxiKu9c4-0-t500x500.jpg">](https://soundcloud.com/fireboydml/fireboy-dml-obaa-sima)
 
-**Artist**: noctilucents, Organ Tapes 
+**Artist**: Fireboy DML 
 
-**Track**: don't cry
+**Track**: obaa sima
 
-Last updated at 12/30/2025, 8:05:39 AM
+Last updated at 12/30/2025, 8:07:09 AM
