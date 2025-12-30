@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31hWrxiKu9c4-0-t500x500.jpg">](https://soundcloud.com/fireboydml/fireboy-dml-obaa-sima)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjZMAoBNHGf4E6cL-zgBAIA-t500x500.png">](https://soundcloud.com/fylohhh/afrojack-martin-garrix-turn-up-the-speakers-fyloh-leonardo-roghi-bootleg)
 
-**Artist**: Fireboy DML 
+**Artist**: Fyloh, Leonardo Roghi 
 
-**Track**: obaa sima
+**Track**: Afrojack & Martin Garrix - Turn Up The Speakers (Fyloh & Leonardo Roghi Bootleg) [BUY = FREE DL]
 
-Last updated at 12/30/2025, 8:07:09 AM
+Last updated at 12/30/2025, 8:08:09 AM
