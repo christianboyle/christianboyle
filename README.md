@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjZMAoBNHGf4E6cL-zgBAIA-t500x500.png">](https://soundcloud.com/fylohhh/afrojack-martin-garrix-turn-up-the-speakers-fyloh-leonardo-roghi-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vS121AhHOT3qB6KQ-Kr2EyA-t500x500.png">](https://soundcloud.com/dj-guilty/guilty-new-years-eve-2025-dnb)
 
-**Artist**: Fyloh, Leonardo Roghi 
+**Artist**: Guilty DnB 
 
-**Track**: Afrojack & Martin Garrix - Turn Up The Speakers (Fyloh & Leonardo Roghi Bootleg) [BUY = FREE DL]
+**Track**: Guilty - New Years Eve 2025 DnB Mix
 
-Last updated at 12/30/2025, 8:08:09 AM
+Last updated at 12/30/2025, 8:12:25 AM
