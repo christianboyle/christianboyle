@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCH94tYkPA8ZA7T0-GEV29Q-t500x500.png">](https://soundcloud.com/mjuofficial/dom-dolla-dreamin-mju-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zR9bzTqChTAW7zS5-0mRTPA-t500x500.jpg">](https://soundcloud.com/dimatik/dimatik-restricted-ft-savage-the-chant-anderex-remix)
 
-**Artist**: MJU 
+**Artist**: Dimatik, restricted, anderex, savage 
 
-**Track**: Dom Dolla - Dreamin (MJU Bootleg)
+**Track**: Dimatik & Restricted ft Savage- The Chant (Anderex Remix)
 
-Last updated at 12/31/2025, 5:46:10 PM
+Last updated at 12/31/2025, 5:48:56 PM
