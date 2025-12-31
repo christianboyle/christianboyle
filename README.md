@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O30sxtgECOkVLmEp-sZesXw-t500x500.jpg">](https://soundcloud.com/djactiv8/acccctivate-the-bounce-75)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rEmDM1CIhT0EgQqF-kWoSxA-t500x500.png">](https://soundcloud.com/stratisbambam/christmas-mini-mix)
 
-**Artist**: DJ ACTiV8 
+**Artist**: INF3RNUS 
 
-**Track**: Activate the Bounce 75
+**Track**: Christmas Mini MIx
 
-Last updated at 12/31/2025, 9:58:37 AM
+Last updated at 12/31/2025, 10:45:27 AM
