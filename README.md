@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uERK2JMuCDn2UEj1-HmMhwg-t500x500.jpg">](https://soundcloud.com/odinsounds/dior-odin-flip?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQCAs4zSUVzieSPh-IZxdrQ-t500x500.png">](https://soundcloud.com/nullrecuk/static-2001-intro-mix?in=saxurn/sets/squarely-opposed)
 
-**Artist**: ODIN 
+**Artist**: Static 
 
-**Track**: Pop Smoke - Dior (ODIN Flip)
+**Track**: Static - 2001 (Intro Mix)
 
-Last updated at 12/31/2025, 3:12:23 PM
+Last updated at 12/31/2025, 3:14:18 PM
