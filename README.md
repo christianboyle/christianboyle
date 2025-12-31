@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G8xaW2SSaazdPcuc-LUHy1Q-t500x500.jpg">](https://soundcloud.com/noizetosh-fumi/kick-romp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pKOlzFVaZpuemkbc-Nyz8cg-t500x500.png">](https://soundcloud.com/bassjackers/kids)
 
-**Artist**: FUMI [Noizetosh] 
+**Artist**: BASSJACKERS 
 
-**Track**: KICK ROMP
+**Track**: Bassjackers - KIDS (Extended Mix)
 
-Last updated at 12/30/2025, 2:00:04 PM
+Last updated at 12/31/2025, 6:17:34 AM
