@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E9LNheoOYvAn1Jlh-cDdDkg-t500x500.png">](https://soundcloud.com/user-533446488/boxing-day-bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dt8hLPuGxXeaklas-rTekqg-t500x500.png">](https://soundcloud.com/ketamakina/ketamakina-ft-siobbhan-mackin-i-wonder-rvrz-records-out-now)
 
-**Artist**: DJ Crisis 
+**Artist**: Ketamakina 
 
-**Track**: Boxing Day bangers
+**Track**: Ketamakina Ft. Siobbhan Mackin - I Wonder (RVRZ Records) *OUT NOW*
 
-Last updated at 12/31/2025, 2:51:36 PM
+Last updated at 12/31/2025, 2:52:46 PM
