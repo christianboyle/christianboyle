@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mOwKqw3a0bql7nhi-g7z0UQ-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-ronnie-c-you-are-not)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7PUzV15GZtq017IS-ODW63g-t500x500.png">](https://soundcloud.com/itslostindreams/solomon-france-attention)
 
-**Artist**: GZMO 
+**Artist**: Solomon France 
 
-**Track**: GZMO & RONNIE C - You Are Not Broken
+**Track**: Solomon France - Attention
 
-Last updated at 12/31/2025, 9:24:12 AM
+Last updated at 12/31/2025, 9:26:02 AM
