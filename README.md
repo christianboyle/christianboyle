@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KByEMPncCItiF5eH-0SyOWQ-t500x500.png">](https://soundcloud.com/revivelabel/restricted-nik-sitz-tunnel-vision-so-juice-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGXvmmziEIhPLFDN-sJIAJQ-t500x500.jpg">](https://soundcloud.com/erickewerce/tnt-darren-styles-hard-beat-erick-ewerce-kick-edit-master-v1)
 
-**Artist**: Restricted, Nik Sitz, So Juice 
+**Artist**: ERICK EWERCE 
 
-**Track**: Restricted, Nik Sitz - Tunnel Vision (So Juice Remix)
+**Track**: TNT & DARREN STYLES - HARD BEAT (ERICK EWERCE KICK EDIT)
 
-Last updated at 12/31/2025, 5:42:00 PM
+Last updated at 12/31/2025, 5:44:30 PM
