@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r60FJTtslRgAFt5o-en9LUg-t500x500.png">](https://soundcloud.com/revolution-records-uk/dj-gee-this-rhythm-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-esTdmocS0I7sURbt-pBottA-t500x500.jpg">](https://soundcloud.com/djkenty/january-2026)
 
-**Artist**: Revolution-Records UK 
+**Artist**: DJ Kenty 
 
-**Track**: DJ GEE - THIS RHYTHM (sample)
+**Track**: January 2026
 
-Last updated at 12/31/2025, 9:22:12 AM
+Last updated at 12/31/2025, 9:23:12 AM
