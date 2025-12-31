@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qVjQH7dy8dG4vvBH-3I7fcQ-t500x500.png">](https://soundcloud.com/user-870258962/nye-2025-mix-by-tasty-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NXMhTz8HrGXVMlFy-WcVczQ-t500x500.png">](https://soundcloud.com/skuddofficial/ripper)
 
-**Artist**: DJ TASTY-D 
+**Artist**: SKUDD 
 
-**Track**: NYE 2025 mix by TASTY-D
+**Track**: Ripper
 
-Last updated at 12/31/2025, 9:52:51 AM
+Last updated at 12/31/2025, 9:54:01 AM
