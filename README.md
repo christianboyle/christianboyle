@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qxl2TdwxsrQwMf8o-dvNV4Q-t500x500.png">](https://soundcloud.com/samuel-moriero/samuel-moriero-like-me-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Pz6ZZLdO5ePkUzZX-L0cLuw-t500x500.jpg">](https://soundcloud.com/asure2001/remember-summer-sun-asure2001-mix)
 
-**Artist**: Samuel Moriero 
+**Artist**: ASURE2001 
 
-**Track**: Samuel Moriero - LIKE ME (FREE DL)
+**Track**: REMEMBER SUMMER SUN [ASURE2001 MIX]
 
-Last updated at 12/31/2025, 2:35:22 PM
+Last updated at 12/31/2025, 2:36:37 PM
