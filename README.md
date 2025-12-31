@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bmxrknBKWd8MpEK8-RWK4HA-t500x500.png">](https://soundcloud.com/onlytom-extras/folded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FyMptEHkkTh-0-t500x500.jpg">](https://soundcloud.com/datweekaz/let-it-go)
 
-**Artist**: onlytom x bk beats x kehlani 
+**Artist**: Da Tweekaz, AVA CROWN 
 
-**Track**: folded (onlytom x bk beats bootleg)
+**Track**: Let It Go
 
-Last updated at 12/31/2025, 2:54:56 PM
+Last updated at 12/31/2025, 2:56:01 PM
