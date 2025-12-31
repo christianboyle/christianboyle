@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bx0C9tiGWbT4zWGB-T4X9ZA-t500x500.png">](https://soundcloud.com/user-429139003/anderex-woops-edit-vs-grvedgr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7w88nMz7HqrzHW7c-RqzSEw-t500x500.png">](https://soundcloud.com/djslomadeit/smack-my-derb)
 
-**Artist**: Speckz On Deckz 
+**Artist**: DJ SLO 
 
-**Track**: Anderex - Woops Edit vs GRAVEDGR - Fuck You
+**Track**: SMACK MY DERB
 
-Last updated at 12/31/2025, 5:25:24 PM
+Last updated at 12/31/2025, 5:27:53 PM
