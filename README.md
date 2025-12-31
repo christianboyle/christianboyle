@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Pz6ZZLdO5ePkUzZX-L0cLuw-t500x500.jpg">](https://soundcloud.com/asure2001/remember-summer-sun-asure2001-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mhntHNqe0cuV-0-t500x500.png">](https://soundcloud.com/bassjackers/party-people)
 
-**Artist**: ASURE2001 
+**Artist**: Bassjackers 
 
-**Track**: REMEMBER SUMMER SUN [ASURE2001 MIX]
+**Track**: Party People
 
-Last updated at 12/31/2025, 2:36:37 PM
+Last updated at 12/31/2025, 2:37:40 PM
