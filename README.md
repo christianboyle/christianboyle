@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6FyMptEHkkTh-0-t500x500.jpg">](https://soundcloud.com/datweekaz/let-it-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mhntHNqe0cuV-0-t500x500.png">](https://soundcloud.com/bassjackers/party-people)
 
-**Artist**: Da Tweekaz, AVA CROWN 
+**Artist**: Bassjackers 
 
-**Track**: Let It Go
+**Track**: Party People
 
-Last updated at 12/31/2025, 2:56:01 PM
+Last updated at 12/31/2025, 2:57:11 PM
