@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uERK2JMuCDn2UEj1-HmMhwg-t500x500.jpg">](https://soundcloud.com/odinsounds/dior-odin-flip?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CusNzvqo1NGEjXQy-xqZZJA-t500x500.png">](https://soundcloud.com/nullrecuk/dj-seinfeld-confidence-man-now-u-do-static-remix?in=saxurn/sets/squarely-opposed)
 
-**Artist**: ODIN 
+**Artist**: Static 
 
-**Track**: Pop Smoke - Dior (ODIN Flip)
+**Track**: DJ Seinfeld & Confidence Man - Now U Do (Static Remix)
 
-Last updated at 12/31/2025, 3:56:02 PM
+Last updated at 12/31/2025, 4:28:57 PM
