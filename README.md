@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewADMbgqmjTBjaQu-xDEW7Q-t500x500.png">](https://soundcloud.com/jukaamusic/summertime-blood-bootleg?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjbTukaqyDQsejLs-J9UeTA-t500x500.png">](https://soundcloud.com/7senss/frostbite-maple-with3r?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Jukaa 
+**Artist**: Senses 
 
-**Track**: Yung Lean, Skrillex, Bladee & Ecco2k - SummerTime Blood (Jukaa Bootleg)
+**Track**: frostbite  (maple + with3r)
 
-Last updated at 12/31/2025, 4:50:19 PM
+Last updated at 12/31/2025, 4:53:00 PM
