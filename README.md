@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4fJapDpP7VyIBDWo-Thpz2g-t500x500.png">](https://soundcloud.com/lawdy_wav/can-you-hear-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bx0C9tiGWbT4zWGB-T4X9ZA-t500x500.png">](https://soundcloud.com/user-429139003/anderex-woops-edit-vs-grvedgr)
 
-**Artist**: Lawdy 
+**Artist**: Speckz On Deckz 
 
-**Track**: Can you hear it
+**Track**: Anderex - Woops Edit vs GRAVEDGR - Fuck You
 
-Last updated at 12/31/2025, 5:20:33 PM
+Last updated at 12/31/2025, 5:25:24 PM
