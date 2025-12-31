@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HPRa9MdvC6prgzmE-YUn2zw-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-keep-talking-i)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjbTukaqyDQsejLs-J9UeTA-t500x500.png">](https://soundcloud.com/7senss/frostbite-maple-with3r)
 
-**Artist**: DRIFT 
+**Artist**: Senses 
 
-**Track**: DRIFT & IRWIIN - KEEP TALKING (I DONT CARE) RADIO EDIT
+**Track**: frostbite  (maple + with3r)
 
-Last updated at 12/31/2025, 2:38:50 PM
+Last updated at 12/31/2025, 2:39:50 PM
