@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PXypzVJBztL7YMoN-Z2C0vQ-t500x500.png">](https://soundcloud.com/kazanraw/showtek-booyah-kazan-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XrS8M6Zlxvr1QzTy-GdD3xA-t500x500.jpg">](https://soundcloud.com/odyssey_wav/fantasm-so-juice-on-fire-1)
 
-**Artist**: Showtek, Kazan 
+**Artist**: Odyssey, Fantasm, So Juice 
 
-**Track**: Showtek - Booyah (Kazan Edit) (FREE DL)
+**Track**: Fantasm, So Juice - On Fire (Odyssey Edit)
 
-Last updated at 12/31/2025, 5:51:31 PM
+Last updated at 12/31/2025, 5:53:26 PM
