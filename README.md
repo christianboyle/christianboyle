@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2f4thTKPZ0sf95Zz-4ro18g-t500x500.png">](https://soundcloud.com/marlonhoffstadt/yeat-come-n-go-marlon-hoffstadt-edit?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewADMbgqmjTBjaQu-xDEW7Q-t500x500.png">](https://soundcloud.com/jukaamusic/summertime-blood-bootleg?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Jukaa 
 
-**Track**: Yeat - COMË N GO  (Marlon Hoffstadt Edit)
+**Track**: Yung Lean, Skrillex, Bladee & Ecco2k - SummerTime Blood (Jukaa Bootleg)
 
-Last updated at 12/31/2025, 4:46:14 PM
+Last updated at 12/31/2025, 4:50:19 PM
