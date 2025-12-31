@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-62S93So5KPZFeyRb-uxyhXQ-t500x500.jpg">](https://soundcloud.com/darn84/sy-back-to-the-dock-garden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qVjQH7dy8dG4vvBH-3I7fcQ-t500x500.png">](https://soundcloud.com/user-870258962/nye-2025-mix-by-tasty-d)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: DJ TASTY-D 
 
-**Track**: Sy @ Back to the Dock - Garden Party (29/06/2024)
+**Track**: NYE 2025 mix by TASTY-D
 
-Last updated at 12/31/2025, 9:30:27 AM
+Last updated at 12/31/2025, 9:52:51 AM
