@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iKwy8pZls0YMLNEJ-KVm7Yw-t500x500.png">](https://soundcloud.com/klofama/cb8b5a4b-f16f-422b-a1ef-63a1a109803d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbUgiTbNZZOFqBrm-epiOYQ-t500x500.png">](https://soundcloud.com/aftergenerationholland/c3d3bfeb-8777-4ce3-8c7d-cc04e4f79c15)
 
-**Artist**: KLOFAMA, SLVL 
+**Artist**: Aftergeneration 
 
-**Track**: S6TP (FREE DL)
+**Track**: Martin Solveig - Hello (Aftergeneration & Nexor Bootleg)
 
-Last updated at 12/31/2025, 5:56:22 PM
+Last updated at 12/31/2025, 5:57:52 PM
