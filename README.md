@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iFYqi7x7rLammOV1-XF8rMQ-t500x500.jpg">](https://soundcloud.com/basskrap/ray-volpe-song-request-basskrap-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6W6wy5a5fTXkY5Dq-FPR3Vw-t500x500.jpg">](https://soundcloud.com/florian-schmolt/melodischer-bassdruecker)
 
-**Artist**: BASSKRAP 
+**Artist**: Vitamin_C 
 
-**Track**: Ray Volpe - Song Request (Basskrap Remix) [Free Download]
+**Track**: Melodischer Bassdrücker - Vitamin_C
 
-Last updated at 12/31/2025, 4:38:53 PM
+Last updated at 12/31/2025, 4:41:24 PM
