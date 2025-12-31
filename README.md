@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQCAs4zSUVzieSPh-IZxdrQ-t500x500.png">](https://soundcloud.com/nullrecuk/static-2001-intro-mix?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CusNzvqo1NGEjXQy-xqZZJA-t500x500.png">](https://soundcloud.com/nullrecuk/dj-seinfeld-confidence-man-now-u-do-static-remix?in=saxurn/sets/squarely-opposed)
 
 **Artist**: Static 
 
-**Track**: Static - 2001 (Intro Mix)
+**Track**: DJ Seinfeld & Confidence Man - Now U Do (Static Remix)
 
-Last updated at 12/31/2025, 5:03:56 PM
+Last updated at 12/31/2025, 5:08:07 PM
