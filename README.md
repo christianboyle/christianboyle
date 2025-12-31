@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dt8hLPuGxXeaklas-rTekqg-t500x500.png">](https://soundcloud.com/ketamakina/ketamakina-ft-siobbhan-mackin-i-wonder-rvrz-records-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lzik2KXHgX7FK92i-DA9FLA-t500x500.jpg">](https://soundcloud.com/k-oneee/good-lies-above-ground-mix)
 
-**Artist**: Ketamakina 
+**Artist**: K.ONE 
 
-**Track**: Ketamakina Ft. Siobbhan Mackin - I Wonder (RVRZ Records) *OUT NOW*
+**Track**: Good Lies (Above Ground Mix)
 
-Last updated at 12/31/2025, 2:52:46 PM
+Last updated at 12/31/2025, 2:53:56 PM
