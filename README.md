@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oln1yjBej0gdRht5-KiqWwA-t500x500.png">](https://soundcloud.com/mjuofficial/redhot-mju-feat-ph4ntam-ready-for-war)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J07APKVTTCJ4Kl06-LOjWKw-t500x500.jpg">](https://soundcloud.com/joe-barlow-847981147/whoops-restricted-edit)
 
-**Artist**: MJU, Redhot, Ph4ntam 
+**Artist**: J Barlow 
 
-**Track**: Redhot & MJU Feat. Ph4ntam - Ready for War
+**Track**: Whoops - Restricted edit
 
-Last updated at 12/31/2025, 5:35:59 PM
+Last updated at 12/31/2025, 5:39:10 PM
