@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBR8uVLSCTJ3oQtS-dQrJDA-t500x500.png">](https://soundcloud.com/cw4/lyn-count-me-out?in_system_playlist=your-playback%3A%3Asaxurn%3A2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-6eofPOtr8km7T1Md-0GcihQ-t500x500.jpg">](https://soundcloud.com/jdmbnygtym/sdol-18-5?in_system_playlist=your-playback%3A%3Asaxurn%3A2025)
 
-**Artist**: cwta, lynU 
+**Artist**: JDM GTYM 
 
-**Track**: count me out
+**Track**: SUMMER DREAMS OF LOVE Darren Styles & DV JDM FLIP MASTER FREE DOWNLOAD
 
-Last updated at 1/1/2026, 10:43:28 AM
+Last updated at 1/1/2026, 10:44:44 AM
