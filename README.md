@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BgR4IVJL6liJ1qzz-zxDnrg-t500x500.jpg">](https://soundcloud.com/willywonksta/shuttah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg?in=saxurn/sets/squarely-opposed/)
 
-**Artist**: Willy Wonksta 
+**Artist**: Aidan McCrae 
 
-**Track**: Willy Wonksta - SHUTTAH [FREE DL]
+**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
 
-Last updated at 12/31/2025, 6:05:03 PM
+Last updated at 12/31/2025, 6:21:31 PM
