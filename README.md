@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30kxLSMqFRpv2TFF-SOoplA-t500x500.jpg">](https://soundcloud.com/deodor/ra9?in_system_playlist=your-playback%3A%3Asaxurn%3A2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8StXyg32OWz9hvGZ-ebUbnA-t500x500.jpg">](https://soundcloud.com/dayeoffer/darth-sidious?in_system_playlist=your-playback%3A%3Asaxurn%3A2025)
 
-**Artist**: deodora, Akhimei 
+**Artist**: dayeoffer 
 
-**Track**: rA9 w/ Akhimei (nightiger)
+**Track**: @dayeoffer - darth sidious + noonoffer #ME [1ner0un]
 
-Last updated at 1/1/2026, 10:39:38 AM
+Last updated at 1/1/2026, 10:41:08 AM
