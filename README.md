@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/dj-gee-volume-85)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Revolution-Records UK 
+**Artist**: Aidan McCrae 
 
-**Track**: Dj Gee - Volume 85
+**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
 
-Last updated at 1/1/2026, 8:54:50 AM
+Last updated at 1/1/2026, 8:56:00 AM
