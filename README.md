@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BO7qplGibWq1uG0Y-AyOWHw-t500x500.jpg">](https://soundcloud.com/adrenalindj/energy-97-mix-challenge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5C5qZteXo0Gk-0-t500x500.jpg">](https://soundcloud.com/atliens/imy-sora-dmz-news-official)
 
-**Artist**: Adrenalin 
+**Artist**: ATLiens, Sora, DMZ NEWS OFFICIAL, Dion Timmer 
 
-**Track**: Energy 97 To The Bone Mix Challenge
+**Track**: IMY (sora & DMZ NEWS OFFICIAL Remix)
 
-Last updated at 1/1/2026, 8:33:34 AM
+Last updated at 1/1/2026, 8:53:50 AM
