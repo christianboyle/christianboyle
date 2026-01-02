@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E1S0snOWGnJfQvEY-iSeOWg-t500x500.jpg">](https://soundcloud.com/boston_bounce_sessions/boston-bounce-sessions-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INUCalgWknwdMHpY-gRsFhA-t500x500.png">](https://soundcloud.com/studio9-music/mega-mix-2025-producer-special-mixed-by-studio9-dan-howes)
 
-**Artist**: ChunkeeMonkee_official 
+**Artist**: Studio9™ 
 
-**Track**: Boston bounce sessions 2026 CRAIGY B.mp3
+**Track**: MEGA MIX 2025 [PRODUCER SPECIAL] MIXED BY STUDIO9 & DAN HOWES
 
-Last updated at 1/2/2026, 8:41:31 AM
+Last updated at 1/2/2026, 8:47:37 AM
