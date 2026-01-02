@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pVIjBuGxoXno2gPc-zz2SxA-t500x500.jpg">](https://soundcloud.com/yuna_yuna/bubblegum?in_system_playlist=your-playback%3A%3Asaxurn%3A2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BlMHzK7oPid7qtTW-tKTFDQ-t500x500.png">](https://soundcloud.com/anderex/woops-edit-free-dl?in=saxurn/sets/squarely-opposed)
 
-**Artist**: yx2 
+**Artist**: Anderex  
 
-**Track**: bubblegum
+**Track**: WOOPS EDIT (FREE DL)
 
-Last updated at 1/1/2026, 10:51:29 AM
+Last updated at 1/1/2026, 6:42:11 PM
