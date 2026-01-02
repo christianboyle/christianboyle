@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxnmoOmAlLVUkoyd-wPp8wg-t500x500.jpg">](https://soundcloud.com/sophywinter/be-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sPl6m6TAfSQ14SQ0-RS3xYw-t500x500.png">](https://soundcloud.com/rankzsound/beatking-then-leave-rankz-moceans-flip)
 
-**Artist**: Sophy Winter 
+**Artist**: RANKZ & Moceans 
 
-**Track**: Be Me
+**Track**: BeatKing - Then Leave (RANKZ & Moceans Flip)
 
-Last updated at 1/2/2026, 3:38:19 PM
+Last updated at 1/2/2026, 3:40:44 PM
