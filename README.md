@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INUCalgWknwdMHpY-gRsFhA-t500x500.png">](https://soundcloud.com/studio9-music/mega-mix-2025-producer-special-mixed-by-studio9-dan-howes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9l7jFiWy6o8tNMvA-Y4UKkw-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-love-man)
 
-**Artist**: Studio9™ 
+**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
 
-**Track**: MEGA MIX 2025 [PRODUCER SPECIAL] MIXED BY STUDIO9 & DAN HOWES
+**Track**: MIZZDEE- LOVE MAN 🔥
 
-Last updated at 1/2/2026, 8:47:37 AM
+Last updated at 1/2/2026, 10:10:38 AM
