@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sPl6m6TAfSQ14SQ0-RS3xYw-t500x500.png">](https://soundcloud.com/rankzsound/beatking-then-leave-rankz-moceans-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0KLhrpqfYTcsDKGh-siRidA-t500x500.jpg">](https://soundcloud.com/eternalmusicc/when-the-silence-breaks-eternal-flip)
 
-**Artist**: RANKZ & Moceans 
+**Artist**: ETERNAL 
 
-**Track**: BeatKing - Then Leave (RANKZ & Moceans Flip)
+**Track**: WHEN THE SILENCE BREAKS (ETERNAL FLIP)
 
-Last updated at 1/2/2026, 3:40:44 PM
+Last updated at 1/2/2026, 3:41:44 PM
