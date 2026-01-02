@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2O9ImomVb0Z9suTp-J3DzEA-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/joz-b-smithy-fx-destiny?in=revolution-records-uk/sets/out-now-on-juno-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZ3Kx2lv8DK7B9Hq-g1WAqQ-t500x500.jpg">](https://soundcloud.com/user-321542670/dj-chrissy-g-doncaster)
 
-**Artist**: Revolution-Records UK 
+**Artist**: DJ CHRISSY G 
 
-**Track**: JOZ B & SMITHY FX - DESTINY - OUT NOW
+**Track**: DJ CHRISSY G  DONCASTER WAREHOUSE NYE 2025
 
-Last updated at 1/2/2026, 8:12:33 AM
+Last updated at 1/2/2026, 8:13:33 AM
