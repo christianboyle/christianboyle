@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NKrahBi6RVpPCdyh-xKZTtg-t500x500.jpg">](https://soundcloud.com/cyndium-1/the-whistlers-frenchcore-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v28PuNu7XOWSsw5g-scNNMQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-feat-novara-flying)
 
-**Artist**: The Whistlers 
+**Artist**: DJ Oskar 
 
-**Track**: The Whistlers - Frenchcore Mix
+**Track**: DJ Oskar Feat. Novara - Flying
 
-Last updated at 1/3/2026, 10:17:34 AM
+Last updated at 1/3/2026, 10:41:46 AM
