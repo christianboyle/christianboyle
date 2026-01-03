@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v28PuNu7XOWSsw5g-scNNMQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-feat-novara-flying)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7SaWODaz9uDt9TOk-dBvZUw-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-what-would-you-like-to)
 
-**Artist**: DJ Oskar 
+**Artist**: Scott F 
 
-**Track**: DJ Oskar Feat. Novara - Flying
+**Track**: Scott F - What would you like to hear sample
 
-Last updated at 1/3/2026, 10:41:46 AM
+Last updated at 1/3/2026, 10:42:51 AM
