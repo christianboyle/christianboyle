@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYbypvMO3hieK3c9-QBYDcA-t500x500.jpg">](https://soundcloud.com/lee-greenhow-341331252/take-me-away-bounce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KuNGkXFVdRtZ6Ebh-azWYsQ-t500x500.png">](https://soundcloud.com/trenchfootaudio/acid-billy)
 
-**Artist**: Lee Greenhow 
+**Artist**: Trench Foot 
 
-**Track**: Take Me Away (bounce remix)
+**Track**: Acid Billy
 
-Last updated at 1/3/2026, 2:23:21 PM
+Last updated at 1/3/2026, 2:25:04 PM
