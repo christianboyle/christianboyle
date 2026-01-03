@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KuNGkXFVdRtZ6Ebh-azWYsQ-t500x500.png">](https://soundcloud.com/trenchfootaudio/acid-billy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JqBVYXOnbcRECIm3-eowxfg-t500x500.png">](https://soundcloud.com/vatu-dubz/vatu-time-2)
 
-**Artist**: Trench Foot 
+**Artist**: VATU 
 
-**Track**: Acid Billy
+**Track**: VATU - TIME
 
-Last updated at 1/3/2026, 2:25:04 PM
+Last updated at 1/3/2026, 3:41:44 PM
