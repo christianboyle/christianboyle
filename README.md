@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7SaWODaz9uDt9TOk-dBvZUw-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-what-would-you-like-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LYbypvMO3hieK3c9-QBYDcA-t500x500.jpg">](https://soundcloud.com/lee-greenhow-341331252/take-me-away-bounce-remix)
 
-**Artist**: Scott F 
+**Artist**: Lee Greenhow 
 
-**Track**: Scott F - What would you like to hear sample
+**Track**: Take Me Away (bounce remix)
 
-Last updated at 1/3/2026, 10:42:51 AM
+Last updated at 1/3/2026, 2:23:21 PM
