@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rxpQpugnJR0U9Dw5-VF6Ysw-t500x500.png">](https://soundcloud.com/sandsconnection/gaz-summers-end-of-year-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rBUJf6zZz5zFRQKr-fsDWqQ-t500x500.png">](https://soundcloud.com/jona_tedesco/tiesto-x-fors-bring-me-to-life-jona-tedesco-remixxx)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: Jona Tedesco 
 
-**Track**: Gaz Summers - End Of Year Mix
+**Track**: Tiesto ft. FORS  - Bring Me To Life (Jona Tedesco Remix) [FREE DOWNLOAD]
 
-Last updated at 1/4/2026, 7:49:12 AM
+Last updated at 1/4/2026, 9:20:06 AM
