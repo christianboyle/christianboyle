@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjbTukaqyDQsejLs-J9UeTA-t500x500.png">](https://soundcloud.com/7senss/frostbite-maple-with3r?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uERK2JMuCDn2UEj1-HmMhwg-t500x500.jpg">](https://soundcloud.com/odinsounds/dior-odin-flip?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Senses 
+**Artist**: ODIN 
 
-**Track**: frostbite  (maple + with3r)
+**Track**: Pop Smoke - Dior (ODIN Flip)
 
-Last updated at 1/4/2026, 11:24:58 AM
+Last updated at 1/4/2026, 11:27:14 AM
