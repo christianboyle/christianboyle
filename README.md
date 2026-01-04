@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mhntHNqe0cuV-0-t500x500.png">](https://soundcloud.com/bassjackers/party-people?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjbTukaqyDQsejLs-J9UeTA-t500x500.png">](https://soundcloud.com/7senss/frostbite-maple-with3r)
 
-**Artist**: Bassjackers 
+**Artist**: Senses 
 
-**Track**: Party People
+**Track**: frostbite  (maple + with3r)
 
-Last updated at 1/4/2026, 11:44:10 AM
+Last updated at 1/4/2026, 1:39:30 PM
