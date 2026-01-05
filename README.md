@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMgRYPsoFCZnaftf-Z5JyqQ-t500x500.png">](https://soundcloud.com/eric-su-22/x-maddix-tmpl-vs-ultimate-seduction-combshakz-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pPA2olnzj1jDMHgn-d3IO9A-t500x500.jpg">](https://soundcloud.com/therealwillo/sombr-12-to-12-willo-remix)
 
-**Artist**: Combshakz, Maddix, TMPL, 謝晶燕 
+**Artist**: WILLØ 
 
-**Track**: 謝晶燕 X Maddix  - 嗶嗶嗶 v.s. Ultimate Seduction (Combshakz Mashup)
+**Track**: SOMBR - 12 TO 12 (WILLØ REMIX)
 
-Last updated at 1/4/2026, 8:14:27 PM
+Last updated at 1/4/2026, 8:15:32 PM
