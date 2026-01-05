@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ewADMbgqmjTBjaQu-xDEW7Q-t500x500.png">](https://soundcloud.com/jukaamusic/summertime-blood-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GXyfIZXmLB9iEYJs-FzxzZw-t500x500.jpg">](https://soundcloud.com/jacobgrosse/lovesong)
 
-**Artist**: Jukaa 
+**Artist**: Jacob Grosse 
 
-**Track**: Yung Lean, Skrillex, Bladee & Ecco2k - SummerTime Blood (Jukaa Bootleg)
+**Track**: Love You Like A Love Song (Edit)
 
-Last updated at 1/5/2026, 4:02:41 PM
+Last updated at 1/5/2026, 4:05:22 PM
