@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCImmONg8rRVAIaD-0To3lw-t500x500.png">](https://soundcloud.com/pepperbrookscooks/sugar-on-my-tongue-pepper-brooks-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T5ymvfmEUpmvyTpS-xNfY4Q-t500x500.png">](https://soundcloud.com/artlus/artlus-drop-it-like-its-hot)
 
-**Artist**: Tyler, The Creator 
+**Artist**: ARTLUS 
 
-**Track**: Sugar On My Tongue (PEPPER BROOKS Edit) *FREE DL*
+**Track**: ARTLUS - Drop It Like Its Hot [Bonus Track]
 
-Last updated at 1/4/2026, 7:17:13 PM
+Last updated at 1/4/2026, 7:19:53 PM
