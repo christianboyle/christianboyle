@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hjbTukaqyDQsejLs-J9UeTA-t500x500.png">](https://soundcloud.com/7senss/frostbite-maple-with3r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Senses 
+**Artist**: Aidan McCrae 
 
-**Track**: frostbite  (maple + with3r)
+**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
 
-Last updated at 1/5/2026, 4:12:02 PM
+Last updated at 1/5/2026, 4:14:07 PM
