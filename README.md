@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-stqMRUgkwL5l6g6Z-FgAOYQ-t500x500.jpg">](https://soundcloud.com/bundydemos/feel-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-DTmvNYk4kpKETXpH-VcLVLQ-t500x500.jpg">](https://soundcloud.com/lee-sparky-sparkes/house-classics-20th-sept-2024-two-hours)
 
-**Artist**: bundy // demos 
+**Artist**: Sparksy 
 
-**Track**: feel right!
+**Track**: House classics 20th sept 2024 two hours
 
-Last updated at 1/5/2026, 7:40:27 AM
+Last updated at 1/5/2026, 7:41:27 AM
