@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtVhH5YIy6LZxC2z-32GyEA-t500x500.png">](https://soundcloud.com/fadfood5/frequency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jj64VFzcllju09se-tMAYlw-t500x500.png">](https://soundcloud.com/skull-sprout/headbang-frequency-vol-3)
 
-**Artist**: fadi. 
+**Artist**: skullsprout. 
 
-**Track**: Frequency
+**Track**: headbang frequency vol. 3
 
-Last updated at 1/5/2026, 7:43:38 AM
+Last updated at 1/5/2026, 7:45:48 AM
