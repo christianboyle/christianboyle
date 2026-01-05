@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWi5TMKDREHtF9rc-OGHmmw-t500x500.png">](https://soundcloud.com/gltymusic/solstice-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-88HuFYTAdWEMpRXB-0xWTgA-t500x500.png">](https://soundcloud.com/soundsbyaether/take-me-under)
 
-**Artist**: GLTY 
+**Artist**: aether 
 
-**Track**: Solstice vol. 3
+**Track**: take me under.
 
-Last updated at 1/4/2026, 6:03:11 PM
+Last updated at 1/4/2026, 7:13:47 PM
