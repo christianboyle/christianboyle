@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pq5aPL9zILvO5Kzk-yjM7hg-t500x500.jpg">](https://soundcloud.com/elation_northwest/hypernoiz-x-mc-tazo-elation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ldnOnkYR0wcAbD93-DvAEFA-t500x500.png">](https://soundcloud.com/vassagomelb/fred-again-talk-of-the-town-vassago-remix)
 
-**Artist**: ELATION 
+**Artist**: Vassago 
 
-**Track**: ELATION- THE 4TH BIRTHDAY - HYPERNOIZ & MC TAZO @ PURE WIGAN 15TH NOVEMBER
+**Track**: Fred Again Talk of the Town (Vassago Remix)
 
-Last updated at 1/4/2026, 7:14:47 PM
+Last updated at 1/4/2026, 7:15:47 PM
