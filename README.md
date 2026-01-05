@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2f4thTKPZ0sf95Zz-4ro18g-t500x500.png">](https://soundcloud.com/marlonhoffstadt/yeat-come-n-go-marlon-hoffstadt-edit?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Aidan McCrae 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
+**Track**: Yeat - COMË N GO  (Marlon Hoffstadt Edit)
 
-Last updated at 1/5/2026, 4:14:07 PM
+Last updated at 1/5/2026, 4:18:03 PM
