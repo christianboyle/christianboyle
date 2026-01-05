@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jj64VFzcllju09se-tMAYlw-t500x500.png">](https://soundcloud.com/skull-sprout/headbang-frequency-vol-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyPEmFnRB8IcvBis-4PaBVA-t500x500.jpg">](https://soundcloud.com/ruvlo/dragmeaway)
 
-**Artist**: skullsprout. 
+**Artist**: RUVLO 
 
-**Track**: headbang frequency vol. 3
+**Track**: RUVLO - DRAG ME AWAY (feat. ANDY KUTNER of AFTERMYFALL)
 
-Last updated at 1/5/2026, 7:45:48 AM
+Last updated at 1/5/2026, 7:51:44 AM
