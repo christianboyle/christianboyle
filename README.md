@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3j0BKYumZ87-0-t500x500.png">](https://soundcloud.com/oneohtrix-point-never/cc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A2ydglrtFVOab8NP-Gy2D3w-t500x500.jpg">](https://soundcloud.com/resident-advisor/ra-1020-crimeboys)
 
-**Artist**: Oneohtrix Point Never 
+**Artist**: Resident Advisor 
 
-**Track**: CC
+**Track**: RA.1020 crimeboys
 
-Last updated at 1/6/2026, 6:12:42 AM
+Last updated at 1/6/2026, 8:41:28 AM
