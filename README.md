@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hIUvXZy2w4Kf5xLu-jnmeYw-t500x500.jpg">](https://soundcloud.com/annenymphaea/anne-nymphaea-the-answer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGy7kNKq9rcWeNZz-zAq26Q-t500x500.png">](https://soundcloud.com/wibezz/f6031292-9518-482e-b53a-3cf7d7fa64d3)
 
-**Artist**: Anne Nymphaea 
+**Artist**: WibeZz, Rabbithole 
 
-**Track**: The Answer (212 edit) - 18/3 official release
+**Track**: The Matrix
 
-Last updated at 1/6/2026, 2:57:12 PM
+Last updated at 1/6/2026, 3:57:29 PM
