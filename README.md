@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBD8jya5K8VLl40p-iuSDOA-t500x500.jpg">](https://soundcloud.com/hexed-official/this-is-why-im-hot-flip?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vQCAs4zSUVzieSPh-IZxdrQ-t500x500.png">](https://soundcloud.com/nullrecuk/static-2001-intro-mix?in=saxurn/sets/squarely-opposed)
 
-**Artist**: HEXED 
+**Artist**: Static 
 
-**Track**: MIMS - THIS IS WHY I'M HOT (HEXED FLIP)
+**Track**: Static - 2001 (Intro Mix)
 
-Last updated at 1/5/2026, 7:08:09 PM
+Last updated at 1/5/2026, 7:12:59 PM
