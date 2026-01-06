@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000276830534-bhssvx-t500x500.jpg">](https://soundcloud.com/bladee1000/best-buy-prod-forza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKEmsmm5VTYp-0-t500x500.png">](https://soundcloud.com/oneohtrix-point-never/vestigel)
 
-**Artist**: bladee 
+**Artist**: Oneohtrix Point Never 
 
-**Track**: Best Buy prod. Forza
+**Track**: Vestigel
 
-Last updated at 1/5/2026, 7:44:25 PM
+Last updated at 1/5/2026, 7:52:29 PM
