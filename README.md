@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B40yFOGwwuz8WESr-eyn5ig-t500x500.jpg">](https://soundcloud.com/mardudubz/mox-x-poklypz-x-scrch-empire-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2cIAd1fgPDbx3VyB-2acOjg-t500x500.png">](https://soundcloud.com/thenewmonkey_official/dj-lewe-damage-mc-submission)
 
-**Artist**: MOX dubz 
+**Artist**: The New Monkey 
 
-**Track**: MOX x POKLYPZ x SCRCH - EMPIRE [FREE DL]
+**Track**: DJ LEWE DAMAGE - MC SUBMISSION
 
-Last updated at 1/6/2026, 2:31:49 PM
+Last updated at 1/6/2026, 2:33:49 PM
