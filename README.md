@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uERK2JMuCDn2UEj1-HmMhwg-t500x500.jpg">](https://soundcloud.com/odinsounds/dior-odin-flip?in=saxurn/sets/squarely-opposed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iBD8jya5K8VLl40p-iuSDOA-t500x500.jpg">](https://soundcloud.com/hexed-official/this-is-why-im-hot-flip?in=saxurn/sets/squarely-opposed)
 
-**Artist**: ODIN 
+**Artist**: HEXED 
 
-**Track**: Pop Smoke - Dior (ODIN Flip)
+**Track**: MIMS - THIS IS WHY I'M HOT (HEXED FLIP)
 
-Last updated at 1/5/2026, 7:04:18 PM
+Last updated at 1/5/2026, 7:08:09 PM
