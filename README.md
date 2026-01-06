@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FGy7kNKq9rcWeNZz-zAq26Q-t500x500.png">](https://soundcloud.com/wibezz/f6031292-9518-482e-b53a-3cf7d7fa64d3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcZDm2hsRUyLmo3b-hHAB5w-t500x500.png">](https://soundcloud.com/book-of-genesis-records/jean-vayat-ft-mohsen-neshom-atish-extended-mix-1)
 
-**Artist**: WibeZz, Rabbithole 
+**Artist**: The Book Of Genesis Records 
 
-**Track**: The Matrix
+**Track**: Jean Vayat ft. Mohsen Neshom - Atish [Extended Mix]
 
-Last updated at 1/6/2026, 3:57:29 PM
+Last updated at 1/6/2026, 4:17:46 PM
