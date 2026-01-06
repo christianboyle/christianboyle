@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PJf6GdPDQtpOywrH-GjjJqw-t500x500.png">](https://soundcloud.com/maakgmakesmusic/goldfinger-99-red-balloons-maakg-cinematic-dnb-mix?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IORbP0g6OUuTUkAf-4J64mw-t500x500.png">](https://soundcloud.com/iamusick/fracturedlogic)
 
-**Artist**: Maāk.G 
+**Artist**: Iamusick 
 
-**Track**: Goldfinger - 99 Red Balloons (Maāk.G Cinematic DnB Mix)
+**Track**: Fractured Logic
 
-Last updated at 1/6/2026, 9:39:45 AM
+Last updated at 1/6/2026, 9:43:46 AM
