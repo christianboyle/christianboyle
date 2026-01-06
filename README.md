@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1XJya4nm1EAgNsYv-v8sYiw-t500x500.png">](https://soundcloud.com/jawlyofficial/ancient-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qn5v9u863GYT8GNr-zehyaQ-t500x500.png">](https://soundcloud.com/dupermusic/dance-of-the-sugar-plum-fairy)
 
-**Artist**: Jawly 
+**Artist**: DUPER 
 
-**Track**: Ancient One
+**Track**: Dance Of The Sugar Plum Fairy
 
-Last updated at 1/6/2026, 2:41:50 PM
+Last updated at 1/6/2026, 2:45:10 PM
