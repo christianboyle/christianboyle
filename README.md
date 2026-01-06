@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ttk4RDzBYcdCbScX-QYGUhQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-veruah-kumara-tmpl004)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WMch6tq1EilNHuyT-ZFmgaA-t500x500.jpg">](https://soundcloud.com/paracek/dj-tallboy-x-paracek-on-the-floor)
 
-**Artist**: Techno Wereld, VERUAH  
+**Artist**: Paraçek, DJ TALLBOY 
 
-**Track**: Premiere: VERUAH - Kumara [TMPL004]
+**Track**: DJ Tallboy, Paraçek - On The Floor [FREE DOWNLOAD]
 
-Last updated at 1/6/2026, 2:48:01 PM
+Last updated at 1/6/2026, 2:52:26 PM
