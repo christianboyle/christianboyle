@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3uKdVEz1qHgHFBi-DVeA2Q-t500x500.png">](https://soundcloud.com/dvdmtl/2-life-extended-mix?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQmxCggq4OzPBky-LFualA-t500x500.jpg">](https://soundcloud.com/rvstyy/ion-like-that-fuck-you-ho?in=saxurn/sets/overflow)
 
-**Artist**: D V D, nabii 
+**Artist**: rvsty (prod. 2ukko) 
 
-**Track**: 2 Life (Extended Mix)
+**Track**: ion like that (lyrics in desc)
 
-Last updated at 1/6/2026, 9:04:54 AM
+Last updated at 1/6/2026, 9:14:33 AM
