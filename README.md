@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AwtIJBlyxUtZ6za6-4gqOuQ-t500x500.jpg">](https://soundcloud.com/wakinglifeportugal/dj-fart-in-the-club-at-waking-life-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3uKdVEz1qHgHFBi-DVeA2Q-t500x500.png">](https://soundcloud.com/dvdmtl/2-life-extended-mix?in=saxurn/sets/overflow)
 
-**Artist**: Dj Fart in the Club 
+**Artist**: D V D, nabii 
 
-**Track**: Dj Fart in the Club at Waking Life 2025
+**Track**: 2 Life (Extended Mix)
 
-Last updated at 1/6/2026, 9:03:44 AM
+Last updated at 1/6/2026, 9:04:54 AM
