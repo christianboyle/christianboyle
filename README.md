@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OlAhLIDWI4f68zOs-gWgB2w-t500x500.png">](https://soundcloud.com/shweezofficial/lethal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ttk4RDzBYcdCbScX-QYGUhQ-t500x500.png">](https://soundcloud.com/technowereld/premiere-veruah-kumara-tmpl004)
 
-**Artist**: SHWEEZ 
+**Artist**: Techno Wereld, VERUAH  
 
-**Track**: SHWEEZ x MORPHIUS - LETHAL
+**Track**: Premiere: VERUAH - Kumara [TMPL004]
 
-Last updated at 1/6/2026, 2:46:30 PM
+Last updated at 1/6/2026, 2:48:01 PM
