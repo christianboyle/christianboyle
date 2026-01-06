@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2cIAd1fgPDbx3VyB-2acOjg-t500x500.png">](https://soundcloud.com/thenewmonkey_official/dj-lewe-damage-mc-submission)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsXxyFGc6NwtkYGP-eQ05UQ-t500x500.png">](https://soundcloud.com/the-ransom-note/premiere-ufo95-absence-has-shape-mord)
 
-**Artist**: The New Monkey 
+**Artist**: UFO95  
 
-**Track**: DJ LEWE DAMAGE - MC SUBMISSION
+**Track**: PREMIERE: UFO95 - Absence Has Shape [MORD}
 
-Last updated at 1/6/2026, 2:33:49 PM
+Last updated at 1/6/2026, 2:40:50 PM
