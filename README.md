@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p9t8QqRyl3JJ4RdQ-z5rMWQ-t500x500.jpg">](https://soundcloud.com/user-112665076/sopranos-battle-of-the-brands-set-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xrpZWcfx1lqrO0XL-ACe5Ng-t500x500.png">](https://soundcloud.com/datatransmissiondnb/benny-v-genesis-elijah-floatin-dance-concept)
 
-**Artist**: Scott Simms ( Dj Simmy ) 
+**Artist**: Benny V / Genesis Elijah 
 
-**Track**: Sopranos Battle Of The Brands Set MIx!!
+**Track**: Benny V & Genesis Elijah 'Floatin' [Dance Concept] *PREMIERE*
 
-Last updated at 1/6/2026, 4:20:42 PM
+Last updated at 1/6/2026, 4:37:38 PM
