@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mie1XTBlXnpOaxP2-3sEpqw-t500x500.png">](https://soundcloud.com/initi8uk/initi8-year-3000?in=saxurn/sets/bubba)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4zjWzkPMlak6jCm-c1flFw-t500x500.jpg">](https://soundcloud.com/maakgmakesmusic/charlixcx-c2-flip?in=saxurn/sets/bubba)
 
-**Artist**: Initi8 
+**Artist**: Maāk.G 
 
-**Track**: INITI8 - YEAR 3000
+**Track**: Charli XCX - c2.0 (Maāk.G Flip)
 
-Last updated at 1/6/2026, 9:50:36 AM
+Last updated at 1/6/2026, 9:53:52 AM
