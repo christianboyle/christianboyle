@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKEmsmm5VTYp-0-t500x500.png">](https://soundcloud.com/oneohtrix-point-never/vestigel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3j0BKYumZ87-0-t500x500.png">](https://soundcloud.com/oneohtrix-point-never/cc)
 
 **Artist**: Oneohtrix Point Never 
 
-**Track**: Vestigel
+**Track**: CC
 
-Last updated at 1/5/2026, 7:52:29 PM
+Last updated at 1/6/2026, 6:06:15 AM
