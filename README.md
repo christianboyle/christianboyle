@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVj3BYdrIXoOO1hq-SiUFIQ-t500x500.png">](https://soundcloud.com/deadpanbass/lil-wayne-a-milli-deadpan-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IjP4pdxK7Do28yQi-LCIF8Q-t500x500.jpg">](https://soundcloud.com/bemahbeats/jack-u-to-u-bemah-flip)
 
-**Artist**: DEADPAN 
+**Artist**: Bemah 
 
-**Track**: Lil Wayne - A MILLI (DEADPAN FLIP)
+**Track**: Jack U - To U (Bemah Flip)
 
-Last updated at 1/7/2026, 8:45:16 AM
+Last updated at 1/7/2026, 8:46:16 AM
