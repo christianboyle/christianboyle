@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JV1m9Z8Q1rUJBOT-fLoM7Q-t500x500.png">](https://soundcloud.com/steven-j-wilson-2/wilson-5-more-hours?in=saxurn/sets/unc-head/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wm6zrOCJLH0VJjCz-JzQE4Q-t500x500.jpg">](https://soundcloud.com/gzmo-productions/william-black-fairlane-broken?in=saxurn/sets/unc-head/)
 
-**Artist**: Dj Wilson (official) 
+**Artist**: GZMO 
 
-**Track**: Wilson - 5 More Hours
+**Track**: William Black & Fairlane - Broken (GZMO Remix)
 
-Last updated at 1/7/2026, 2:50:25 PM
+Last updated at 1/7/2026, 2:52:00 PM
