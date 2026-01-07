@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QexH1aWfnMow3yee-9fEaKQ-t500x500.png">](https://soundcloud.com/sandsconnection/myles-smith-nice-to-meet-you?in=saxurn/sets/unc-head/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bvDcUF09Ip0LDJJX-j4a5aA-t500x500.jpg">](https://soundcloud.com/djheartstring/ignition-technician-hands-in-the-air-dj-heartstring-remix?in=saxurn/sets/unc-head/)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: DJ HEARTSTRING 
 
-**Track**: Myles Smith - Nice To Meet You (Gaz Summers Remix)FREE DOWNLOAD
+**Track**: Ignition Technician - Throw Your Hands (DJ HEARTSTRING Remix)
 
-Last updated at 1/7/2026, 2:18:23 PM
+Last updated at 1/7/2026, 2:21:54 PM
