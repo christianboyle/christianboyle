@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7qyEaO7wgzIiggUY-1tVIQQ-t500x500.jpg">](https://soundcloud.com/imeleveneleven/green-day-boulevard-of-broken)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sVj3BYdrIXoOO1hq-SiUFIQ-t500x500.png">](https://soundcloud.com/deadpanbass/lil-wayne-a-milli-deadpan-flip)
 
-**Artist**: ELEVEN ELEVEN 
+**Artist**: DEADPAN 
 
-**Track**: GREEN DAY - Boulevard of Broken Dreams ( ELEVEN ELEVEN REMIX )
+**Track**: Lil Wayne - A MILLI (DEADPAN FLIP)
 
-Last updated at 1/7/2026, 8:44:11 AM
+Last updated at 1/7/2026, 8:45:16 AM
