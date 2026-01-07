@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtVhH5YIy6LZxC2z-32GyEA-t500x500.png">](https://soundcloud.com/fadfood5/frequency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZcyancoXka16G3SK-6GKJ1g-t500x500.png">](https://soundcloud.com/dnzrecords/stephen-b-fall-at-your-feet)
 
-**Artist**: fadi. 
+**Artist**: Stephen B 
 
-**Track**: Frequency
+**Track**: Stephen B - Fall At Your Feet
 
-Last updated at 1/7/2026, 1:54:44 PM
+Last updated at 1/7/2026, 1:55:44 PM
