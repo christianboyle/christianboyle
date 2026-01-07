@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ql63S0lcHbL3pEa4-UuVtyA-t500x500.png">](https://soundcloud.com/mart-x-dj/skrillex-ft-isoxo-fuze-mart-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lYdme2L4TS5sUcGh-vzP2nw-t500x500.jpg">](https://soundcloud.com/moodydeejayoff/dont-call-me-baby-mousse-t-remix-moody-samy-work-edit)
 
-**Artist**: Mart!x 
+**Artist**: MOODY 
 
-**Track**: Skrillex ft. ISOxo - Fuze (Mart!x Remix)
+**Track**: Don't Call Me Baby (Mousse T. Remix) MOODY - SAMY WORK EDIT
 
-Last updated at 1/7/2026, 8:47:31 AM
+Last updated at 1/7/2026, 8:48:57 AM
