@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZYQ5GMk6lVEtQ8Fl-ygEgCA-t500x500.jpg">](https://soundcloud.com/recoredj/beninging)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vNtlqzScfEEEqMah-zrAF0Q-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/sunday-sessions-vol-53-drift)
 
-**Artist**: Baz ReCore 
+**Artist**: DRIFT 
 
-**Track**: In The... Ini The Beninging
+**Track**: SUNDAY SESSIONS VOL 53 - DRIFT - MASH UP (TRACK LISTED))
 
-Last updated at 1/7/2026, 6:12:48 AM
+Last updated at 1/7/2026, 6:14:33 AM
