@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k2AirCLpH6QPRzoU-fH9lFg-t500x500.png">](https://soundcloud.com/highsynth1/to-hard-to-find-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yAKkBfO5J8ZT5rFr-SNxemA-t500x500.png">](https://soundcloud.com/forbiddenfrequenciesdnb/optimus-freddy-b-break-this)
 
-**Artist**: DRIFT 
+**Artist**: Optimus, Freddy B 
 
-**Track**: TO HARD TO FIND (OUT NOW)
+**Track**: Optimus & Freddy B - Break This
 
-Last updated at 1/8/2026, 8:13:50 AM
+Last updated at 1/8/2026, 8:15:10 AM
