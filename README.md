@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8lUssa1kckBUTmSN-zFdV1A-t500x500.png">](https://soundcloud.com/bassjackers/brighterdays?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qDa6xN8fAeea9Pt-Bviing-t500x500.jpg">](https://soundcloud.com/stinny-stone/h-bch?in=saxurn/sets/led-dot)
 
-**Artist**: BASSJACKERS 
+**Artist**: STINNY STONE \(★ω★)/ 
 
-**Track**: Brighter Days
+**Track**: H! B★✝ch ✌
 
-Last updated at 1/8/2026, 9:29:27 AM
+Last updated at 1/8/2026, 11:00:18 AM
