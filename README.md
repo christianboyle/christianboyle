@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWubq9bE0EuA37f8-4gHFaw-t500x500.png">](https://soundcloud.com/r-ve-he-ven/ocho-x-blade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srTaxtAEhuNGMkqR-MOvvZA-t500x500.png">](https://soundcloud.com/t-amsterdam-dance-capital/edo-feels-like-a-dream-adc032)
 
-**Artist**: RAVE HEAVEN, BEAUZ, KEVU 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: OCHO x BLADE (Rave Heaven Bootleg) [FREE DL]
+**Track**: EDO - Feels Like A Dream [ADC032]
 
-Last updated at 1/8/2026, 8:17:15 AM
+Last updated at 1/8/2026, 8:18:20 AM
