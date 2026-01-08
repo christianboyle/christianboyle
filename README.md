@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGBJh3ILMHRkWCzR-y0z2bA-t500x500.png">](https://soundcloud.com/neo_trance/grim-haunted-memento)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pMlkjA4z5oPDnhSP-r4ffYw-t500x500.png">](https://soundcloud.com/cheekytracks/ill-be-there)
 
-**Artist**: NEOTRANCE 
+**Artist**: The R.Y.E 
 
-**Track**: GRIM - Haunted Memento
+**Track**: The R.Y.E - I'll Be There
 
-Last updated at 1/8/2026, 8:59:18 AM
+Last updated at 1/8/2026, 9:01:47 AM
