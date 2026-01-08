@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5w31tz8QkKIsnCwg-3qKhhQ-t500x500.png">](https://soundcloud.com/radiorudina/big-stein-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WabyzO40LKnndyuj-PuLySg-t500x500.png">](https://soundcloud.com/highsynth1/party-till-sunrise-uk-hardcore-mix-out-now)
 
-**Artist**: Radio Rudina 
+**Artist**: DRIFT 
 
-**Track**: Big Stein | Radio Rudina
+**Track**: PARTY TILL SUNRISE (UK HARDCORE MIX) OUT NOW
 
-Last updated at 1/8/2026, 6:14:09 AM
+Last updated at 1/8/2026, 7:20:41 AM
