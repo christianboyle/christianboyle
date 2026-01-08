@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijDy8wImV7ED5acm-cdwvHw-t500x500.jpg">](https://soundcloud.com/finn-hurts/hrts-burn-dem-bridges-edit?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qCS07JLbaP5cPf5g-E0kIzw-t500x500.jpg">](https://soundcloud.com/odinsounds/helium?in=saxurn/sets/led-dot)
 
-**Artist**: Hurts 
+**Artist**: ODIN, ALEX RAZO 
 
-**Track**: Hurts - Burn Dem Bridges
+**Track**: The Chainsmokers - Helium (ODIN & ALEX RAZO Flip)
 
-Last updated at 1/8/2026, 9:19:51 AM
+Last updated at 1/8/2026, 9:24:22 AM
