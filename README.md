@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vashwWgtfi1iEIJK-optEww-t500x500.png">](https://soundcloud.com/stinny-stone/milano-sushi-coca-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies?in=saxurn/sets/led-dot)
 
-**Artist**: STINNY STONE \(★ω★)/ 
+**Artist**: Stinny Stone 
 
-**Track**: MILANO, SUSHI, COCA <3
+**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
 
-Last updated at 1/8/2026, 11:03:43 AM
+Last updated at 1/8/2026, 12:11:21 PM
