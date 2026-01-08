@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pMlkjA4z5oPDnhSP-r4ffYw-t500x500.png">](https://soundcloud.com/cheekytracks/ill-be-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1?in=saxurn/sets/led-dot/)
 
-**Artist**: The R.Y.E 
+**Artist**: mersichrist, deepinparis, apkghost, crusafix 
 
-**Track**: The R.Y.E - I'll Be There
+**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
 
-Last updated at 1/8/2026, 9:01:47 AM
+Last updated at 1/8/2026, 9:06:20 AM
