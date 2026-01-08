@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NsyJsA4GRFiGHCWk-VnBYOw-t500x500.jpg">](https://soundcloud.com/y4ndere/sweetplastic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGBJh3ILMHRkWCzR-y0z2bA-t500x500.png">](https://soundcloud.com/neo_trance/grim-haunted-memento)
 
-**Artist**: yandere 
+**Artist**: NEOTRANCE 
 
-**Track**: SWEETPL♡STiC
+**Track**: GRIM - Haunted Memento
 
-Last updated at 1/8/2026, 8:58:18 AM
+Last updated at 1/8/2026, 8:59:18 AM
