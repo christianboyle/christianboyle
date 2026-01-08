@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qzLiCtjv5ApWhQ6O-Oqszpg-t500x500.jpg">](https://soundcloud.com/lee-batchee-147371268/batchee-cant-get-enough-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EJT3SEGTyMmkgkNE-I7AuWg-t500x500.png">](https://soundcloud.com/user-267458439/loreen-tattoo)
 
-**Artist**: batchee 
+**Artist**: Chris Henry 
 
-**Track**: Batchee - Can't Get Enough ..(SAMPLE) available on BOUNCHEAVEN DIGITAL..Now
+**Track**: Loreen - Tattoo (Extended Mix)
 
-Last updated at 1/8/2026, 8:53:52 AM
+Last updated at 1/8/2026, 8:56:13 AM
