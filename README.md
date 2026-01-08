@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M0yaAinafwxWkUCy-VAAPEA-t500x500.png">](https://soundcloud.com/dj-iyf/farmyard-rebelz-i-got-issues)
 
-**Artist**: Stinny Stone 
+**Artist**: Farmyard Rebelz 
 
-**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
+**Track**: Farmyard Rebelz - I Got Issues ***FREE DOWNLOAD***
 
-Last updated at 1/8/2026, 12:11:21 PM
+Last updated at 1/8/2026, 5:10:22 PM
