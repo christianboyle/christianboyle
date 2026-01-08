@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wS52ysWEeZBRsYBE-s5Kw0g-t500x500.jpg">](https://soundcloud.com/wayne-bodenham/bodders-look-right-through)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-va4EfM515PqBHty4-u7srXw-t500x500.png">](https://soundcloud.com/viskus/lux-in-tenebris-1)
 
-**Artist**: Bodders 
+**Artist**: VISKUS 
 
-**Track**: Bodders - Look Right Through sample].mp3
+**Track**: Lux in Tenebris
 
-Last updated at 1/8/2026, 5:12:46 PM
+Last updated at 1/8/2026, 5:13:46 PM
