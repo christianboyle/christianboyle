@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EViEXLXxFYZ2JN38-1W5DDg-t500x500.png">](https://soundcloud.com/flintwick/planted-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies?in=saxurn/sets/led-dot/)
 
-**Artist**: Flintwick 
+**Artist**: Stinny Stone 
 
-**Track**: Planted
+**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
 
-Last updated at 1/8/2026, 5:13:51 PM
+Last updated at 1/8/2026, 5:15:14 PM
