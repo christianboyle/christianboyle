@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmHlB4zgw6B1zvN-TdiUgA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/ben-x-treme-vs-ortie-ft-lexxi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHzd1jFO9zzdmQ7Z-aayJcg-t500x500.jpg">](https://soundcloud.com/41rossco/9-1-26)
 
-**Artist**: GZMO 
+**Artist**: DJ.Rossco 
 
-**Track**: Ben X-Treme Vs. Ortie Ft. Lexxi - Looking Down (GZMO Remix)
+**Track**: 9.1.26
 
-Last updated at 1/9/2026, 6:40:55 AM
+Last updated at 1/9/2026, 6:53:10 AM
