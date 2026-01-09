@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHzd1jFO9zzdmQ7Z-aayJcg-t500x500.jpg">](https://soundcloud.com/41rossco/9-1-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oRRigAPHHUKIWe7R-lS87LA-t500x500.png">](https://soundcloud.com/nxstymusic/travis-scott-dumbo-nxsty-remix-8)
 
-**Artist**: DJ.Rossco 
+**Artist**: NXSTY 
 
-**Track**: 9.1.26
+**Track**: Travis Scott ~ Dumbo (NXSTY REMIX)
 
-Last updated at 1/9/2026, 6:53:10 AM
+Last updated at 1/9/2026, 6:54:10 AM
