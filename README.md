@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijDy8wImV7ED5acm-cdwvHw-t500x500.jpg">](https://soundcloud.com/finn-hurts/hrts-burn-dem-bridges-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1kJViMsto6j3bTCy-iork8g-t500x500.jpg">](https://soundcloud.com/djgg12/trying-simply-funk-edit)
 
-**Artist**: Hurts 
+**Artist**: GG12 
 
-**Track**: Hurts - Burn Dem Bridges
+**Track**: Trying (Simply Funk Edit)
 
-Last updated at 1/9/2026, 9:12:16 AM
+Last updated at 1/9/2026, 9:16:46 AM
