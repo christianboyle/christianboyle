@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8lUssa1kckBUTmSN-zFdV1A-t500x500.png">](https://soundcloud.com/bassjackers/brighterdays)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M0yaAinafwxWkUCy-VAAPEA-t500x500.png">](https://soundcloud.com/dj-iyf/farmyard-rebelz-i-got-issues)
 
-**Artist**: BASSJACKERS 
+**Artist**: Farmyard Rebelz 
 
-**Track**: Brighter Days
+**Track**: Farmyard Rebelz - I Got Issues ***FREE DOWNLOAD***
 
-Last updated at 1/9/2026, 8:59:19 AM
+Last updated at 1/9/2026, 9:03:11 AM
