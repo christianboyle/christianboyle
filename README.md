@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4XUWimKbmA1M1yMq-lUK8bQ-t500x500.jpg">](https://soundcloud.com/nrgaustralia/jack-whitworth-rock-the-block-nrg-records-unreleased)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8lUssa1kckBUTmSN-zFdV1A-t500x500.png">](https://soundcloud.com/bassjackers/brighterdays)
 
-**Artist**: NRG ✮ 
+**Artist**: BASSJACKERS 
 
-**Track**: Jack Whitworth - Rock The Block [NRG ✮ RECORDS]
+**Track**: Brighter Days
 
-Last updated at 1/9/2026, 8:55:34 AM
+Last updated at 1/9/2026, 8:59:19 AM
