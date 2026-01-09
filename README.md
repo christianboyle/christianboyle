@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BKvo6bCozlbHx56y-qGWCvg-t500x500.png">](https://soundcloud.com/bo0tyleak/numb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijDy8wImV7ED5acm-cdwvHw-t500x500.jpg">](https://soundcloud.com/finn-hurts/hrts-burn-dem-bridges-edit)
 
-**Artist**: BOOTY LEAK, Krmoni, Yumarius 
+**Artist**: Hurts 
 
-**Track**: Booty Leak + Krmoni & Yumarius - Numb [ FREE DOWNLOAD ]
+**Track**: Hurts - Burn Dem Bridges
 
-Last updated at 1/9/2026, 9:10:20 AM
+Last updated at 1/9/2026, 9:12:16 AM
