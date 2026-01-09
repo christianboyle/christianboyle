@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmHlB4zgw6B1zvN-TdiUgA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/ben-x-treme-vs-ortie-ft-lexxi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ziqljKses5lntv2o-gld6FQ-t500x500.jpg">](https://soundcloud.com/remyheartmusic/hold-on)
 
-**Artist**: GZMO 
+**Artist**: Remy Heart 
 
-**Track**: Ben X-Treme Vs. Ortie Ft. Lexxi - Looking Down (GZMO Remix)
+**Track**: Hold On
 
-Last updated at 1/9/2026, 8:37:17 AM
+Last updated at 1/9/2026, 8:40:43 AM
