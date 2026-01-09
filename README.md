@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qCS07JLbaP5cPf5g-E0kIzw-t500x500.jpg">](https://soundcloud.com/odinsounds/helium)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies)
 
-**Artist**: ODIN, ALEX RAZO 
+**Artist**: Stinny Stone 
 
-**Track**: The Chainsmokers - Helium (ODIN & ALEX RAZO Flip)
+**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
 
-Last updated at 1/9/2026, 8:43:28 AM
+Last updated at 1/9/2026, 8:45:48 AM
