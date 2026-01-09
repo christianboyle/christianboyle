@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FvS8LTq0ACqjK9Yf-ilY1XQ-t500x500.jpg">](https://soundcloud.com/dj-outburst/rec019)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K2lwHyFLfWl6fA9G-1bdOiQ-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/chunkee-monkee-goes-531938860)
 
-**Artist**: Outburst 
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: Outburst - January 2026 Hardcore Mix
+**Track**: Chunkee Monkee Goes Bananas EP10 DJ Tori Ann
 
-Last updated at 1/9/2026, 9:35:13 AM
+Last updated at 1/9/2026, 3:44:11 PM
