@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eI0HQjtEVNUarlkI-ryJW5w-t500x500.jpg">](https://soundcloud.com/ashmeoutsideofficial/be-somebody-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y8yI5uc3MxhC-0-t500x500.jpg">](https://soundcloud.com/sxmpra/bleed)
 
-**Artist**: ash me outside, ribbit 
+**Artist**: SXMPRA 
 
-**Track**: Emotional Oranges feat TKay - Be Somebody (ribbit & ash me outside flip)
+**Track**: BLEED
 
-Last updated at 1/9/2026, 6:58:21 AM
+Last updated at 1/9/2026, 6:59:21 AM
