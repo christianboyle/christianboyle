@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IzC1hCHgd2TYvq58-SQ5buA-t500x500.png">](https://soundcloud.com/81zaki/lou-fresh-sandwiches-taylor-81zaki-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wm6zrOCJLH0VJjCz-JzQE4Q-t500x500.jpg">](https://soundcloud.com/gzmo-productions/william-black-fairlane-broken)
 
-**Artist**: 81zaki 
+**Artist**: GZMO 
 
-**Track**: LOU FRE$H ★彡 - Sandwiches  (81zaki Edit)
+**Track**: William Black & Fairlane - Broken (GZMO Remix)
 
-Last updated at 1/9/2026, 9:19:01 AM
+Last updated at 1/9/2026, 9:21:01 AM
