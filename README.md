@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JEZOFrj9G4EjCTuv-Dv3Ggg-t500x500.png">](https://soundcloud.com/girlsynth/gas-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmHlB4zgw6B1zvN-TdiUgA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/ben-x-treme-vs-ortie-ft-lexxi)
 
-**Artist**: girlsynth 
+**Artist**: GZMO 
 
-**Track**: gas it
+**Track**: Ben X-Treme Vs. Ortie Ft. Lexxi - Looking Down (GZMO Remix)
 
-Last updated at 1/8/2026, 5:16:04 PM
+Last updated at 1/8/2026, 6:18:28 PM
