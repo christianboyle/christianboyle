@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YcnAMdLbuNq8omxn-dex62Q-t500x500.png">](https://soundcloud.com/shiftea/my-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4XUWimKbmA1M1yMq-lUK8bQ-t500x500.jpg">](https://soundcloud.com/nrgaustralia/jack-whitworth-rock-the-block-nrg-records-unreleased)
 
-**Artist**: 2shiftea, 1crusafix 
+**Artist**: NRG ✮ 
 
-**Track**: my time ft. 1crusafix [@prodbypatrick]
+**Track**: Jack Whitworth - Rock The Block [NRG ✮ RECORDS]
 
-Last updated at 1/9/2026, 8:53:14 AM
+Last updated at 1/9/2026, 8:55:34 AM
