@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qDa6xN8fAeea9Pt-Bviing-t500x500.jpg">](https://soundcloud.com/stinny-stone/h-bch)
 
-**Artist**: Stinny Stone 
+**Artist**: STINNY STONE \(★ω★)/ 
 
-**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
+**Track**: H! B★✝ch ✌
 
-Last updated at 1/9/2026, 8:45:48 AM
+Last updated at 1/9/2026, 8:49:48 AM
