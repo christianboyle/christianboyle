@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qDa6xN8fAeea9Pt-Bviing-t500x500.jpg">](https://soundcloud.com/stinny-stone/h-bch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YcnAMdLbuNq8omxn-dex62Q-t500x500.png">](https://soundcloud.com/shiftea/my-time)
 
-**Artist**: STINNY STONE \(★ω★)/ 
+**Artist**: 2shiftea, 1crusafix 
 
-**Track**: H! B★✝ch ✌
+**Track**: my time ft. 1crusafix [@prodbypatrick]
 
-Last updated at 1/9/2026, 8:49:48 AM
+Last updated at 1/9/2026, 8:53:14 AM
