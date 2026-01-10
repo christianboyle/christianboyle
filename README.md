@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SGdKNujaglmUdZFm-Ose6gA-t500x500.jpg">](https://soundcloud.com/jimmer-mcallister/jimmer-underneath-the-tree)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFNuUxvXD9cEdRY8-SGdTHQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-552117839)
 
-**Artist**: Jimmer • DJs Factory 
+**Artist**: Doaky & Dj Jas L 
 
-**Track**: Jimmer - Underneath the Tree [sample].mp3
+**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 33(Tracklist In Description)
 
-Last updated at 1/10/2026, 9:49:09 AM
+Last updated at 1/10/2026, 9:51:14 AM
