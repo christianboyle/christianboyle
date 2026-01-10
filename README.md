@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9s4NnvFBUjlsVyH-ZAqskw-t500x500.png">](https://soundcloud.com/gingerninja2022/bouncecast-vol-9-dj-dgn-little-p)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usYuIUrMj8DBGLpO-RFx8pQ-t500x500.png">](https://soundcloud.com/powertrancerec/fc-kabagar-bf-lover)
 
-**Artist**: Dj DGN & Little Pea 
+**Artist**: FC Kabagar 
 
-**Track**: Bouncecast Vol 9 DJ DGN & Little P
+**Track**: FC Kabagar - BF Lover
 
-Last updated at 1/9/2026, 9:41:18 PM
+Last updated at 1/9/2026, 9:53:22 PM
