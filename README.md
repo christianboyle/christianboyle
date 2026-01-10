@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtiyNv9VhDW0LSFv-CyAXcQ-t500x500.png">](https://soundcloud.com/nick-hughes-9/nick-hughes-set-me-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WPX1va8JiuBy17uQ-5w1hiA-t500x500.png">](https://soundcloud.com/david-bain-124331031/djb19-djs-factory-takeover-2)
 
-**Artist**: Nick Hughes 
+**Artist**: DJB19 
 
-**Track**: Nick Hughes Set Me Free
+**Track**: DJB19 DJ'S Factory Takeover Purple 2
 
-Last updated at 1/10/2026, 9:39:08 AM
+Last updated at 1/10/2026, 9:44:29 AM
