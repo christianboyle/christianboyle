@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aFNuUxvXD9cEdRY8-SGdTHQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-552117839)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fscnlUSOLOG37nET-jHsPtw-t500x500.png">](https://soundcloud.com/user-578406259/smokey-the-arms-of-loren)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: Smokey 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 33(Tracklist In Description)
+**Track**: Smokey - The Arms of Loren [sample]
 
-Last updated at 1/10/2026, 9:51:14 AM
+Last updated at 1/10/2026, 5:05:27 PM
