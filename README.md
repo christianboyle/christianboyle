@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mWLo6Hg1DZK5LnIt-q8EI7w-t500x500.jpg">](https://soundcloud.com/rossi_hodgson/luckystar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v47PNGBxJtyku0V5-PHMTpg-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/ultimate-classic-bonkers-mix-1)
 
-**Artist**: Rossi_Hodgson 
+**Artist**: Dj Des 
 
-**Track**: Rossi Hodgson X Jon Fazak - Lucky Star (2025 Bounce Remix)
+**Track**: The Ultimate Bonkers Journey ..... 1 - 17    🥰     100% Vinyl and 100% Bonkers
 
-Last updated at 1/10/2026, 5:20:48 PM
+Last updated at 1/10/2026, 5:22:18 PM
