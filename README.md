@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Kr1xPYzmJCCGvdN-ZtI5wA-t500x500.jpg">](https://soundcloud.com/ricky-turner-186724030/mr-t-im-on-your-side-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtiyNv9VhDW0LSFv-CyAXcQ-t500x500.png">](https://soundcloud.com/nick-hughes-9/nick-hughes-set-me-free)
 
-**Artist**: Ricky Turner 
+**Artist**: Nick Hughes 
 
-**Track**: Mr T - I'm On Your Side sample].mp3
+**Track**: Nick Hughes Set Me Free
 
-Last updated at 1/10/2026, 9:37:48 AM
+Last updated at 1/10/2026, 9:39:08 AM
