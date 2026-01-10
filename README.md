@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myOyKcO7OTBhwobt-Kphk4Q-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-qbounce-rushin-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NfZXjyu9ihrqKHfU-uzoZIQ-t500x500.png">](https://soundcloud.com/sodownbassmusic/still-tippin-sodown-remix-mike)
 
-**Artist**: DJ Pleasure 
+**Artist**: SoDown 
 
-**Track**: DJ Pleasure & QBounce - Rushin (To Let The World Know) [Sample].mp3
+**Track**: Still Tippin' (SoDown Remix) - Mike Jones
 
-Last updated at 1/10/2026, 9:15:20 AM
+Last updated at 1/10/2026, 9:16:40 AM
