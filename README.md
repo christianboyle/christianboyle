@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-usYuIUrMj8DBGLpO-RFx8pQ-t500x500.png">](https://soundcloud.com/powertrancerec/fc-kabagar-bf-lover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myOyKcO7OTBhwobt-Kphk4Q-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-qbounce-rushin-to)
 
-**Artist**: FC Kabagar 
+**Artist**: DJ Pleasure 
 
-**Track**: FC Kabagar - BF Lover
+**Track**: DJ Pleasure & QBounce - Rushin (To Let The World Know) [Sample].mp3
 
-Last updated at 1/10/2026, 6:13:42 AM
+Last updated at 1/10/2026, 9:15:20 AM
