@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myOyKcO7OTBhwobt-Kphk4Q-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-qbounce-rushin-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LlspXX3d6rC5hqx-z8ntNA-t500x500.jpg">](https://soundcloud.com/david-bain-124331031/djs-factory-dont-stop-the)
 
-**Artist**: DJ Pleasure 
+**Artist**: David Bain (DJB19) (Djs Factory) 
 
-**Track**: DJ Pleasure & QBounce - Rushin (To Let The World Know) [Sample].mp3
+**Track**: DJs Factory - Don't Stop the Party [sample].mp3
 
-Last updated at 1/10/2026, 9:17:45 AM
+Last updated at 1/10/2026, 9:18:45 AM
