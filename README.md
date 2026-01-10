@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4LlspXX3d6rC5hqx-z8ntNA-t500x500.jpg">](https://soundcloud.com/david-bain-124331031/djs-factory-dont-stop-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itHN2aI49FNYpemb-mze1mA-t500x500.jpg">](https://soundcloud.com/dodgeyboy85/one-more-mix-before-2026)
 
-**Artist**: David Bain (DJB19) (Djs Factory) 
+**Artist**: Dodge 
 
-**Track**: DJs Factory - Don't Stop the Party [sample].mp3
+**Track**: one more mix before 2026
 
-Last updated at 1/10/2026, 9:18:45 AM
+Last updated at 1/10/2026, 9:20:00 AM
