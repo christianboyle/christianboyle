@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6NtXxJ3m6hqCOgPx-wJFOuQ-t500x500.jpg">](https://soundcloud.com/greaterheightspnw/science-forms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S1rfpVSN6WgPvarR-RPBs5Q-t500x500.jpg">](https://soundcloud.com/mark-smith-carnage/audioboyz-production-mix-1)
 
-**Artist**: Greater Heights , Madtek 
+**Artist**: CARNAGE 
 
-**Track**: SCIENCE FORMS
+**Track**: Audioboyz Production Mix (CARNAGE MIX)
 
-Last updated at 1/11/2026, 9:58:14 AM
+Last updated at 1/11/2026, 1:24:59 PM
