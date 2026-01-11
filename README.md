@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T2x1iNQz3giWeR5y-KxXShw-t500x500.jpg">](https://soundcloud.com/user-259961641/jo-e-dex-the-sceptre)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIDKZhi9Q2p5M0wd-vmAqdQ-t500x500.png">](https://soundcloud.com/mash_up_edm/nghtmre-idk-trials-trap-4)
 
-**Artist**: JO E DEX 
+**Artist**: MASH UP [EDM] 
 
-**Track**: Jo E Dex - The Sceptre_[cut_204sec].mp3
+**Track**: NGHTMRE & IDK - Trials [TRAP] [FREE DOWNLOAD]
 
-Last updated at 1/11/2026, 1:26:14 PM
+Last updated at 1/11/2026, 1:27:14 PM
