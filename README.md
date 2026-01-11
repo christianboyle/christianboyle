@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JW71GuR5ow29i3yW-TTu8ew-t500x500.png">](https://soundcloud.com/marc69-1/jan-hardcore-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6NtXxJ3m6hqCOgPx-wJFOuQ-t500x500.jpg">](https://soundcloud.com/greaterheightspnw/science-forms)
 
-**Artist**: Marc.K.B 
+**Artist**: Greater Heights , Madtek 
 
-**Track**: JAN HARDCORE MIX
+**Track**: SCIENCE FORMS
 
-Last updated at 1/11/2026, 9:57:13 AM
+Last updated at 1/11/2026, 9:58:14 AM
