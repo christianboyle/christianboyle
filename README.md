@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4XUWimKbmA1M1yMq-lUK8bQ-t500x500.jpg">](https://soundcloud.com/nrgaustralia/jack-whitworth-rock-the-block-nrg-records-unreleased?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1kJViMsto6j3bTCy-iork8g-t500x500.jpg">](https://soundcloud.com/djgg12/trying-simply-funk-edit?in=saxurn/sets/led-dot)
 
-**Artist**: NRG ✮ 
+**Artist**: GG12 
 
-**Track**: Jack Whitworth - Rock The Block [NRG ✮ RECORDS]
+**Track**: Trying (Simply Funk Edit)
 
-Last updated at 1/12/2026, 4:51:27 PM
+Last updated at 1/12/2026, 4:55:12 PM
