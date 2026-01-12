@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tpgEfUie80caksIH-mkOzew-t500x500.png">](https://soundcloud.com/grandalliancemusic/watch-me-yilo-remix-master-24bit-41k-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies?in=saxurn/sets/led-dot/)
 
-**Artist**: YILO 
+**Artist**: Stinny Stone 
 
-**Track**: Watch Me (YILO Remix)
+**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
 
-Last updated at 1/11/2026, 6:58:23 PM
+Last updated at 1/11/2026, 7:11:19 PM
