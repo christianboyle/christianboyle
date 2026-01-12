@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aIDKZhi9Q2p5M0wd-vmAqdQ-t500x500.png">](https://soundcloud.com/mash_up_edm/nghtmre-idk-trials-trap-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JW71GuR5ow29i3yW-TTu8ew-t500x500.png">](https://soundcloud.com/marc69-1/jan-hardcore-mix)
 
-**Artist**: MASH UP [EDM] 
+**Artist**: Marc.K.B 
 
-**Track**: NGHTMRE & IDK - Trials [TRAP] [FREE DOWNLOAD]
+**Track**: JAN HARDCORE MIX
 
-Last updated at 1/11/2026, 1:27:14 PM
+Last updated at 1/11/2026, 6:57:19 PM
