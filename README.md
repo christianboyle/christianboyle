@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3A1WGU22SOqd3d9g-ZREvoA-t500x500.png">](https://soundcloud.com/madjestickasual/mk-slap-city-guest-mix-100-rap-centric-musicsound-nts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1?in=saxurn/sets/led-dot)
 
-**Artist**: Madjestic Kasual 
+**Artist**: mersichrist, deepinparis, apkghost, crusafix 
 
-**Track**: MK: "SLAP CITY" GUEST MIX  — 100% RAP-CENTRIC MUSICSOUND / NTS ~ 🏆☝️
+**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
 
-Last updated at 1/12/2026, 4:44:31 PM
+Last updated at 1/12/2026, 4:46:41 PM
