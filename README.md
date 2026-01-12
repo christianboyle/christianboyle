@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n5o3mIjMWmRhFpsR-BJIkjg-t500x500.jpg">](https://soundcloud.com/justicehardcore/justusalbummix?in=justicehardcore/sets/justice-hardcore-presents-just)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3A1WGU22SOqd3d9g-ZREvoA-t500x500.png">](https://soundcloud.com/madjestickasual/mk-slap-city-guest-mix-100-rap-centric-musicsound-nts)
 
-**Artist**: Justice Hardcore 
+**Artist**: Madjestic Kasual 
 
-**Track**: JUST US ALBUM MIX (Mixed By Nobody)  (ALBUM OUT MONDAY)
+**Track**: MK: "SLAP CITY" GUEST MIX  — 100% RAP-CENTRIC MUSICSOUND / NTS ~ 🏆☝️
 
-Last updated at 1/12/2026, 3:33:49 PM
+Last updated at 1/12/2026, 4:44:31 PM
