@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1?in=saxurn/sets/led-dot)
 
-**Artist**: Stinny Stone 
+**Artist**: mersichrist, deepinparis, apkghost, crusafix 
 
-**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
+**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
 
-Last updated at 1/12/2026, 1:29:39 PM
+Last updated at 1/12/2026, 2:11:02 PM
