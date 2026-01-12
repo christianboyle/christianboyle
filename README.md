@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tlVSmU2mFaydDXTF-LYXUvA-t500x500.png">](https://soundcloud.com/nikmc211/now-thats-what-i-call-bounce-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zuy7oEXzkqzF44J-aRgcPg-t500x500.png">](https://soundcloud.com/gearbox-digital/anderex-gearbox-australia-2025-qudos-bank-arena-1?in=gearbox-digital/sets/gearboxaus)
 
-**Artist**: DJ Nickiee 
+**Artist**: Anderex 
 
-**Track**: NOW! That's What I Call Bounce Volume 24 - Nickiee
+**Track**: Anderex @ Gearbox - Australia 2025, Qudos Bank Arena
 
-Last updated at 1/12/2026, 10:22:30 AM
+Last updated at 1/12/2026, 10:46:08 AM
