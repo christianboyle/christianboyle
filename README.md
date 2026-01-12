@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3A1WGU22SOqd3d9g-ZREvoA-t500x500.png">](https://soundcloud.com/madjestickasual/mk-slap-city-guest-mix-100-rap-centric-musicsound-nts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mgt1PeaxgDI6aY2G-JYHC4Q-t500x500.jpg">](https://soundcloud.com/stinny-stone/butterflies?in=saxurn/sets/led-dot)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Stinny Stone 
 
-**Track**: MK: "SLAP CITY" GUEST MIX  — 100% RAP-CENTRIC MUSICSOUND / NTS ~ 🏆☝️
+**Track**: 𝓑𝓾𝓽𝓽𝓮𝓻𝓯𝓵𝓲𝓮𝓼 🦋
 
-Last updated at 1/12/2026, 10:51:08 AM
+Last updated at 1/12/2026, 1:29:39 PM
