@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xA2VIKi0Gu9KFVc-2I59Wg-t500x500.png">](https://soundcloud.com/sfamofficial/bella-ft-young-uno-with-it-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3A1WGU22SOqd3d9g-ZREvoA-t500x500.png">](https://soundcloud.com/madjestickasual/mk-slap-city-guest-mix-100-rap-centric-musicsound-nts)
 
-**Artist**: sfam 
+**Artist**: Madjestic Kasual 
 
-**Track**: bella ft. young uno - with it (sfam remix)
+**Track**: MK: "SLAP CITY" GUEST MIX  — 100% RAP-CENTRIC MUSICSOUND / NTS ~ 🏆☝️
 
-Last updated at 1/12/2026, 10:48:28 AM
+Last updated at 1/12/2026, 10:51:08 AM
