@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGbyvWnQNhGBJ7ZS-K5VOYw-t500x500.jpg">](https://soundcloud.com/breeden999/breeden-go-to-my-show)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wiHoa8oFfYIdJHnx-UwqRTw-t500x500.png">](https://soundcloud.com/stinny-stone/heaven)
 
-**Artist**: BREEDEN 
+**Artist**: STINNY STONE \(★ω★)/ 
 
-**Track**: GO TO MY SHOW
+**Track**: Heaven!
 
-Last updated at 1/12/2026, 2:51:55 PM
+Last updated at 1/12/2026, 2:56:41 PM
