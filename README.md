@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o2aMRrLK6nyEx541-f2TLKA-t500x500.png">](https://soundcloud.com/gabbystart/kefir)
 
-**Artist**: mersichrist, deepinparis, apkghost, crusafix 
+**Artist**: gabby start 
 
-**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
+**Track**: Kefir
 
-Last updated at 1/12/2026, 2:11:02 PM
+Last updated at 1/12/2026, 2:12:38 PM
