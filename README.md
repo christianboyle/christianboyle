@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3SenCVXttDi2hRf-w6c1PQ-t500x500.jpg">](https://soundcloud.com/seandalymusic/bad-bitch-energy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGbyvWnQNhGBJ7ZS-K5VOYw-t500x500.jpg">](https://soundcloud.com/breeden999/breeden-go-to-my-show)
 
-**Artist**: Sean Daly 
+**Artist**: BREEDEN 
 
-**Track**: Bad Bitch Energy [FREE DL]
+**Track**: GO TO MY SHOW
 
-Last updated at 1/12/2026, 2:48:45 PM
+Last updated at 1/12/2026, 2:51:55 PM
