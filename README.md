@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1gYfsWhYX3aXhYb-PSfnnw-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/wilson-the-question-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxrUR9zAG6xEirx-trnZ9Q-t500x500.jpg">](https://soundcloud.com/darren-proctor-735811668/trancevision-6)
 
-**Artist**: Dj Wilson (official) 
+**Artist**: dazzle p 
 
-**Track**: Wilson - The Question.mp3
+**Track**: trancevision 6
 
-Last updated at 1/13/2026, 8:37:37 AM
+Last updated at 1/13/2026, 8:38:37 AM
