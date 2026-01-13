@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1kJViMsto6j3bTCy-iork8g-t500x500.jpg">](https://soundcloud.com/djgg12/trying-simply-funk-edit?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmHlB4zgw6B1zvN-TdiUgA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/ben-x-treme-vs-ortie-ft-lexxi?in=saxurn/sets/led-dot)
 
-**Artist**: GG12 
+**Artist**: GZMO 
 
-**Track**: Trying (Simply Funk Edit)
+**Track**: Ben X-Treme Vs. Ortie Ft. Lexxi - Looking Down (GZMO Remix)
 
-Last updated at 1/13/2026, 8:06:38 AM
+Last updated at 1/13/2026, 8:08:53 AM
