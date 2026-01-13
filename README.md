@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1qDa6xN8fAeea9Pt-Bviing-t500x500.jpg">](https://soundcloud.com/stinny-stone/h-bch?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QukbJLbMxzRajifg-5JBduw-t500x500.jpg">](https://soundcloud.com/stinny-stone/yummy-1)
 
 **Artist**: STINNY STONE \(★ω★)/ 
 
-**Track**: H! B★✝ch ✌
+**Track**: Yummy ( ͜ₒ ㅅ ͜ ₒ)
 
-Last updated at 1/13/2026, 8:33:01 AM
+Last updated at 1/13/2026, 8:36:26 AM
