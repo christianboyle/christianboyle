@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itxrUR9zAG6xEirx-trnZ9Q-t500x500.jpg">](https://soundcloud.com/darren-proctor-735811668/trancevision-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUIDUhy1qPcvJDxC-tQnsMg-t500x500.png">](https://soundcloud.com/djtayha/dj-tayha-all-of-me-2026)
 
-**Artist**: dazzle p 
+**Artist**: DJ TAYHA 
 
-**Track**: trancevision 6
+**Track**: Dj Tayha All Of Me 2026..
 
-Last updated at 1/13/2026, 8:38:37 AM
+Last updated at 1/13/2026, 8:41:27 AM
