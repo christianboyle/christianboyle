@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QukbJLbMxzRajifg-5JBduw-t500x500.jpg">](https://soundcloud.com/stinny-stone/yummy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1gYfsWhYX3aXhYb-PSfnnw-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/wilson-the-question-mp3)
 
-**Artist**: STINNY STONE \(★ω★)/ 
+**Artist**: Dj Wilson (official) 
 
-**Track**: Yummy ( ͜ₒ ㅅ ͜ ₒ)
+**Track**: Wilson - The Question.mp3
 
-Last updated at 1/13/2026, 8:36:26 AM
+Last updated at 1/13/2026, 8:37:37 AM
