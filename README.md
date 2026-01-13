@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o2aMRrLK6nyEx541-f2TLKA-t500x500.png">](https://soundcloud.com/gabbystart/kefir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmHlB4zgw6B1zvN-TdiUgA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/ben-x-treme-vs-ortie-ft-lexxi)
 
-**Artist**: gabby start 
+**Artist**: GZMO 
 
-**Track**: Kefir
+**Track**: Ben X-Treme Vs. Ortie Ft. Lexxi - Looking Down (GZMO Remix)
 
-Last updated at 1/13/2026, 2:28:38 PM
+Last updated at 1/13/2026, 2:30:33 PM
