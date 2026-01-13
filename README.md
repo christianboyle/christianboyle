@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1kJViMsto6j3bTCy-iork8g-t500x500.jpg">](https://soundcloud.com/djgg12/trying-simply-funk-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o2aMRrLK6nyEx541-f2TLKA-t500x500.png">](https://soundcloud.com/gabbystart/kefir?in=saxurn/sets/led-dot)
 
-**Artist**: GG12 
+**Artist**: gabby start 
 
-**Track**: Trying (Simply Funk Edit)
+**Track**: Kefir
 
-Last updated at 1/13/2026, 6:10:16 AM
+Last updated at 1/13/2026, 7:40:45 AM
