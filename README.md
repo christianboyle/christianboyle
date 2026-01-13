@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-desyIPLVsnp0p61X-AYml7g-t500x500.jpg">](https://soundcloud.com/m3rsi/make-u-bleed-w-deepinparis-1?in=saxurn/sets/led-dot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YcnAMdLbuNq8omxn-dex62Q-t500x500.png">](https://soundcloud.com/ripshift/my-time?in=saxurn/sets/led-dot)
 
-**Artist**: mersichrist, deepinparis, apkghost, crusafix 
+**Artist**: 2shiftea, 1crusafix 
 
-**Track**: make u bleed w/ deepinparis + apkghost + 1crusafix (cr1sis + LC)
+**Track**: my time ft. 1crusafix [@prodbypatrick]
 
-Last updated at 1/13/2026, 7:42:46 AM
+Last updated at 1/13/2026, 7:45:11 AM
