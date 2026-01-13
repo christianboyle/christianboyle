@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eUIDUhy1qPcvJDxC-tQnsMg-t500x500.png">](https://soundcloud.com/djtayha/dj-tayha-all-of-me-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0d7fyqcIEtteOdim-xxQJLw-t500x500.png">](https://soundcloud.com/mkevents/squidge-valentines-special-2026-promo-mix)
 
-**Artist**: DJ TAYHA 
+**Artist**: Squidge 
 
-**Track**: Dj Tayha All Of Me 2026..
+**Track**: Squidge- Valentines Special 2026 Promo Mix
 
-Last updated at 1/13/2026, 8:41:27 AM
+Last updated at 1/13/2026, 9:27:02 AM
