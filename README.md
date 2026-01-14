@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhiNyRM9vydFikZI-b4fQQw-t500x500.jpg">](https://soundcloud.com/andy-lomas/brainrack-k-303-1996-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnCbHDnNhwv9Mucs-ZLF9zA-t500x500.png">](https://soundcloud.com/rxoxs/carbon)
 
-**Artist**: SkouZKorE (Andy Lomas) 
+**Artist**: RØS 
 
-**Track**: Brainrack - K-303 (1996)
+**Track**: CARBON
 
-Last updated at 1/14/2026, 9:30:16 AM
+Last updated at 1/14/2026, 9:31:21 AM
