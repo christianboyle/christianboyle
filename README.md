@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xA2VIKi0Gu9KFVc-2I59Wg-t500x500.png">](https://soundcloud.com/sfamofficial/bella-ft-young-uno-with-it-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hxMLySzDbA4NOY3Y-QUlaLQ-t500x500.png">](https://soundcloud.com/geomcd/phoenix-rising)
 
-**Artist**: sfam 
+**Artist**: ♕ Geo Mcd ♕ 
 
-**Track**: bella ft. young uno - with it (sfam remix)
+**Track**: Phoenix Rising
 
-Last updated at 1/14/2026, 7:03:11 AM
+Last updated at 1/14/2026, 7:04:10 AM
