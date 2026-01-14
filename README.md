@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yxnNcZPIoXSqRZE-XfmVEg-t500x500.jpg">](https://soundcloud.com/feelngs/towerofmemories)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ddeFMP0ofut0mdkO-Vfw8Ew-t500x500.jpg">](https://soundcloud.com/interval-audio/raucous-diamonds)
 
-**Artist**: FEELNGS 
+**Artist**: Raucous 
 
-**Track**: ivri - tower of memories (FEELNGS remix)
+**Track**: Raucous - diamonds
 
-Last updated at 1/14/2026, 9:38:07 AM
+Last updated at 1/14/2026, 9:39:17 AM
