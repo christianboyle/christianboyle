@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iU1I0Z8ZqNtgOGbz-dMQChA-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-a-state-of-bounce-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fPuphmO4nsoCHDNH-MqwCkA-t500x500.png">](https://soundcloud.com/scottfarrimond/all-night-sample)
 
 **Artist**: Scott F 
 
-**Track**: Scott F A State Of Bounce December 2025
+**Track**: All Night Sample
 
-Last updated at 1/14/2026, 12:06:32 PM
+Last updated at 1/14/2026, 12:06:42 PM
