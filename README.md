@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PTmHlB4zgw6B1zvN-TdiUgA-t500x500.jpg">](https://soundcloud.com/gzmo-productions/ben-x-treme-vs-ortie-ft-lexxi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xA2VIKi0Gu9KFVc-2I59Wg-t500x500.png">](https://soundcloud.com/sfamofficial/bella-ft-young-uno-with-it-1)
 
-**Artist**: GZMO 
+**Artist**: sfam 
 
-**Track**: Ben X-Treme Vs. Ortie Ft. Lexxi - Looking Down (GZMO Remix)
+**Track**: bella ft. young uno - with it (sfam remix)
 
-Last updated at 1/14/2026, 7:00:45 AM
+Last updated at 1/14/2026, 7:03:11 AM
