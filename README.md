@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hxMLySzDbA4NOY3Y-QUlaLQ-t500x500.png">](https://soundcloud.com/geomcd/phoenix-rising)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ajA6KeA2l35-0-t500x500.png">](https://soundcloud.com/darren-styles/stay-young)
 
-**Artist**: ♕ Geo Mcd ♕ 
+**Artist**: Darren Styles, Dougal and Gammer 
 
-**Track**: Phoenix Rising
+**Track**: Stay Young
 
-Last updated at 1/14/2026, 7:04:10 AM
+Last updated at 1/14/2026, 7:05:31 AM
