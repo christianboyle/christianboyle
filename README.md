@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QB5x7zh5KbuAuDFH-39hxHw-t500x500.jpg">](https://soundcloud.com/garethdavies/gareth-davies-jamie-jillo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-35rpIWEepd7MzMVJ-m6nueg-t500x500.jpg">](https://soundcloud.com/paul-dickinson-449980311/nuclear-fallout-promo-mix-2822026-dicky)
 
-**Artist**: Gareth Davies - Davies Unleashed 
+**Artist**: Dicky 
 
-**Track**: Gareth Davies & Jamie Jillo - Middle.wav
+**Track**: Nuclear Fallout Promo Mix 28/2/2026 - Dicky
 
-Last updated at 1/14/2026, 9:25:30 AM
+Last updated at 1/14/2026, 9:29:11 AM
