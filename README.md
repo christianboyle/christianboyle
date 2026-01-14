@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-35rpIWEepd7MzMVJ-m6nueg-t500x500.jpg">](https://soundcloud.com/paul-dickinson-449980311/nuclear-fallout-promo-mix-2822026-dicky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JhiNyRM9vydFikZI-b4fQQw-t500x500.jpg">](https://soundcloud.com/andy-lomas/brainrack-k-303-1996-1)
 
-**Artist**: Dicky 
+**Artist**: SkouZKorE (Andy Lomas) 
 
-**Track**: Nuclear Fallout Promo Mix 28/2/2026 - Dicky
+**Track**: Brainrack - K-303 (1996)
 
-Last updated at 1/14/2026, 9:29:11 AM
+Last updated at 1/14/2026, 9:30:16 AM
