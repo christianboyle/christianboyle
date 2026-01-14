@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJ9mi1pKWHjVsLij-p7jmPg-t500x500.jpg">](https://soundcloud.com/aaronfazer02/clowny-x-aaron-fazer-turn-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWi5TMKDREHtF9rc-OGHmmw-t500x500.png">](https://soundcloud.com/gltymusic/solstice-3)
 
-**Artist**: Aaron Fazer - UK Hardcore 
+**Artist**: GLTY 
 
-**Track**: Clowny X Aaron Fazer - Turn The Lights Off (FREE DOWNLOAD)
+**Track**: Solstice vol. 3
 
-Last updated at 1/14/2026, 12:07:07 PM
+Last updated at 1/14/2026, 12:07:12 PM
