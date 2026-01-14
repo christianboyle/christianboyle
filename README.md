@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9fRzg01xqJkjlZZ-JU330g-t500x500.png">](https://soundcloud.com/obluemusic/oblue-hit-tha-flo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJ9mi1pKWHjVsLij-p7jmPg-t500x500.jpg">](https://soundcloud.com/aaronfazer02/clowny-x-aaron-fazer-turn-the)
 
-**Artist**: OBLUE 
+**Artist**: Aaron Fazer - UK Hardcore 
 
-**Track**: OBLUE - HIT THA FLO'
+**Track**: Clowny X Aaron Fazer - Turn The Lights Off (FREE DOWNLOAD)
 
-Last updated at 1/14/2026, 12:07:02 PM
+Last updated at 1/14/2026, 12:07:07 PM
