@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fPuphmO4nsoCHDNH-MqwCkA-t500x500.png">](https://soundcloud.com/scottfarrimond/all-night-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y9AzgckHFNqe6zsh-8kApTA-t500x500.jpg">](https://soundcloud.com/paul-dickinson-449980311/smoke-it-ange-volume-2)
 
-**Artist**: Scott F 
+**Artist**: Dicky 
 
-**Track**: All Night Sample
+**Track**: Smoke it Ange - Volume 2
 
-Last updated at 1/14/2026, 12:06:42 PM
+Last updated at 1/14/2026, 12:06:47 PM
