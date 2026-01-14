@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aMj2nP5ludXHLn6G-Wrl9JA-t500x500.jpg">](https://soundcloud.com/bernzikial/benson-boone-beautiful-things-bernzikial-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cS48PXZaDDbWAZHz-NyONYA-t500x500.png">](https://soundcloud.com/chozenofficial/levity-x-nitti-like-this-chozen-x-brownee-flip)
 
-**Artist**: BERNZIKIAL ✨ 
+**Artist**: CHOZEN, BROWNEE 
 
-**Track**: Benson Boone - Beautiful Things (BERNZIKIAL Remix)
+**Track**: Levity X Nitti - Like This (CHOZEN X BROWNEE Flip) [Free DL]
 
-Last updated at 1/14/2026, 7:09:21 AM
+Last updated at 1/14/2026, 9:24:31 AM
