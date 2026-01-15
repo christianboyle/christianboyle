@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mD2p8JyaWKem1PLs-kTUx5A-t500x500.jpg">](https://soundcloud.com/eternalembracebln/so-sick-dream333-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c3y8iOgCHH1IV5QQ-zSwf2Q-t500x500.jpg">](https://soundcloud.com/gesesmusic/dontwakemeup)
 
-**Artist**: eternal embrace, Anop, Chlo333e 
+**Artist**: GESES 
 
-**Track**: EE PREMIERE: SO SICK - DREAM333
+**Track**: James Hype - Don't Wake Me Up (GESES Euro-Techno Remix) *SUPPORTED BY BASSJACKERS, BEN NICKY, TRYM*
 
-Last updated at 1/15/2026, 9:27:12 AM
+Last updated at 1/15/2026, 9:28:12 AM
