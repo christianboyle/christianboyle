@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c3y8iOgCHH1IV5QQ-zSwf2Q-t500x500.jpg">](https://soundcloud.com/gesesmusic/dontwakemeup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUGzsVxABkeSfHDs-KLdblg-t500x500.jpg">](https://soundcloud.com/gary-oi-oi-jones/dancing-shadows)
 
-**Artist**: GESES 
+**Artist**: dmb & jones-A-Kontakt 
 
-**Track**: James Hype - Don't Wake Me Up (GESES Euro-Techno Remix) *SUPPORTED BY BASSJACKERS, BEN NICKY, TRYM*
+**Track**: Dancing Shadows
 
-Last updated at 1/15/2026, 9:28:12 AM
+Last updated at 1/15/2026, 9:29:12 AM
