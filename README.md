@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cG3fCqN7QmtXYuZ1-ObKBHQ-t500x500.jpg">](https://soundcloud.com/itskoptic/koptic-sleepless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mD2p8JyaWKem1PLs-kTUx5A-t500x500.jpg">](https://soundcloud.com/eternalembracebln/so-sick-dream333-1)
 
-**Artist**: Koptic 
+**Artist**: eternal embrace, Anop, Chlo333e 
 
-**Track**: SLEEPLESS
+**Track**: EE PREMIERE: SO SICK - DREAM333
 
-Last updated at 1/15/2026, 9:24:26 AM
+Last updated at 1/15/2026, 9:27:12 AM
