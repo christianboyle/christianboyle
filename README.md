@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ctfvhfi4KKhqdtMX-tEwB1g-t500x500.png">](https://soundcloud.com/starxvi/one-more-time?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QCEYyJvyMvp5Djr4-jS7ZaA-t500x500.png">](https://soundcloud.com/helloego/pouya-ghostemane-1000-rounds-hello-ego-flip?in=saxurn/sets/1a1/)
 
-**Artist**: starxvi 
+**Artist**: Hello Ego 
 
-**Track**: one more time w/ entri
+**Track**: Pouya & Ghostemane - 1000 Rounds (Hello Ego flip)
 
-Last updated at 1/16/2026, 11:38:02 AM
+Last updated at 1/16/2026, 11:39:57 AM
