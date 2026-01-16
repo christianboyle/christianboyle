@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j6P0Z7QSPUkl-0-t500x500.jpg">](https://soundcloud.com/wamdue-project/king-of-my-castle-roy-malones?in=user-123265367/sets/progressive-trance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SvkHXMXCzscLVDn5-2XTKqQ-t500x500.jpg">](https://soundcloud.com/user-519097339/rhythm-is-a-dancer-slowed?in=user-123265367/sets/progressive-trance)
 
-**Artist**: Wamdue Project 
+**Artist**: 𝓳ꪊꪶ𝓲ꪖꪀꪊ𝘴ꫝ𝘬ꪖ 
 
-**Track**: King of My Castle (Roy Malone's King Radio Edit)
+**Track**: Rhythm Is a Dancer 𝘴𝘭𝘰𝘸𝘦𝘥
 
-Last updated at 1/15/2026, 8:48:04 PM
+Last updated at 1/15/2026, 8:48:09 PM
