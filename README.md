@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QCEYyJvyMvp5Djr4-jS7ZaA-t500x500.png">](https://soundcloud.com/helloego/pouya-ghostemane-1000-rounds-hello-ego-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGOjVZ6ObKbThIbb-wvYVkw-t500x500.jpg">](https://soundcloud.com/notsegan/chris-lake-skrillex-la-noche)
 
-**Artist**: Hello Ego 
+**Artist**: Chris Lake, Skrillex, ANITA B QUEEN, Segan 
 
-**Track**: Pouya & Ghostemane - 1000 Rounds (Hello Ego flip)
+**Track**: Chris Lake, Skrillex, ANITA B QUEEN - LA NOCHE (Segan Remix)
 
-Last updated at 1/15/2026, 6:58:17 PM
+Last updated at 1/15/2026, 7:00:52 PM
