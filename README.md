@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yTp5Y5gPdNxydLcD-laoaCw-t500x500.jpg">](https://soundcloud.com/grant-g-train/31db8f1f-b500-4f07-ad39-fd77c9ae13a0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yCCCPmefUawKKl2g-IJ4vnw-t500x500.jpg">](https://soundcloud.com/cheezedj/cheeze-scott-hill-music-is-the)
 
-**Artist**: DJ G Train 
+**Artist**: DJ Cheeze 
 
-**Track**: BOUNCE BANGERZ #45
+**Track**: Cheeze & Scott Hill - Music Is The Answer
 
-Last updated at 1/16/2026, 5:58:12 AM
+Last updated at 1/16/2026, 8:09:44 AM
