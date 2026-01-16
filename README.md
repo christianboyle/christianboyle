@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NtkVP5M05fbVVEQV-WePyZQ-t500x500.jpg">](https://soundcloud.com/ppxy/everything-but-the-girl-missing-todd-terry-remix-slowed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bL6HGvLO7mPcHBj-4tVcmg-t500x500.png">](https://soundcloud.com/drake-liddell/seatrees-soldiers-dj)
 
-**Artist**: pxxy 
+**Artist**: Drake Liddell 
 
-**Track**: Everything But The Girl - Missing (Todd Terry Slowed )
+**Track**: Seatrees Soldiers DJ Competition - Drake Liddell
 
-Last updated at 1/16/2026, 5:55:31 AM
+Last updated at 1/16/2026, 5:56:37 AM
