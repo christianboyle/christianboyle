@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIDnI5wNuQKAoR4b-r0LWcQ-t500x500.jpg">](https://soundcloud.com/user-123265367/efj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g9CItdyXV4OhJauG-cFgp0A-t500x500.png">](https://soundcloud.com/whym-official/extraordinary)
 
-**Artist**: yung sonar 
+**Artist**: Whym 
 
-**Track**: EFJ
+**Track**: Kaiyo - Extra Ordinary (ft. Orno) (Whym Remix)
 
-Last updated at 1/15/2026, 8:06:54 PM
+Last updated at 1/15/2026, 8:08:09 PM
