@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ed7gn4sUCklWDL7U-yK4Dwg-t500x500.png">](https://soundcloud.com/thedisciplemaker/end-of-year-mix-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uddCwIT3l6YqeYMc-chxWBQ-t500x500.png">](https://soundcloud.com/mm99forever/a-little-crazy-but-still-try-to-claw-me)
 
-**Artist**: Dee Disciple Maker 
+**Artist**: MM'99 
 
-**Track**: end of year mix 2025
+**Track**: a little crazy but still try to claw me ₊˚⊹ᰔ
 
-Last updated at 1/15/2026, 7:19:14 PM
+Last updated at 1/15/2026, 8:04:26 PM
