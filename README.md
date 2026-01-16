@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bL6HGvLO7mPcHBj-4tVcmg-t500x500.png">](https://soundcloud.com/drake-liddell/seatrees-soldiers-dj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yTp5Y5gPdNxydLcD-laoaCw-t500x500.jpg">](https://soundcloud.com/grant-g-train/31db8f1f-b500-4f07-ad39-fd77c9ae13a0)
 
-**Artist**: Drake Liddell 
+**Artist**: DJ G Train 
 
-**Track**: Seatrees Soldiers DJ Competition - Drake Liddell
+**Track**: BOUNCE BANGERZ #45
 
-Last updated at 1/16/2026, 5:56:37 AM
+Last updated at 1/16/2026, 5:58:12 AM
