@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wnwIAvqoFzCqsjzS-ZoS51w-t500x500.png">](https://soundcloud.com/brooke-steele-420065734/we-are-charlie-kirk-nightcore-hyperpop-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHUGjhmrCH10UGG8-dWqurQ-t500x500.jpg">](https://soundcloud.com/sexy-keksy/we-are-charlie-kirk-hyperpop)
 
-**Artist**: Brooke Steele 
+**Artist**: Lil Kirk 
 
-**Track**: We Are Charli Kirk (NIGHTCORE HYPERPOP EDIT)
+**Track**: We Are Charlie Kirk (hyperpop remix)
 
-Last updated at 1/15/2026, 8:04:38 PM
+Last updated at 1/15/2026, 8:04:48 PM
