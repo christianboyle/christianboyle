@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ctfvhfi4KKhqdtMX-tEwB1g-t500x500.png">](https://soundcloud.com/starxvi/one-more-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Fz9kMu2JJCPz75Q-utJs9g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/bass-brothers-dream-of-you-original-mix)
 
-**Artist**: starxvi 
+**Artist**: Fatal Energy Records 
 
-**Track**: one more time w/ entri
+**Track**: Bass Brothers - Dream Of You (Original Mix)
 
-Last updated at 1/15/2026, 7:04:32 PM
+Last updated at 1/15/2026, 7:09:58 PM
