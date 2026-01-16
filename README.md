@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uddCwIT3l6YqeYMc-chxWBQ-t500x500.png">](https://soundcloud.com/mm99forever/a-little-crazy-but-still-try-to-claw-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wnwIAvqoFzCqsjzS-ZoS51w-t500x500.png">](https://soundcloud.com/brooke-steele-420065734/we-are-charlie-kirk-nightcore-hyperpop-edit)
 
-**Artist**: MM'99 
+**Artist**: Brooke Steele 
 
-**Track**: a little crazy but still try to claw me ₊˚⊹ᰔ
+**Track**: We Are Charli Kirk (NIGHTCORE HYPERPOP EDIT)
 
-Last updated at 1/15/2026, 8:04:33 PM
+Last updated at 1/15/2026, 8:04:38 PM
