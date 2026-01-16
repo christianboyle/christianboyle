@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6Fz9kMu2JJCPz75Q-utJs9g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/bass-brothers-dream-of-you-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LsBRyewyh9b1ob7T-uILspg-t500x500.jpg">](https://soundcloud.com/cheekytracks/great-feelings)
 
-**Artist**: Fatal Energy Records 
+**Artist**: Jamie B 
 
-**Track**: Bass Brothers - Dream Of You (Original Mix)
+**Track**: Jamie B - Great Feelings - OUT NOW
 
-Last updated at 1/15/2026, 7:09:58 PM
+Last updated at 1/15/2026, 7:13:48 PM
