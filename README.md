@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QCEYyJvyMvp5Djr4-jS7ZaA-t500x500.png">](https://soundcloud.com/helloego/pouya-ghostemane-1000-rounds-hello-ego-flip?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2xA2VIKi0Gu9KFVc-2I59Wg-t500x500.png">](https://soundcloud.com/sfamofficial/bella-ft-young-uno-with-it-1?in=saxurn/sets/1a1/)
 
-**Artist**: Hello Ego 
+**Artist**: sfam 
 
-**Track**: Pouya & Ghostemane - 1000 Rounds (Hello Ego flip)
+**Track**: bella ft. young uno - with it (sfam remix)
 
-Last updated at 1/16/2026, 11:39:57 AM
+Last updated at 1/16/2026, 11:42:38 AM
