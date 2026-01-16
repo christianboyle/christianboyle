@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RbQwsHAcjXXmx4vy-zFYRpQ-t500x500.jpg">](https://soundcloud.com/4urc/dont-tell-me-prod-chrischris)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4bTJZdOXo2jkbozF-Djoj2Q-t500x500.png">](https://soundcloud.com/rennel_music/shadow-logic-psytrance-edit)
 
-**Artist**: xurco 
+**Artist**: 🎧Rennel 🎹🎹🎹 
 
-**Track**: dont tell me ⋆˚✿˖°⋆. 𐙚 ˚♡ (chrischris)
+**Track**: Shadow Logic (PSYTRANCE EDIT)
 
-Last updated at 1/16/2026, 5:55:08 PM
+Last updated at 1/16/2026, 5:56:13 PM
