@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LsBRyewyh9b1ob7T-uILspg-t500x500.jpg">](https://soundcloud.com/cheekytracks/great-feelings?in=saxurn/sets/blobby-chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V3geOJfohIcmiHts-Tzjwew-t500x500.png">](https://soundcloud.com/coreylingo/one-sided)
 
-**Artist**: Jamie B 
+**Artist**: Corey Lingo 
 
-**Track**: Jamie B - Great Feelings - OUT NOW
+**Track**: One-Sided (prod. Maxim & Corey Lingo)
 
-Last updated at 1/16/2026, 5:38:55 PM
+Last updated at 1/16/2026, 5:46:17 PM
