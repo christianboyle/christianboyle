@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGOjVZ6ObKbThIbb-wvYVkw-t500x500.jpg">](https://soundcloud.com/notsegan/chris-lake-skrillex-la-noche)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ligtB3jMHGrytFpI-Mo7dkw-t500x500.png">](https://soundcloud.com/rinsefm/doctorjeep070126)
 
-**Artist**: Chris Lake, Skrillex, ANITA B QUEEN, Segan 
+**Artist**: Rinse FM 
 
-**Track**: Chris Lake, Skrillex, ANITA B QUEEN - LA NOCHE (Segan Remix)
+**Track**: Doctor Jeep - 07 January 2026
 
-Last updated at 1/16/2026, 12:58:53 PM
+Last updated at 1/16/2026, 2:24:48 PM
