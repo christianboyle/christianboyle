@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHUGjhmrCH10UGG8-dWqurQ-t500x500.jpg">](https://soundcloud.com/sexy-keksy/we-are-charlie-kirk-hyperpop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LIDnI5wNuQKAoR4b-r0LWcQ-t500x500.jpg">](https://soundcloud.com/user-123265367/efj)
 
-**Artist**: Lil Kirk 
+**Artist**: yung sonar 
 
-**Track**: We Are Charlie Kirk (hyperpop remix)
+**Track**: EFJ
 
-Last updated at 1/15/2026, 8:05:21 PM
+Last updated at 1/15/2026, 8:06:54 PM
