@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FyY0bxJtK3JRDfIT-XeII6g-t500x500.png">](https://soundcloud.com/donnydonkers/out-now-dont-you-want-my-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHUGjhmrCH10UGG8-dWqurQ-t500x500.jpg">](https://soundcloud.com/sexy-keksy/we-are-charlie-kirk-hyperpop?in=saxurn/sets/1a1/)
 
-**Artist**: The Donny Donkers 
+**Artist**: Lil Kirk 
 
-**Track**: OUT NOW - Don't You Want My Love
+**Track**: We Are Charlie Kirk (hyperpop remix)
 
-Last updated at 1/16/2026, 11:32:02 AM
+Last updated at 1/16/2026, 11:36:22 AM
