@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ligtB3jMHGrytFpI-Mo7dkw-t500x500.png">](https://soundcloud.com/rinsefm/doctorjeep070126)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHUGjhmrCH10UGG8-dWqurQ-t500x500.jpg">](https://soundcloud.com/sexy-keksy/we-are-charlie-kirk-hyperpop)
 
-**Artist**: Rinse FM 
+**Artist**: Lil Kirk 
 
-**Track**: Doctor Jeep - 07 January 2026
+**Track**: We Are Charlie Kirk (hyperpop remix)
 
-Last updated at 1/16/2026, 4:49:06 PM
+Last updated at 1/16/2026, 5:19:38 PM
