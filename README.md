@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S4JtrOYhd9Iyrv7J-aZNv9A-t500x500.png">](https://soundcloud.com/ntplate/nt-yiian-hear-you-nt-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DuCf8ofD5E1YyYAh-Ryb6jQ-t500x500.jpg">](https://soundcloud.com/dredlokmusic/junk)
 
-**Artist**: ntplate 
+**Artist**: Dredlok 
 
-**Track**: NT  & YIIAN - HEAR YOU (NT VIP)
+**Track**: Junk
 
-Last updated at 1/16/2026, 5:52:38 PM
+Last updated at 1/16/2026, 5:54:08 PM
