@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGOjVZ6ObKbThIbb-wvYVkw-t500x500.jpg">](https://soundcloud.com/notsegan/chris-lake-skrillex-la-noche)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ctfvhfi4KKhqdtMX-tEwB1g-t500x500.png">](https://soundcloud.com/starxvi/one-more-time)
 
-**Artist**: Chris Lake, Skrillex, ANITA B QUEEN, Segan 
+**Artist**: starxvi 
 
-**Track**: Chris Lake, Skrillex, ANITA B QUEEN - LA NOCHE (Segan Remix)
+**Track**: one more time w/ entri
 
-Last updated at 1/15/2026, 7:00:52 PM
+Last updated at 1/15/2026, 7:04:32 PM
