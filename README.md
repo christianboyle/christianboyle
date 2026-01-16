@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xjlELKmDjyYMJm32-XNovhw-t500x500.jpg">](https://soundcloud.com/duskywavee/toma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v5uWNiNW81Kby3KS-5tiCwQ-t500x500.jpg">](https://soundcloud.com/slobgnarly/empathy)
 
-**Artist**: Duskywave 
+**Artist**: Slob Gnarly 
 
-**Track**: Toma "Extended free dl"
+**Track**: Evolve
 
-Last updated at 1/16/2026, 5:57:23 PM
+Last updated at 1/16/2026, 5:58:23 PM
