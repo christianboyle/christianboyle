@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8gelTymdaZzlEA6M-LOQVzg-t500x500.jpg">](https://soundcloud.com/renexy/copout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SFlaAU8uCEmbdVbQ-od1GLw-t500x500.jpg">](https://soundcloud.com/bogember/technikore-without-me-radio-edit)
 
-**Artist**: renexy 
+**Artist**: Bogember 
 
-**Track**: copout prod mareci
+**Track**: Technikore - Without Me (Radio Edit)
 
-Last updated at 1/17/2026, 10:49:59 AM
+Last updated at 1/17/2026, 3:43:42 PM
