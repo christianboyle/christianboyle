@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r0OL9tEPqeEk2hRD-TYYySg-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/drake-liddell-jsj-sky-full-of)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TVbbcIkuoUIbE6dB-ADyWWg-t500x500.png">](https://soundcloud.com/audioboyz-521906163/audioboyz-toms-diner-radio)
 
-**Artist**: Revolution-Records UK 
+**Artist**: AudioBoyz 
 
-**Track**: DRAKE LIDDELL & JSJ - SKY FULL OF STARS
+**Track**: Audioboyz - Toms Diner [OUT NOW ON EXCITE DIGITAL]
 
-Last updated at 1/17/2026, 6:33:41 AM
+Last updated at 1/17/2026, 10:06:09 AM
