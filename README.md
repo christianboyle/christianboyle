@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6kXWgMtzKDIG96mF-uLlgrA-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-x-dj-foreign-money-school-of-trap-full-mixtape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zLwatp0vnQ7rT4O-3BXebQ-t500x500.jpg">](https://soundcloud.com/aresklas/is-this-rave-enough-aresklas-remix)
 
-**Artist**: DJ SMOKEY, DJ FOREIGN MONEY 
+**Artist**: Aresklas, Darane, Efecta 
 
-**Track**: DJ SMOKEY x DJ FOREIGN MONEY - "SCHOOL OF TRAP" [FULL MIXTAPE]
+**Track**: Is This Rave ENOUGH (Aresklas REMIX) [Free Dwnld]
 
-Last updated at 1/16/2026, 6:03:29 PM
+Last updated at 1/16/2026, 8:00:02 PM
