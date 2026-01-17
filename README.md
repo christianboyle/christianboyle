@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uBzfc2lg04d68Y0C-u8o4Zg-t500x500.png">](https://soundcloud.com/ktrl/ktrl-idontlikeyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zS7wZhemclaRcFf-IMGrQA-t500x500.png">](https://soundcloud.com/david-temessi/david-temessi-alex-tb-mr-rave)
 
-**Artist**: KTRL 
+**Artist**: David Temessi 
 
-**Track**: KTRL - IDONTLIKEYOU
+**Track**: David Temessi, Alex TB - Mr. Rave (Alex TB Remix) [FREE DL]
 
-Last updated at 1/16/2026, 8:06:52 PM
+Last updated at 1/16/2026, 8:06:57 PM
