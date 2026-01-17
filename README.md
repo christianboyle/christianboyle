@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XZWYbfyMvW5hJ8yh-FQPukA-t500x500.png">](https://soundcloud.com/jameshypethedj/sync-london-full-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8gelTymdaZzlEA6M-LOQVzg-t500x500.jpg">](https://soundcloud.com/renexy/copout)
 
-**Artist**: James Hype 
+**Artist**: renexy 
 
-**Track**: SYNC London - Full Set
+**Track**: copout prod mareci
 
-Last updated at 1/17/2026, 10:14:21 AM
+Last updated at 1/17/2026, 10:49:59 AM
