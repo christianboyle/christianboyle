@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkbr2YqsznZzMfz4-7smQnw-t500x500.jpg">](https://soundcloud.com/cmash4321/get-away-cmash-nrg-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qDGyhrgzA31KeZBD-SEourA-t500x500.png">](https://soundcloud.com/bo0tyleak/liar)
 
-**Artist**: CMASH 
+**Artist**: rivve, Acko, BOOTY LEAK, Dust Walker, Lucas Meyer 
 
-**Track**: Get Away [CMASH NRG Edit]
+**Track**: rivve + Acko & Booty Leak + Dust Walker feat. Lucas Meyer - Liar [ FREE DOWNLOAD ]
 
-Last updated at 1/18/2026, 7:26:01 AM
+Last updated at 1/18/2026, 11:56:43 AM
