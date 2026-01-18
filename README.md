@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2VyoPsL3nWT2HJh-T3hWGg-t500x500.jpg">](https://soundcloud.com/qjrx1schc4tk/desert)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-17kDxCc1w1YmKY6u-lzTVFg-t500x500.jpg">](https://soundcloud.com/user-991268887/morcha2)
 
-**Artist**: WEX 
+**Artist**: Megi Khizanishvili 
 
-**Track**: Desert
+**Track**: Edge of infinity
 
-Last updated at 1/18/2026, 5:44:08 PM
+Last updated at 1/18/2026, 5:45:42 PM
