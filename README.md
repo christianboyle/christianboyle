@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qDGyhrgzA31KeZBD-SEourA-t500x500.png">](https://soundcloud.com/bo0tyleak/liar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYZdj3JyIdrsO0ED-ozTaww-t500x500.png">](https://soundcloud.com/phultimusic/betternot)
 
-**Artist**: rivve, Acko, BOOTY LEAK, Dust Walker, Lucas Meyer 
+**Artist**: Phulti 
 
-**Track**: rivve + Acko & Booty Leak + Dust Walker feat. Lucas Meyer - Liar [ FREE DOWNLOAD ]
+**Track**: Better Not (ft. Breeze.FM)
 
-Last updated at 1/18/2026, 11:56:43 AM
+Last updated at 1/18/2026, 11:57:43 AM
