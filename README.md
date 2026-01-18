@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSSzDbhzcMwysKfB-TxokzA-t500x500.png">](https://soundcloud.com/falseidoll/r3hab-nervo-ummet-ozcan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gy3yWhvsWyoNzezs-khBoBA-t500x500.jpg">](https://soundcloud.com/beansclub/whenyourheartstopsbeating)
 
-**Artist**: F4LS3ID0LL 
+**Artist**: beansclub 
 
-**Track**: R3hab & NERVO & Ummet Ozcan - Revolution (FALSE IDOLL Remix) FREE DL
+**Track**: whenyourheartstopsbeating
 
-Last updated at 1/18/2026, 12:02:03 PM
+Last updated at 1/18/2026, 12:03:08 PM
