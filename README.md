@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVTqoHVYjKgxdKP9-A241aQ-t500x500.jpg">](https://soundcloud.com/saint-baek/cant-feel-my-face-saint-miller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjtb8Fqmc4UsukVa-0cZLTA-t500x500.jpg">](https://soundcloud.com/gordon-martin-7/hard-techno)
 
-**Artist**: SAINT MILLER 
+**Artist**: Gopher 
 
-**Track**: can't feel my face (saint miller redo)
+**Track**: Hard-techno
 
-Last updated at 1/18/2026, 12:05:08 PM
+Last updated at 1/18/2026, 5:41:27 PM
