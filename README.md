@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SFlaAU8uCEmbdVbQ-od1GLw-t500x500.jpg">](https://soundcloud.com/bogember/technikore-without-me-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkbr2YqsznZzMfz4-7smQnw-t500x500.jpg">](https://soundcloud.com/cmash4321/get-away-cmash-nrg-edit)
 
-**Artist**: Bogember 
+**Artist**: CMASH 
 
-**Track**: Technikore - Without Me (Radio Edit)
+**Track**: Get Away [CMASH NRG Edit]
 
-Last updated at 1/18/2026, 6:22:05 AM
+Last updated at 1/18/2026, 7:26:01 AM
