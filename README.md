@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M7tNqDG37xIjP51N-Al6Kyg-t500x500.jpg">](https://soundcloud.com/phrva/ghost-voices?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gy3yWhvsWyoNzezs-khBoBA-t500x500.jpg">](https://soundcloud.com/beansclub/whenyourheartstopsbeating?in=saxurn/sets/1a1/)
 
-**Artist**: Phrva 
+**Artist**: beansclub 
 
-**Track**: Virtual Self - Ghost Voices (Phrva Flip)
+**Track**: whenyourheartstopsbeating
 
-Last updated at 1/19/2026, 10:55:27 AM
+Last updated at 1/19/2026, 10:59:13 AM
