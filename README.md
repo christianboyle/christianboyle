@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EOdV5MejdBxHqroL-GnY6Yg-t500x500.png">](https://soundcloud.com/morenodeejay/live-dancing-moreno-deejay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVC8Ykza1BNt6B35-cANdjw-t500x500.jpg">](https://soundcloud.com/phatotiz/keep-on)
 
-**Artist**: Moreno Deejay 
+**Artist**: Phat Otiz 
 
-**Track**: Live dancing - Moreno Deejay extended mix
+**Track**: KEEP ON
 
-Last updated at 1/19/2026, 7:07:10 AM
+Last updated at 1/19/2026, 7:08:33 AM
