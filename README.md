@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rVSTxnf7Dmdx8lYx-Bu1FhA-t500x500.png">](https://soundcloud.com/dairemusicx/clap-that-ass-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZZLjo6DzIJou8vtX-cvu4UQ-t500x500.jpg">](https://soundcloud.com/bncybncy/staywithmeflavaunit)
 
-**Artist**: DAIRE 
+**Artist**: Flava Unit 
 
-**Track**: Clap That Ass
+**Track**: Flava Unit - Stay With Me
 
-Last updated at 1/19/2026, 8:47:49 AM
+Last updated at 1/19/2026, 8:49:49 AM
