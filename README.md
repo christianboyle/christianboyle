@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VCpu4GOZriTzfMSP-OkXbkw-t500x500.jpg">](https://soundcloud.com/paulkeenanmusic/lewis-capaldi-wish-you-the-best-paul-keenan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-rBgyZzUJXJpIv9Su-IlmXmQ-t500x500.jpg">](https://soundcloud.com/iamaraver/christina-novelli-concrete-angel-part-2-dj-zitkus-dj-cammy-remix)
 
-**Artist**: Paul Keenan 
+**Artist**: DJ Zitkus & DJ Cammy 
 
-**Track**: Lewis Capaldi - Wish You The Best (Paul Keenan Remix)
+**Track**: Christina Novelli - Concrete Angel Part 2 (DJ Zitkus & DJ Cammy Remix)
 
-Last updated at 1/19/2026, 8:29:26 AM
+Last updated at 1/19/2026, 8:45:29 AM
