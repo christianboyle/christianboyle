@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LSZTy711FzY61CEf-7EqJlQ-t500x500.jpg">](https://soundcloud.com/41rossco/19126a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VCpu4GOZriTzfMSP-OkXbkw-t500x500.jpg">](https://soundcloud.com/paulkeenanmusic/lewis-capaldi-wish-you-the-best-paul-keenan-remix)
 
-**Artist**: DJ.Rossco 
+**Artist**: Paul Keenan 
 
-**Track**: 19.1.26
+**Track**: Lewis Capaldi - Wish You The Best (Paul Keenan Remix)
 
-Last updated at 1/19/2026, 8:28:16 AM
+Last updated at 1/19/2026, 8:29:26 AM
