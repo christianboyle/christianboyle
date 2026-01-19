@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-rBgyZzUJXJpIv9Su-IlmXmQ-t500x500.jpg">](https://soundcloud.com/iamaraver/christina-novelli-concrete-angel-part-2-dj-zitkus-dj-cammy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1UwxPpQkuo93QZ4f-WqDrgA-t500x500.png">](https://soundcloud.com/johnniezone/johnnie-zone-serious-sounds)
 
-**Artist**: DJ Zitkus & DJ Cammy 
+**Artist**: Johnnie Zone 
 
-**Track**: Christina Novelli - Concrete Angel Part 2 (DJ Zitkus & DJ Cammy Remix)
+**Track**: Johnnie Zone - Serious Sounds
 
-Last updated at 1/19/2026, 8:45:29 AM
+Last updated at 1/19/2026, 8:46:29 AM
