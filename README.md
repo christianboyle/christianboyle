@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M7tNqDG37xIjP51N-Al6Kyg-t500x500.jpg">](https://soundcloud.com/phrva/ghost-voices?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSiT5GnRXCufcJDa-Nem1NQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday-again-your-beautiful-out-soon?in=saxurn/sets/1a1/)
 
-**Artist**: Phrva 
+**Artist**: DRIFT 
 
-**Track**: Virtual Self - Ghost Voices (Phrva Flip)
+**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT SOON
 
-Last updated at 1/19/2026, 10:50:09 AM
+Last updated at 1/19/2026, 10:51:27 AM
