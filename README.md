@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIyaWsw1S6rQzm3H-hzI5GA-t500x500.png">](https://soundcloud.com/james-green-416232936/james-green-elysian-masterfree-download?in=saxurn/sets/1a1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M7tNqDG37xIjP51N-Al6Kyg-t500x500.jpg">](https://soundcloud.com/phrva/ghost-voices?in=saxurn/sets/1a1/)
 
-**Artist**: James Green 
+**Artist**: Phrva 
 
-**Track**: James Green - Elysian - MASTER/FREE DOWNLOAD
+**Track**: Virtual Self - Ghost Voices (Phrva Flip)
 
-Last updated at 1/19/2026, 9:36:45 AM
+Last updated at 1/19/2026, 10:50:09 AM
