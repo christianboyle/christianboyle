@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HYZdj3JyIdrsO0ED-ozTaww-t500x500.png">](https://soundcloud.com/phultimusic/betternot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CXsLw3dv2ZAILNI-oKrL5w-t500x500.png">](https://soundcloud.com/trenchfootaudio/trench-foot-sprinta-ft-grim-1)
 
-**Artist**: Phulti 
+**Artist**: Trench Foot 
 
-**Track**: Better Not (ft. Breeze.FM)
+**Track**: Trench Foot - Sprinta Ft Grim Sickers
 
-Last updated at 1/20/2026, 9:16:24 AM
+Last updated at 1/20/2026, 9:16:29 AM
