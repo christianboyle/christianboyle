@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GRvqLpoGqky2nNOC-3104pw-t500x500.png">](https://soundcloud.com/gnostic_samsara/they-said-they-wanted-a-bop-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v2pCysaJNjw2q4TJ-edVzmg-t500x500.png">](https://soundcloud.com/aneasmusic/faithless-insomnia-aneas-2025-rework)
 
-**Artist**: dj paul (from the bible) 
+**Artist**: ANEAS 
 
-**Track**: THEY SAID THEY WANTED A BOP
+**Track**: Faithless - Insomnia (ANEAS 2025 Rework)
 
-Last updated at 1/20/2026, 8:20:40 AM
+Last updated at 1/20/2026, 9:10:31 AM
