@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IVTqoHVYjKgxdKP9-A241aQ-t500x500.jpg">](https://soundcloud.com/saint-baek/cant-feel-my-face-saint-miller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDQ6aI2VzM9C76KD-Iukfow-t500x500.png">](https://soundcloud.com/krypttofficial/fred-again-skepta-d-double-e-victory-lap-555)
 
-**Artist**: SAINT MILLER 
+**Artist**: KRYPTT 
 
-**Track**: can't feel my face (saint miller redo)
+**Track**: Fred Again, Skepta, D Double E - VICTORY LAP 555 (KRYPTT FLIP)
 
-Last updated at 1/20/2026, 9:23:24 AM
+Last updated at 1/20/2026, 9:25:40 AM
