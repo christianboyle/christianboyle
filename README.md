@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9QvcOwyP6ZTe0cOI-ueXX3w-t500x500.png">](https://soundcloud.com/bowodmusic/c525dd7e-cbd0-4bca-9ac0-7124395ccd1b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dp4RwU1q7q9BWXM8-mlVVjg-t500x500.png">](https://soundcloud.com/angel_ray_2k/new-geography-still-here-version)
 
-**Artist**: BOWOD 
+**Artist**: angelRay 
 
-**Track**: PAPI
+**Track**: New Geography (Still Here Version)
 
-Last updated at 1/20/2026, 9:11:36 AM
+Last updated at 1/20/2026, 9:12:36 AM
