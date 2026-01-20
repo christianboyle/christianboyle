@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O36POUiEBdj7FlV1-TosoAw-t500x500.png">](https://soundcloud.com/mayple_dubs/80efa890-d75c-4878-b409-0fff189ad084)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000165772148-yeew75-t500x500.jpg">](https://soundcloud.com/oskardnz/force-styles-feat-mc-junior-pacific-sun-dj-oskar-remix)
 
-**Artist**: Mayple, Stupid Fried 
+**Artist**: DJ Oskar 
 
-**Track**: Natural Funk
+**Track**: Force & Styles Feat. MC Junior - Pacific sun Dj Oskar remix
 
-Last updated at 1/20/2026, 9:17:04 AM
+Last updated at 1/20/2026, 9:17:09 AM
