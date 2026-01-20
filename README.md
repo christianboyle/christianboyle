@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vW3NPN4Ollzvh7T7-0Igy9Q-t500x500.png">](https://soundcloud.com/david-doak/bbz-rock-your-body-sc-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dfS6nB3ioBKQYaCM-CBy1Rw-t500x500.jpg">](https://soundcloud.com/bounceheavenofficial/lightsgodown)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: BOUNCE HEAVEN with Andy Whitby 
 
-**Track**: BBZ - Rock Your Body(SC EDIT)
+**Track**: Alter Ego - Lights Go Down - BOUNCEHEAVENDIGITAL.COM
 
-Last updated at 1/20/2026, 9:16:34 AM
+Last updated at 1/20/2026, 9:16:54 AM
