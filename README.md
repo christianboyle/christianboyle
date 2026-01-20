@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Muh847IjJjzkAJrB-zhfLEQ-t500x500.png">](https://soundcloud.com/nocopyrightsounds/alex-moretto-all-night-long-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTmJ1GGYd1h2-0-t500x500.jpg">](https://soundcloud.com/stevebates-scmusic/2-drunk-2-funk)
 
-**Artist**: NCS 
+**Artist**: Steve Bates, Rob Cain 
 
-**Track**: Alex Moretto - All Night Long [NCS Release]
+**Track**: 2 Drunk 2 Funk
 
-Last updated at 1/20/2026, 6:58:39 AM
+Last updated at 1/20/2026, 7:00:04 AM
