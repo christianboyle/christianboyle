@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wJz11kMh2NcczuQz-5x2A3Q-t500x500.png">](https://soundcloud.com/aspirehighermusic/laukx-feeling-ah-tune-tuesday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mcmKLKWasRxAx3Jj-zVoewA-t500x500.jpg">](https://soundcloud.com/collectiveconscious0/sounds-violent)
 
-**Artist**: LAUKX 
+**Artist**: s0ftware, Ouiji 
 
-**Track**: LAUKX - Feeling (AH Tune Tuesday)
+**Track**: s0ftware x Ouiji - Sounds Violent
 
-Last updated at 1/20/2026, 9:15:44 AM
+Last updated at 1/20/2026, 9:15:48 AM
