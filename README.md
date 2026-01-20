@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4a1PlSk7ysRTjnq3-3bM0sQ-t500x500.jpg">](https://soundcloud.com/user-206098042/dj-cqr-charva-choons-vol1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000274543025-xddpuo-t500x500.jpg">](https://soundcloud.com/oskardnz/kate-ryan-i-surrender-dj-oskar-2018-remix-free-download)
 
-**Artist**: Makina Madness 
+**Artist**: Kate Ryan 
 
-**Track**: Dj CQR - Charva Choons Vol1
+**Track**: Kate Ryan - I surrender Dj Oskar Remix / FREE DOWNLOAD!
 
-Last updated at 1/20/2026, 6:54:28 AM
+Last updated at 1/20/2026, 6:55:28 AM
