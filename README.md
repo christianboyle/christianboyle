@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSiT5GnRXCufcJDa-Nem1NQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday-again-your-beautiful-out-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xitZyXuCzWvxhNS9-tzq4yw-t500x500.jpg">](https://soundcloud.com/event-whalien/area-one-x-niotech-festa-5)
 
-**Artist**: DRIFT 
+**Artist**: Whalien 
 
-**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT SOON
+**Track**: Premiere | AREA ØNE X Niotech - Festa [Free DL]
 
-Last updated at 1/20/2026, 9:28:20 AM
+Last updated at 1/20/2026, 11:47:30 AM
