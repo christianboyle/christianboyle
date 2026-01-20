@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSiT5GnRXCufcJDa-Nem1NQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday-again-your-beautiful-out-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4a1PlSk7ysRTjnq3-3bM0sQ-t500x500.jpg">](https://soundcloud.com/user-206098042/dj-cqr-charva-choons-vol1)
 
-**Artist**: DRIFT 
+**Artist**: Makina Madness 
 
-**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT SOON
+**Track**: Dj CQR - Charva Choons Vol1
 
-Last updated at 1/20/2026, 6:05:47 AM
+Last updated at 1/20/2026, 6:54:28 AM
