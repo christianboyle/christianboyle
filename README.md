@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nTmJ1GGYd1h2-0-t500x500.jpg">](https://soundcloud.com/stevebates-scmusic/2-drunk-2-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-05UsDH4wMULAqCNU-DcXJag-t500x500.png">](https://soundcloud.com/wearestudio/madan-divergent-premiere)
 
-**Artist**: Steve Bates, Rob Cain 
+**Artist**: STUDIO, Madan 
 
-**Track**: 2 Drunk 2 Funk
+**Track**: Madan - Divergent [Premiere]
 
-Last updated at 1/20/2026, 7:00:04 AM
+Last updated at 1/20/2026, 7:04:54 AM
