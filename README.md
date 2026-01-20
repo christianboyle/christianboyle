@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mcmKLKWasRxAx3Jj-zVoewA-t500x500.jpg">](https://soundcloud.com/collectiveconscious0/sounds-violent)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3XVEe6jvRKg3BOt-C9NzYg-t500x500.png">](https://soundcloud.com/dirtysnatcha/good-things-fall-apart)
 
-**Artist**: s0ftware, Ouiji 
+**Artist**: DirtySnatcha 
 
-**Track**: s0ftware x Ouiji - Sounds Violent
+**Track**: ILLENIUM, Jon Bellion - Good Things Fall Apart (DirtySnatcha Remix)
 
-Last updated at 1/20/2026, 9:15:48 AM
+Last updated at 1/20/2026, 9:15:53 AM
