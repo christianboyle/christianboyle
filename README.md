@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3XVEe6jvRKg3BOt-C9NzYg-t500x500.png">](https://soundcloud.com/dirtysnatcha/good-things-fall-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LXgSPz3XUL6OT7mh-F1za3A-t500x500.png">](https://soundcloud.com/asmodevstearout/bhaal-the-ravager)
 
-**Artist**: DirtySnatcha 
+**Artist**: ASMODEVS, JAESYLUM 
 
-**Track**: ILLENIUM, Jon Bellion - Good Things Fall Apart (DirtySnatcha Remix)
+**Track**: Bhaal, the Ravager
 
-Last updated at 1/20/2026, 9:15:53 AM
+Last updated at 1/20/2026, 9:16:03 AM
