@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xitZyXuCzWvxhNS9-tzq4yw-t500x500.jpg">](https://soundcloud.com/event-whalien/area-one-x-niotech-festa-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000165772148-yeew75-t500x500.jpg">](https://soundcloud.com/oskardnz/force-styles-feat-mc-junior-pacific-sun-dj-oskar-remix)
 
-**Artist**: Whalien 
+**Artist**: DJ Oskar 
 
-**Track**: Premiere | AREA ØNE X Niotech - Festa [Free DL]
+**Track**: Force & Styles Feat. MC Junior - Pacific sun Dj Oskar remix
 
-Last updated at 1/20/2026, 11:47:30 AM
+Last updated at 1/20/2026, 11:52:10 AM
