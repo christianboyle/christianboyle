@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3OVq3fRMx8tYX7Xb-pkHp5A-t500x500.png">](https://soundcloud.com/psychocybinrec/games)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zezAIjfzhZaJRVqy-mUGeMQ-t500x500.jpg">](https://soundcloud.com/bamdcamp/smokeandmirrors5)
 
-**Artist**: ANKU, GRIMEE 
+**Artist**: BACKWHEN 
 
-**Track**: ANKU & GRIMEE - Games
+**Track**: BACKWHEN - SMOKE AND MIRRORS 5 (FULL TAPE)
 
-Last updated at 1/20/2026, 8:17:10 AM
+Last updated at 1/20/2026, 8:18:50 AM
