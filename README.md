@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NahPLgTzNpXh2l54-zr2f0Q-t500x500.jpg">](https://soundcloud.com/vbounce/right-by-ur-sidee-v-bounce-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZP53BwbSsWXNIXj-JNqGvA-t500x500.png">](https://soundcloud.com/hex-cougar-hextras-3/loveparade)
 
-**Artist**: V-Bounce 
+**Artist**: Hex Cougar 
 
-**Track**: Right By Ur Sidee (V-Bounce Mix)
+**Track**: Da Hool - Meet Her at the Loveparade (Hex Cougar Remix)
 
-Last updated at 1/21/2026, 1:33:51 PM
+Last updated at 1/21/2026, 5:41:09 PM
