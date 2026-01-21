@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SnieqUHZXGvOlngI-8Ue8jQ-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-x-kenty-hold-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000165772148-yeew75-t500x500.jpg">](https://soundcloud.com/oskardnz/force-styles-feat-mc-junior-pacific-sun-dj-oskar-remix)
 
-**Artist**: JGS & INTENT, KENTY 
+**Artist**: DJ Oskar 
 
-**Track**: JGS & INTENT X KENTY - Hold Me (Sample)
+**Track**: Force & Styles Feat. MC Junior - Pacific sun Dj Oskar remix
 
-Last updated at 1/21/2026, 7:18:34 AM
+Last updated at 1/21/2026, 7:19:44 AM
