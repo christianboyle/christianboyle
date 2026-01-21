@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-my-brave-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yU4FaaNjmjv3aHdy-LzPTGQ-t500x500.jpg">](https://soundcloud.com/bncybncy/alanbenndreamcatchme)
 
-**Artist**: V-Bounce 
+**Artist**: Alan Benn 
 
-**Track**: V-Bounce - My Brave Heart
+**Track**: Alan Benn - Dream Catch Me
 
-Last updated at 1/21/2026, 8:11:48 AM
+Last updated at 1/21/2026, 8:13:03 AM
