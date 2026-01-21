@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-frLsKMkdMObrYpZ4-ZWB9Tg-t500x500.jpg">](https://soundcloud.com/barbaric-uptempo/the-uptempo-tribe-podcast-48-tmo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-my-brave-heart)
 
-**Artist**: T.M.O. 
+**Artist**: V-Bounce 
 
-**Track**: The Uptempo Tribe Podcast #50 - T.M.O.
+**Track**: V-Bounce - My Brave Heart
 
-Last updated at 1/21/2026, 8:10:28 AM
+Last updated at 1/21/2026, 8:11:48 AM
