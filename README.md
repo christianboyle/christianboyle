@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzpKdBowYB8Hg0hb-5S2Qog-t500x500.jpg">](https://soundcloud.com/ltbounceofficial/the-matrix-ancient-alien)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-g5iOhh24kCln9WPv-LdOWzA-t500x500.png">](https://soundcloud.com/ltbounceofficial/bncy-ep-007-lt-bounce-loneliness-2025-radio-edit)
 
 **Artist**: LT BOUNCE 
 
-**Track**: LT BOUNCE - THE MATRIX (Original Bounce Mix 2025) **FREE DOWNLOAD**
+**Track**: BNCY EP 007 - LT BOUNCE - LONELINESS 2025 (RADIO EDIT)
 
-Last updated at 1/21/2026, 8:14:04 AM
+Last updated at 1/21/2026, 1:18:24 PM
