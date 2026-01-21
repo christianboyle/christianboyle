@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oWgzGp4rJXdDYsxF-r3XFow-t500x500.png">](https://soundcloud.com/bncybncy/2e41a7b4-b168-45ac-8a6b-01e0a5c9d541)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-QGXZ0MyJlykx3fsg-C0tpNw-t500x500.jpg">](https://soundcloud.com/don-k-donk/don-k-bop-it)
 
-**Artist**: Axel Gear 
+**Artist**: Don-K 
 
-**Track**: Axel Gear - Vibez
+**Track**: Don-K - Bop It!
 
-Last updated at 1/21/2026, 1:31:36 PM
+Last updated at 1/21/2026, 1:33:41 PM
