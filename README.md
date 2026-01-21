@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GrV3RhVK0zK1fSmd-Q8Utkg-t500x500.png">](https://soundcloud.com/vbounce/mortal-kombat-im-the-devil-v-bounce-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aM1h3GHTYY20A6VX-eVG0Mg-t500x500.png">](https://soundcloud.com/bncybncy/bncy-af-vol-1)
 
-**Artist**: V-Bounce 
+**Artist**: BNCY 
 
-**Track**: Mortal Kombat - Im The Devil (V-Bounce Mix)
+**Track**: BNCY AF Vol 1
 
-Last updated at 1/21/2026, 1:18:39 PM
+Last updated at 1/21/2026, 1:18:44 PM
