@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-97rnELwID419LWkf-Iu8z3w-t500x500.png">](https://soundcloud.com/bncybncy/josh-francis-breaking-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G60jo9ojHQcrrpoH-3Txdig-t500x500.jpg">](https://soundcloud.com/vbounce/dj-sakin-friends-protect-your-mind-v-bounce-mix)
 
-**Artist**: Josh Francis 
+**Artist**: V-Bounce 
 
-**Track**: Josh Francis - Breaking Free
+**Track**: DJ Sakin & Friends - Protect Your Mind (V-Bounce & Dodge 2025 Mix) new almost final
 
-Last updated at 1/21/2026, 1:20:45 PM
+Last updated at 1/21/2026, 1:24:50 PM
