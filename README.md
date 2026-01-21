@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000165772148-yeew75-t500x500.jpg">](https://soundcloud.com/oskardnz/force-styles-feat-mc-junior-pacific-sun-dj-oskar-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-frLsKMkdMObrYpZ4-ZWB9Tg-t500x500.jpg">](https://soundcloud.com/barbaric-uptempo/the-uptempo-tribe-podcast-48-tmo)
 
-**Artist**: DJ Oskar 
+**Artist**: T.M.O. 
 
-**Track**: Force & Styles Feat. MC Junior - Pacific sun Dj Oskar remix
+**Track**: The Uptempo Tribe Podcast #50 - T.M.O.
 
-Last updated at 1/21/2026, 7:19:44 AM
+Last updated at 1/21/2026, 8:10:28 AM
