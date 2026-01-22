@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-onI9ZeDykun3jox8-2kzfAQ-t500x500.jpg">](https://soundcloud.com/nvxrrx/r3ckles-voyager-303)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1bOV0ENmxDCEVxaa-Z2ae5A-t500x500.jpg">](https://soundcloud.com/monta-musica/assault-break-my-heart)
 
-**Artist**: R3CKLES / ENVY LABEL 
+**Artist**: Monta Musica 
 
-**Track**: R3CKLES - Voyager 303
+**Track**: Assault - Break My Heart
 
-Last updated at 1/22/2026, 2:21:07 PM
+Last updated at 1/22/2026, 2:21:47 PM
