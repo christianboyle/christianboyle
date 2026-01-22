@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d3q7me2OUDSsWXtA-x4C4OQ-t500x500.png">](https://soundcloud.com/salvyanmusic/voodoo-salvyan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9B3GGuZV1isKliS6-peTQug-t500x500.png">](https://soundcloud.com/mind-destroyer-tekno/mind-destroyer-dark-ascension)
 
-**Artist**: Salvyan 
+**Artist**: Mind Destroyer 
 
-**Track**: Martin Garrix, R3HAB & Skytech - Voodoo (Salvyan Remix) [FREE DOWNLOAD]
+**Track**: Mind Destroyer - Dark Ascension
 
-Last updated at 1/22/2026, 2:11:36 PM
+Last updated at 1/22/2026, 2:13:51 PM
