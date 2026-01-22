@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SBy4vVPfoyxidnIy-80zruQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/entangled-mind-bonsai-feat-the-spy-from-cairo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PtIyfmXtf5E6y3fi-WJVYEA-t500x500.png">](https://soundcloud.com/rgmusicrecords/steve-bates-rosey-love-donk-mixsc-full-drop-also-on-spotify-more)
 
-**Artist**: Entangled Mind 
+**Artist**: Steve Bates & Rosey 
 
-**Track**: Entangled Mind - Bonsai (feat. The Spy From Cairo)
+**Track**: Steve Bates & Rosey - Love (DONK MIX)💥(SC Full Drop –Also on Spotify & More!)
 
-Last updated at 1/22/2026, 2:18:47 PM
+Last updated at 1/22/2026, 2:18:52 PM
