@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTlYe4jkGcGjqb2Z-IOk3tA-t500x500.jpg">](https://soundcloud.com/mark-nichols-365293004/quosh-vs-essential-platinum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Avfu1B4zhmMcrOH8-Fsuzlw-t500x500.jpg">](https://soundcloud.com/rimerensu/whats-the-plan)
 
-**Artist**: DJ Nichols78 
+**Artist**: rimeren 
 
-**Track**: Quosh vs Essential Platinum Happy Hardcore
+**Track**: what’s the plan?
 
-Last updated at 1/22/2026, 2:15:06 PM
+Last updated at 1/22/2026, 2:15:11 PM
