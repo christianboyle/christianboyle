@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gf3lqt1mr3ZcS4Lk-3fE1kw-t500x500.png">](https://soundcloud.com/fadfood5/ivory)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTz9ztahM4QQDpTC-PVT7hA-t500x500.jpg">](https://soundcloud.com/hexed-official/trinidad-james-all-gold-everything-hexed-flip)
 
-**Artist**: Fadi. 
+**Artist**: HEXED 
 
-**Track**: Ivory
+**Track**: TRINIDAD JAMES - ALL GOLD EVERYTHING (HEXED FLIP)
 
-Last updated at 1/22/2026, 2:15:31 PM
+Last updated at 1/22/2026, 2:15:36 PM
