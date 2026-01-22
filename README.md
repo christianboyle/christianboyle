@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vxp7kmBeNUw59G4X-bqzErg-t500x500.png">](https://soundcloud.com/2spademusic/lobonabeat-x-jay-z-ye-bbangdaengi-in-paris-2spade-x-doberman-hdm-flip-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzDRYcJ4zCy78NvF-au7thg-t500x500.png">](https://soundcloud.com/grexbeatz/uicideboy-bloodsweat-g-rex)
 
-**Artist**: 2Spade, DOBERMAN_KR 
+**Artist**: G-REX 
 
-**Track**: lobonabeat! x Jay-Z & Ye – 빵댕이 in Paris (2Spade x Doberman HDM FLIP)
+**Track**: $UICIDEBOY$ - BLOODSWEAT (G-REX FLIP)
 
-Last updated at 1/22/2026, 2:16:42 PM
+Last updated at 1/22/2026, 2:16:47 PM
