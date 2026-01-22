@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D22mUDZNEz5a1IuV-C8cyVg-t500x500.png">](https://soundcloud.com/maddy-oneal/3-pay-no-mind-maddy-oneal-x-zoska-yoko-remix-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hrQyb6Nu3tXz-0-t500x500.jpg">](https://soundcloud.com/djboerbeats/the-middle)
 
-**Artist**: Maddy O'Neal 
+**Artist**: DJ BoerBeats 
 
-**Track**: Pay No Mind - Maddy O'Neal x Zoska  (Yoko Remix)
+**Track**: The Middle
 
-Last updated at 1/22/2026, 2:17:57 PM
+Last updated at 1/22/2026, 2:18:02 PM
