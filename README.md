@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1bOV0ENmxDCEVxaa-Z2ae5A-t500x500.jpg">](https://soundcloud.com/monta-musica/assault-break-my-heart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oM82G6ZnDX0Zbo3L-SiNFPQ-t500x500.png">](https://soundcloud.com/kuronekoisyasu/aquatic-ambience-dubstep-remix)
 
-**Artist**: Monta Musica 
+**Artist**: KURONEKO, PIXELPAPI,  
 
-**Track**: Assault - Break My Heart
+**Track**: Aquatic Ambience Dubstep remix
 
-Last updated at 1/22/2026, 2:21:47 PM
+Last updated at 1/22/2026, 2:21:57 PM
