@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kAjwd7CzkBMINSg2-zMqeRA-t500x500.png">](https://soundcloud.com/sparky-bonehead/digital-quicksand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h6hxrkJGtbA8MtKm-6pW9WQ-t500x500.jpg">](https://soundcloud.com/joka_official_1/elroy-spotlight-1)
 
-**Artist**: 𝙎𝙥𝙖𝙧𝙠𝙮 𝘽. 
+**Artist**: JOKA 
 
-**Track**: Digital Quicksand
+**Track**: ELROY Spotlight # 1
 
-Last updated at 1/22/2026, 2:24:22 PM
+Last updated at 1/22/2026, 2:24:27 PM
