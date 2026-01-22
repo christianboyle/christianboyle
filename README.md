@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaBtNiOtKS0i0d9h-N23uMQ-t500x500.png">](https://soundcloud.com/murder-we-wrote/tenzuh-street-violence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GR5dpQy5m1UBJIow-mi4rLg-t500x500.jpg">](https://soundcloud.com/djslickmusic/cry-for-you-slick-remix)
 
-**Artist**: Murder We Wrote 
+**Artist**: September 
 
-**Track**: TENZUH - STREET VIOLENCE
+**Track**: Cry For You (SLICK REMIX)
 
-Last updated at 1/22/2026, 2:14:16 PM
+Last updated at 1/22/2026, 2:14:22 PM
