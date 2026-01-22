@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSiT5GnRXCufcJDa-Nem1NQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday-again-your-beautiful-out-soon?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVH9T7P6hpKMQvjA-GizgGg-t500x500.jpg">](https://soundcloud.com/cairen-boyle/cairen-boyle-shakira-zoo?in=saxurn/sets/1a1/)
 
-**Artist**: DRIFT 
+**Artist**: CairenBoyle_DJ 
 
-**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT SOON
+**Track**: Cairen Boyle -Shakira - Zoo
 
-Last updated at 1/22/2026, 8:17:59 AM
+Last updated at 1/22/2026, 8:21:55 AM
