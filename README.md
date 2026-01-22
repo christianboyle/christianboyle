@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZP53BwbSsWXNIXj-JNqGvA-t500x500.png">](https://soundcloud.com/hex-cougar-hextras-3/loveparade?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gy3yWhvsWyoNzezs-khBoBA-t500x500.jpg">](https://soundcloud.com/beansclub/whenyourheartstopsbeating?in=saxurn/sets/1a1/)
 
-**Artist**: Hex Cougar 
+**Artist**: beansclub 
 
-**Track**: Da Hool - Meet Her at the Loveparade (Hex Cougar Remix)
+**Track**: whenyourheartstopsbeating
 
-Last updated at 1/22/2026, 8:31:36 AM
+Last updated at 1/22/2026, 9:04:23 AM
