@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVH9T7P6hpKMQvjA-GizgGg-t500x500.jpg">](https://soundcloud.com/cairen-boyle/cairen-boyle-shakira-zoo?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SFlaAU8uCEmbdVbQ-od1GLw-t500x500.jpg">](https://soundcloud.com/bogember/technikore-without-me-radio-edit?in=saxurn/sets/1a1/)
 
-**Artist**: CairenBoyle_DJ 
+**Artist**: Bogember 
 
-**Track**: Cairen Boyle -Shakira - Zoo
+**Track**: Technikore - Without Me (Radio Edit)
 
-Last updated at 1/22/2026, 9:28:55 AM
+Last updated at 1/22/2026, 1:01:40 PM
