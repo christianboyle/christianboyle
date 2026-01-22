@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gy3yWhvsWyoNzezs-khBoBA-t500x500.jpg">](https://soundcloud.com/beansclub/whenyourheartstopsbeating?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SFlaAU8uCEmbdVbQ-od1GLw-t500x500.jpg">](https://soundcloud.com/bogember/technikore-without-me-radio-edit?in=saxurn/sets/1a1/)
 
-**Artist**: beansclub 
+**Artist**: Bogember 
 
-**Track**: whenyourheartstopsbeating
+**Track**: Technikore - Without Me (Radio Edit)
 
-Last updated at 1/22/2026, 9:04:23 AM
+Last updated at 1/22/2026, 9:07:28 AM
