@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HTaDXSmG0CoiOV6M-tW1lOg-t500x500.png">](https://soundcloud.com/kaz_musick/eras-kaz-and-luminate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UTlYe4jkGcGjqb2Z-IOk3tA-t500x500.jpg">](https://soundcloud.com/mark-nichols-365293004/quosh-vs-essential-platinum)
 
-**Artist**: kaz & LUMINATE 
+**Artist**: DJ Nichols78 
 
-**Track**: Zedd, Porter Robinson, Martin Garrix, Seven Lions, Jason Ross, Alesso, Sebastian Ingrosso, Audien, Tritonal - Eras (kaz & LUMINATE Mega Mashup) *free download*
+**Track**: Quosh vs Essential Platinum Happy Hardcore
 
-Last updated at 1/22/2026, 2:15:01 PM
+Last updated at 1/22/2026, 2:15:06 PM
