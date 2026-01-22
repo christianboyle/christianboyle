@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GR5dpQy5m1UBJIow-mi4rLg-t500x500.jpg">](https://soundcloud.com/djslickmusic/cry-for-you-slick-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uBzfc2lg04d68Y0C-u8o4Zg-t500x500.png">](https://soundcloud.com/ktrl/ktrl-idontlikeyou)
 
-**Artist**: September 
+**Artist**: KTRL 
 
-**Track**: Cry For You (SLICK REMIX)
+**Track**: KTRL - IDONTLIKEYOU
 
-Last updated at 1/22/2026, 2:14:22 PM
+Last updated at 1/22/2026, 2:14:41 PM
