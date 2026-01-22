@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-beoLQOAzxgvB8Dzd-VxHcaQ-t500x500.jpg">](https://soundcloud.com/sportmodemusic/where-have-u-been-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udYy0y069GCgxPNC-cCqgEw-t500x500.png">](https://soundcloud.com/tom-lysar/through-time)
 
-**Artist**: SPORTMODE 
+**Artist**: Tom Lysar 
 
-**Track**: Rihanna - Where Have You Been (sportmode rmx)
+**Track**: Through Time
 
-Last updated at 1/22/2026, 2:16:21 PM
+Last updated at 1/22/2026, 2:16:37 PM
