@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSiT5GnRXCufcJDa-Nem1NQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday-again-your-beautiful-out-soon?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hfsmhq6ADy1eT4DY-wpZeMg-t500x500.jpg">](https://soundcloud.com/lwo_music/skrillex-fuze-edit-nyroz-lwo-fnrz?in=saxurn/sets/in-the-stu)
 
-**Artist**: DRIFT 
+**Artist**: Nyroz, LWØ, FNRZ 
 
-**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT SOON
+**Track**: Skrillex & ISOxo - Fuze (Nyroz x LWØ x FNRZ Hard Techno Edit) [FREE DL]
 
-Last updated at 1/22/2026, 2:11:16 PM
+Last updated at 1/22/2026, 2:11:21 PM
