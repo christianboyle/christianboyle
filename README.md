@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVH9T7P6hpKMQvjA-GizgGg-t500x500.jpg">](https://soundcloud.com/cairen-boyle/cairen-boyle-shakira-zoo?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xitZyXuCzWvxhNS9-tzq4yw-t500x500.jpg">](https://soundcloud.com/event-whalien/area-one-x-niotech-festa-5?in=saxurn/sets/1a1/)
 
-**Artist**: CairenBoyle_DJ 
+**Artist**: Whalien 
 
-**Track**: Cairen Boyle -Shakira - Zoo
+**Track**: Premiere | AREA ØNE X Niotech - Festa [Free DL]
 
-Last updated at 1/22/2026, 8:21:55 AM
+Last updated at 1/22/2026, 8:26:55 AM
