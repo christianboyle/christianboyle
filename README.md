@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PSu1YRKsc6nuFrly-KVWZMw-t500x500.png">](https://soundcloud.com/levianth/victory-lap-5-x-chinatown-freestyle-levianth-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bVH9T7P6hpKMQvjA-GizgGg-t500x500.jpg">](https://soundcloud.com/cairen-boyle/cairen-boyle-shakira-zoo?in=saxurn/sets/1a1/)
 
-**Artist**: Levianth 
+**Artist**: CairenBoyle_DJ 
 
-**Track**: VICTORY LAP 5 x CHINATOWN FREESTYLE (Levianth Edit)
+**Track**: Cairen Boyle -Shakira - Zoo
 
-Last updated at 1/22/2026, 9:24:25 AM
+Last updated at 1/22/2026, 9:28:55 AM
