@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9B3GGuZV1isKliS6-peTQug-t500x500.png">](https://soundcloud.com/mind-destroyer-tekno/mind-destroyer-dark-ascension)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hx4POI16nipsdM6c-8fBpiQ-t500x500.png">](https://soundcloud.com/avarecordings/avacast-mully-shvman2)
 
-**Artist**: Mind Destroyer 
+**Artist**: Mully & Shvman 
 
-**Track**: Mind Destroyer - Dark Ascension
+**Track**: AVACast - Mully & Shvman
 
-Last updated at 1/22/2026, 2:13:51 PM
+Last updated at 1/22/2026, 2:14:01 PM
