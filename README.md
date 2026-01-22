@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zLwatp0vnQ7rT4O-3BXebQ-t500x500.jpg">](https://soundcloud.com/aresklas/is-this-rave-enough-aresklas-remix?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hfsmhq6ADy1eT4DY-wpZeMg-t500x500.jpg">](https://soundcloud.com/lwo_music/skrillex-fuze-edit-nyroz-lwo-fnrz?in=saxurn/sets/in-the-stu)
 
-**Artist**: Aresklas, Darane, Efecta 
+**Artist**: Nyroz, LWØ, FNRZ 
 
-**Track**: Is This Rave ENOUGH (Aresklas REMIX) [Free Dwnld]
+**Track**: Skrillex & ISOxo - Fuze (Nyroz x LWØ x FNRZ Hard Techno Edit) [FREE DL]
 
-Last updated at 1/22/2026, 1:59:06 PM
+Last updated at 1/22/2026, 2:02:02 PM
