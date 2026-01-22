@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-viFozVyw6wmhAM4B-XUNydQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-where-we-belong-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kAjwd7CzkBMINSg2-zMqeRA-t500x500.png">](https://soundcloud.com/sparky-bonehead/digital-quicksand)
 
-**Artist**: DRIFT 
+**Artist**: 𝙎𝙥𝙖𝙧𝙠𝙮 𝘽. 
 
-**Track**: DRIFT - WHERE WE BELONG (OUT NOW)
+**Track**: Digital Quicksand
 
-Last updated at 1/22/2026, 2:22:32 PM
+Last updated at 1/22/2026, 2:24:22 PM
