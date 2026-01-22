@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oM82G6ZnDX0Zbo3L-SiNFPQ-t500x500.png">](https://soundcloud.com/kuronekoisyasu/aquatic-ambience-dubstep-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKRCJUPROIysZrjG-ZNwG2g-t500x500.jpg">](https://soundcloud.com/stariah/orbit)
 
-**Artist**: KURONEKO, PIXELPAPI,  
+**Artist**: Stariah 
 
-**Track**: Aquatic Ambience Dubstep remix
+**Track**: Stariah - Orbit
 
-Last updated at 1/22/2026, 2:21:57 PM
+Last updated at 1/22/2026, 2:22:02 PM
