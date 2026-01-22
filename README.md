@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hfsmhq6ADy1eT4DY-wpZeMg-t500x500.jpg">](https://soundcloud.com/lwo_music/skrillex-fuze-edit-nyroz-lwo-fnrz?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d3q7me2OUDSsWXtA-x4C4OQ-t500x500.png">](https://soundcloud.com/salvyanmusic/voodoo-salvyan-remix)
 
-**Artist**: Nyroz, LWØ, FNRZ 
+**Artist**: Salvyan 
 
-**Track**: Skrillex & ISOxo - Fuze (Nyroz x LWØ x FNRZ Hard Techno Edit) [FREE DL]
+**Track**: Martin Garrix, R3HAB & Skytech - Voodoo (Salvyan Remix) [FREE DOWNLOAD]
 
-Last updated at 1/22/2026, 2:11:21 PM
+Last updated at 1/22/2026, 2:11:36 PM
