@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wa2sgjgKlBeCKzee-XKFefg-t500x500.jpg">](https://soundcloud.com/tripp_st/kehlani-folded-tripp-st-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-onI9ZeDykun3jox8-2kzfAQ-t500x500.jpg">](https://soundcloud.com/nvxrrx/r3ckles-voyager-303)
 
-**Artist**: Tripp St. 
+**Artist**: R3CKLES / ENVY LABEL 
 
-**Track**: Kehlani - Folded (Tripp St. Flip)
+**Track**: R3CKLES - Voyager 303
 
-Last updated at 1/22/2026, 2:19:47 PM
+Last updated at 1/22/2026, 2:21:07 PM
