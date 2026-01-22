@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzDRYcJ4zCy78NvF-au7thg-t500x500.png">](https://soundcloud.com/grexbeatz/uicideboy-bloodsweat-g-rex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UDtSirOhMa59GD62-wAseHA-t500x500.jpg">](https://soundcloud.com/sachsentrance/ammara-trancemaster-krause-1)
 
-**Artist**: G-REX 
+**Artist**: DJ WIFI 
 
-**Track**: $UICIDEBOY$ - BLOODSWEAT (G-REX FLIP)
+**Track**: Trancemaster Krause & Ammara - Outta Space (DJ WIFI Remix) [ST023]
 
-Last updated at 1/22/2026, 2:16:47 PM
+Last updated at 1/22/2026, 2:16:52 PM
