@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijLEtBz2Hnvy3mgH-uhiQsQ-t500x500.png">](https://soundcloud.com/user116-233509859/jie-yan-prodscarletchoirliv-17)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ygxKtzkbENP6T3k2-TXPhmA-t500x500.jpg">](https://soundcloud.com/macca-88-1/milk-inc-in-my-eyes-macca-remix)
 
-**Artist**: User116 
+**Artist**: Macca™ 
 
-**Track**: 戒烟 (prod.scarletchoir&liv)
+**Track**: Milk Inc - In My Eyes (MACCA Remix)
 
-Last updated at 1/22/2026, 2:16:06 PM
+Last updated at 1/22/2026, 2:16:11 PM
