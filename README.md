@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Avfu1B4zhmMcrOH8-Fsuzlw-t500x500.jpg">](https://soundcloud.com/rimerensu/whats-the-plan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gf3lqt1mr3ZcS4Lk-3fE1kw-t500x500.png">](https://soundcloud.com/fadfood5/ivory)
 
-**Artist**: rimeren 
+**Artist**: Fadi. 
 
-**Track**: what’s the plan?
+**Track**: Ivory
 
-Last updated at 1/22/2026, 2:15:11 PM
+Last updated at 1/22/2026, 2:15:31 PM
