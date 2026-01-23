@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYer8L4rws99A36n-AXCd6Q-t500x500.jpg">](https://soundcloud.com/macca-88-1/dj-sammy-yanou-feat-do-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-phuVOD8EWyyA3bls-r1LHaw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/ecstatic-alicia-hardstyle-mix)
 
-**Artist**: Macca™ 
+**Artist**: Ecstatic 
 
-**Track**: DJ Sammy & Yanou feat Do - Heaven (Macca 2025 Remix)  *** FREE DOWNLOAD***
+**Track**: Ecstatic - Alicia (Hardstyle Mix)
 
-Last updated at 1/23/2026, 6:28:22 AM
+Last updated at 1/23/2026, 9:58:31 AM
