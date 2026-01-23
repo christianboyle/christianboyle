@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-phuVOD8EWyyA3bls-r1LHaw-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/ecstatic-alicia-hardstyle-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160342175-wl9jd7-t500x500.jpg">](https://soundcloud.com/goodnightcody/quack-quack-quack-quack-quack?in_system_playlist=your-playback%3A%3Asaxurn%3A2016)
 
-**Artist**: Ecstatic 
+**Artist**: Goodnight Cody 
 
-**Track**: Ecstatic - Alicia (Hardstyle Mix)
+**Track**: Quack Quack Quack Quack QUACK
 
-Last updated at 1/23/2026, 9:58:31 AM
+Last updated at 1/23/2026, 10:13:07 AM
