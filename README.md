@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h6hxrkJGtbA8MtKm-6pW9WQ-t500x500.jpg">](https://soundcloud.com/joka_official_1/elroy-spotlight-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYer8L4rws99A36n-AXCd6Q-t500x500.jpg">](https://soundcloud.com/macca-88-1/dj-sammy-yanou-feat-do-2)
 
-**Artist**: JOKA 
+**Artist**: Macca™ 
 
-**Track**: ELROY Spotlight # 1
+**Track**: DJ Sammy & Yanou feat Do - Heaven (Macca 2025 Remix)  *** FREE DOWNLOAD***
 
-Last updated at 1/22/2026, 2:24:27 PM
+Last updated at 1/23/2026, 6:28:22 AM
