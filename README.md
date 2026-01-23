@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160342175-wl9jd7-t500x500.jpg">](https://soundcloud.com/goodnightcody/quack-quack-quack-quack-quack?in_system_playlist=your-playback%3A%3Asaxurn%3A2016)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000160153226-xz1hmx-t500x500.jpg">](https://soundcloud.com/doghouse-recordings/born-again?in_system_playlist=your-playback%3A%3Asaxurn%3A2016)
 
-**Artist**: Goodnight Cody 
+**Artist**: Doghouse Recordings 
 
-**Track**: Quack Quack Quack Quack QUACK
+**Track**: BORN AGAIN
 
-Last updated at 1/23/2026, 10:13:07 AM
+Last updated at 1/23/2026, 10:15:57 AM
