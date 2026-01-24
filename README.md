@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000611073652-09i3rh-t500x500.jpg">](https://soundcloud.com/ice-underlord/crack-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-el96XvaeT8sndTNB-cw4yRg-t500x500.jpg">](https://soundcloud.com/clubcringe/cringe81)
 
-**Artist**: ICE UNDERLORD 
+**Artist**: Ice Underlord 
 
-**Track**: CRACK MUSIC
+**Track**: CRINGE MIX #81 - ICE UNDERLORD
 
-Last updated at 1/23/2026, 7:07:17 PM
+Last updated at 1/23/2026, 7:07:22 PM
