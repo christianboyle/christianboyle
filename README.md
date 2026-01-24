@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKRCJUPROIysZrjG-ZNwG2g-t500x500.jpg">](https://soundcloud.com/stariah/ethereal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RbSxYAzOLfHvMQDm-oZYkHw-t500x500.jpg">](https://soundcloud.com/4nna1una/wake-me-up)
 
-**Artist**: Stariah, SPORIA 
+**Artist**: anna luna 
 
-**Track**: Stariah & SPORIA - Ethereal
+**Track**: wake me up
 
-Last updated at 1/24/2026, 8:49:16 AM
+Last updated at 1/24/2026, 8:50:31 AM
