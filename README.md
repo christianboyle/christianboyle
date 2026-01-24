@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLpmi6EBhuFPtSMo-YdjxVQ-t500x500.jpg">](https://soundcloud.com/drillbelgrade/drillpremiere-nasty-king-kurl-crank-it-777-recordings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fd8k4BShaLMTr4oo-25P3yg-t500x500.jpg">](https://soundcloud.com/drillbelgrade/drillpremiere-manao-x-soft-grunge-zero-ft-dj-fuckoff-no-service)
 
-**Artist**: Nasty King Kurl 
+**Artist**: Manao, Soft Grunge & DJ Fuckoff 
 
-**Track**: DRILLPREMIERE: Nasty King Kurl - Crank It [777 Recordings]
+**Track**: DRILLPREMIERE: Manao X Soft Grunge - Zero Ft. DJ Fuckoff [NO SERVICE]
 
-Last updated at 1/23/2026, 7:19:04 PM
+Last updated at 1/23/2026, 7:20:04 PM
