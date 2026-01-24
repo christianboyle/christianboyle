@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HeL27j1Qxnj6X25o-yIsl1A-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/still-got-millennium-fever-part-12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mKRCJUPROIysZrjG-ZNwG2g-t500x500.jpg">](https://soundcloud.com/stariah/ethereal)
 
-**Artist**: Dj Des 
+**Artist**: Stariah, SPORIA 
 
-**Track**: Still Got Millennium Fever .......... Part 12
+**Track**: Stariah & SPORIA - Ethereal
 
-Last updated at 1/24/2026, 8:46:15 AM
+Last updated at 1/24/2026, 8:49:16 AM
