@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jjF6nNZZsfJ1zrcu-H36Ncw-t500x500.jpg">](https://soundcloud.com/rinse_france/mileyseriousinviteiceunderlordwarmchains-161120)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PdymyyP5sQzzkyhm-koZWOQ-t500x500.jpg">](https://soundcloud.com/drillbelgrade/drillpremiere-devnull-rng-remix-evar-records)
 
-**Artist**: Rinse France 
+**Artist**: Dev/Null 
 
-**Track**: Miley Serious invite ICEUNDERLORD & Warmchains - 16 Novembre 2020
+**Track**: DRILLPREMIERE: Dev/Null - RNG Remix [Evar Records]
 
-Last updated at 1/23/2026, 7:07:32 PM
+Last updated at 1/23/2026, 7:17:13 PM
