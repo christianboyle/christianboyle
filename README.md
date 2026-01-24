@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxuJbHhH2WsUvzhW-aWXG6g-t500x500.png">](https://soundcloud.com/dewzixmusic/all-i-need-is-bass-dewzix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hrQyb6Nu3tXz-0-t500x500.jpg">](https://soundcloud.com/djboerbeats/the-middle?in=saxurn/sets/1a1/)
 
-**Artist**: DEWZIX 
+**Artist**: DJ BoerBeats 
 
-**Track**: PEEKABOO - All I Need Is Bass (DEWZIX Remix)
+**Track**: The Middle
 
-Last updated at 1/24/2026, 12:04:47 PM
+Last updated at 1/24/2026, 12:31:46 PM
