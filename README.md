@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bri0IFE3YkPVkFAv-EkOD8w-t500x500.png">](https://soundcloud.com/drillbelgrade/drillcast095-shai-fm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3rcYROvxS7cHhOKY-DY0VBA-t500x500.png">](https://soundcloud.com/hangthedjsuk/gbx-bits-pieces-hang-the-djs-bootleg)
 
-**Artist**: Drill, Shai FM 
+**Artist**: Hang The DJs 
 
-**Track**: DRILLCAST095 - Shai FM
+**Track**: GBX - Bits & Pieces (Hang The DJs Bootleg)
 
-Last updated at 1/24/2026, 8:44:10 AM
+Last updated at 1/24/2026, 8:45:10 AM
