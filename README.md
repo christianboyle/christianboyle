@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-viFozVyw6wmhAM4B-XUNydQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-where-we-belong-out-now?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FLInDB0DcKgk0v5z-3a1R0g-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-le-freak?in=saxurn/sets/1a1/)
 
-**Artist**: DRIFT 
+**Artist**: The Bounce Brothers 
 
-**Track**: DRIFT - WHERE WE BELONG (OUT NOW)
+**Track**: The Bounce Brothers - Le Freak
 
-Last updated at 1/25/2026, 1:52:46 PM
+Last updated at 1/25/2026, 1:57:02 PM
