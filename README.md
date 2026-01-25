@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzdMMsb1lD84-0-t500x500.jpg">](https://soundcloud.com/getterofficial/mikichan-3-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RbSxYAzOLfHvMQDm-oZYkHw-t500x500.jpg">](https://soundcloud.com/4nna1una/wake-me-up?in=saxurn/sets/1a1/)
 
-**Artist**: Getter 
+**Artist**: anna luna 
 
-**Track**: MIKICHAN 3.5
+**Track**: wake me up
 
-Last updated at 1/25/2026, 10:00:11 AM
+Last updated at 1/25/2026, 1:29:34 PM
