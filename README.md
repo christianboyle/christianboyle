@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592931663-a1bi30-t500x500.jpg">](https://soundcloud.com/macca-88-1/macca-burn-that-beachball)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL8hy3swm33JMbOL-Mc2UyQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-bumble-bee-extended-mix)
 
-**Artist**: Macca™ 
+**Artist**: Tatsunoshin 
 
-**Track**: Macca - Burn That Beachball
+**Track**: Tatsunoshin - Bumble Bee (Extended Mix)
 
-Last updated at 1/25/2026, 4:56:57 PM
+Last updated at 1/25/2026, 4:58:52 PM
