@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oiHCStvuE0QaRRif-1p9DBg-t500x500.png">](https://soundcloud.com/simula/ribcage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL8hy3swm33JMbOL-Mc2UyQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-bumble-bee-extended-mix)
 
-**Artist**: Simula 
+**Artist**: Tatsunoshin 
 
-**Track**: Ribcage [FREE DOWNLOAD]
+**Track**: Tatsunoshin - Bumble Bee (Extended Mix)
 
-Last updated at 1/25/2026, 9:17:52 AM
+Last updated at 1/25/2026, 9:18:57 AM
