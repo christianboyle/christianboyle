@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-g9qvB3aEnmTtIpZX-RLN0Cw-t500x500.jpg">](https://soundcloud.com/jojofairclough1984/indies-live-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DuAFmM2sCRvYn2x6-66UJNA-t500x500.jpg">](https://soundcloud.com/carljames23/martin-hoffstad-fisher-vs-martin-solveig-its-hello-time-dj-carljames-mashup)
 
-**Artist**: DJ Jo Jo 
+**Artist**: DJ Carl James 
 
-**Track**: INDIES LIVE SET
+**Track**: Martin Hoffstadt & Fisher vs Martin Solveig - It's Hello Time (DJ Carl James Mashup)
 
-Last updated at 1/25/2026, 8:47:19 AM
+Last updated at 1/25/2026, 8:48:19 AM
