@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-i-want-you-close?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzdMMsb1lD84-0-t500x500.jpg">](https://soundcloud.com/getterofficial/mikichan-3-5)
 
-**Artist**: V-Bounce 
+**Artist**: Getter 
 
-**Track**: V-Bounce - I Want You Close
+**Track**: MIKICHAN 3.5
 
-Last updated at 1/25/2026, 2:26:04 PM
+Last updated at 1/25/2026, 2:29:08 PM
