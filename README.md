@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RbSxYAzOLfHvMQDm-oZYkHw-t500x500.jpg">](https://soundcloud.com/4nna1una/wake-me-up?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bhdk3PSO0gCj3tEi-zamrMQ-t500x500.jpg">](https://soundcloud.com/yerbownik/fly-with-me?in=saxurn/sets/1a1/)
 
-**Artist**: anna luna 
+**Artist**: yerbby 
 
-**Track**: wake me up
+**Track**: fly with me
 
-Last updated at 1/25/2026, 1:29:34 PM
+Last updated at 1/25/2026, 1:31:44 PM
