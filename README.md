@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzwG60aBgRnCdI79-9OVGNg-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-a-state-of-bounce-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dLFboMbziFtQPjBi-yyVAQQ-t500x500.jpg">](https://soundcloud.com/heliographmusic/shm-alicia-keys-finally-heliograph)
 
-**Artist**: Scott F 
+**Artist**: SHM, Alicia Keys 
 
-**Track**: Scott F A State Of Bounce January 2026
+**Track**: Finally (Heliograph Remix)
 
-Last updated at 1/25/2026, 8:44:39 AM
+Last updated at 1/25/2026, 8:45:54 AM
