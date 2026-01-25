@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cx8AzRgyPcaoeWYr-5cytrQ-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/dj-moff-exclusives-more-1-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MVoqZDc4fgys1zxd-q4pQkg-t500x500.png">](https://soundcloud.com/shweezofficial/shweez-ruckus-2026-showcase)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: SHWEEZ 
 
-**Track**: Dj Moff-Exclusives & More 1.3
+**Track**: SHWEEZ RUCKUS 2026 SHOWCASE
 
-Last updated at 1/25/2026, 8:42:34 AM
+Last updated at 1/25/2026, 8:43:39 AM
