@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GR5dpQy5m1UBJIow-mi4rLg-t500x500.jpg">](https://soundcloud.com/djslickmusic/cry-for-you-slick-remix/s-VlFwmClr9Ul?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxuJbHhH2WsUvzhW-aWXG6g-t500x500.png">](https://soundcloud.com/dewzixmusic/all-i-need-is-bass-dewzix-remix?in=saxurn/sets/1a1/)
 
-**Artist**: September 
+**Artist**: DEWZIX 
 
-**Track**: Cry For You (SLICK REMIX)
+**Track**: PEEKABOO - All I Need Is Bass (DEWZIX Remix)
 
-Last updated at 1/25/2026, 1:59:32 PM
+Last updated at 1/25/2026, 2:01:52 PM
