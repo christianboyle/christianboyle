@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DuAFmM2sCRvYn2x6-66UJNA-t500x500.jpg">](https://soundcloud.com/carljames23/martin-hoffstad-fisher-vs-martin-solveig-its-hello-time-dj-carljames-mashup)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xnJOtqxAi1CystHN-1WYPCQ-t500x500.jpg">](https://soundcloud.com/afik-2/mind-ya-business)
 
-**Artist**: DJ Carl James 
+**Artist**: KIRK 
 
-**Track**: Martin Hoffstadt & Fisher vs Martin Solveig - It's Hello Time (DJ Carl James Mashup)
+**Track**: Mind Ya Business
 
-Last updated at 1/25/2026, 8:48:19 AM
+Last updated at 1/25/2026, 8:58:26 AM
