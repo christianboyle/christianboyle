@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MEjOI8RAGL3Ez2PZ-yi3aJA-t500x500.jpg">](https://soundcloud.com/dj_kidy/swedish-house-mafia-dont-you-worry-child-kidy-revise-radio-filtered)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31IxJWjSmfW0DHok-rMSSNQ-t500x500.png">](https://soundcloud.com/martinmorgandj/martin-morgan-diving-faces-free-download)
 
-**Artist**: DJ KIDY 
+**Artist**: Martin Morgan 
 
-**Track**: Swedish House Mafia - Don't You Worry Child (KIDY Revise) Radio Filtered
+**Track**: Martin Morgan - Diving Faces (Free Download)
 
-Last updated at 1/25/2026, 8:59:46 AM
+Last updated at 1/25/2026, 9:11:52 AM
