@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31IxJWjSmfW0DHok-rMSSNQ-t500x500.png">](https://soundcloud.com/martinmorgandj/martin-morgan-diving-faces-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fXGn1qLUXl5KOZNp-ndWZTg-t500x500.png">](https://soundcloud.com/mr-mrs-soundz-uk-djs/serious-soundz-one-last-time)
 
-**Artist**: Martin Morgan 
+**Artist**: Serious Soundz - Why So Serious Events 
 
-**Track**: Martin Morgan - Diving Faces (Free Download)
+**Track**: Serious Soundz - One  Last Time
 
-Last updated at 1/25/2026, 9:11:52 AM
+Last updated at 1/25/2026, 9:13:22 AM
