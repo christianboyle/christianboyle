@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xitZyXuCzWvxhNS9-tzq4yw-t500x500.jpg">](https://soundcloud.com/event-whalien/area-one-x-niotech-festa-5?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZP53BwbSsWXNIXj-JNqGvA-t500x500.png">](https://soundcloud.com/hex-cougar-hextras-3/loveparade?in=saxurn/sets/in-the-stu)
 
-**Artist**: Whalien 
+**Artist**: Hex Cougar 
 
-**Track**: Premiere | AREA ØNE X Niotech - Festa [Free DL]
+**Track**: Da Hool - Meet Her at the Loveparade (Hex Cougar Remix)
 
-Last updated at 1/25/2026, 2:15:43 PM
+Last updated at 1/25/2026, 2:20:19 PM
