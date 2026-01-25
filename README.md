@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MVoqZDc4fgys1zxd-q4pQkg-t500x500.png">](https://soundcloud.com/shweezofficial/shweez-ruckus-2026-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wzwG60aBgRnCdI79-9OVGNg-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-a-state-of-bounce-7)
 
-**Artist**: SHWEEZ 
+**Artist**: Scott F 
 
-**Track**: SHWEEZ RUCKUS 2026 SHOWCASE
+**Track**: Scott F A State Of Bounce January 2026
 
-Last updated at 1/25/2026, 8:43:39 AM
+Last updated at 1/25/2026, 8:44:39 AM
