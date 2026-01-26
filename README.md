@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/vs1_i-been-broken-v-bounce-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ELGhrnfhVzYuWfQn-E08IyA-t500x500.png">](https://soundcloud.com/lacuna_official/tasruff-club-glow?in=denhamaudio/sets/club-glow-releases)
 
-**Artist**: V-Bounce 
+**Artist**: Lacuna 
 
-**Track**: Vs1_ - I Been Broken (V-Bounce Remix)
+**Track**: Tasruff [Club Glow]
 
-Last updated at 1/26/2026, 6:03:45 AM
+Last updated at 1/26/2026, 6:04:50 AM
