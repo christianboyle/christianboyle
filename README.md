@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PVyIkDaHQRkg-0-t500x500.png">](https://soundcloud.com/alaguan-music/dopamine-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000195430614-p9rpuz-t500x500.jpg">](https://soundcloud.com/alaguan/alan-walker-faded-alaguan-starscr3am-remix)
 
 **Artist**: Alaguan 
 
-**Track**: Dopamine (Radio Mix)
+**Track**: Alan Walker - Faded (Alaguan & STARSCR3AM Remix)
 
-Last updated at 1/26/2026, 4:49:01 PM
+Last updated at 1/26/2026, 4:50:01 PM
