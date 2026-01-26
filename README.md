@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KM6UhxKYdDjVGh4S-zr6FNA-t500x500.png">](https://soundcloud.com/goodsociety/capochino-noone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SpV7AsycLCtkgJwS-70hCWg-t500x500.jpg">](https://soundcloud.com/bondzeye/bondzeye-trial-by-combat-1)
 
-**Artist**: Capochino 
+**Artist**: Bondzeye 
 
-**Track**: Capochino - No One
+**Track**: Trial by combat
 
-Last updated at 1/26/2026, 5:18:53 PM
+Last updated at 1/26/2026, 5:20:34 PM
