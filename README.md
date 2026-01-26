@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmbPAwZ0pIQdItvI-QrGcqw-t500x500.png">](https://soundcloud.com/ta1lsd0ll/remememem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/vs1_i-been-broken-v-bounce-remix)
 
-**Artist**: ta1lsd0ll 
+**Artist**: V-Bounce 
 
-**Track**: ta1lsd027
+**Track**: Vs1_ - I Been Broken (V-Bounce Remix)
 
-Last updated at 1/26/2026, 6:02:40 AM
+Last updated at 1/26/2026, 6:03:45 AM
