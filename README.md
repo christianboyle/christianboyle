@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCrpnVp5ZAxzX8re-g6tdUQ-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/alice-deejay-better-off-alone-tatsunoshin-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432439878-p5027n-t500x500.jpg">](https://soundcloud.com/alaguan-backup/serebro-mi-mi-mi-alaguan-bootleg)
 
-**Artist**: Tatsunoshin 
+**Artist**: Alaguan Backup Page 
 
-**Track**: Alice Deejay - Better Off Alone (Tatsunoshin Remix)
+**Track**: Serebro - Mi Mi Mi (Alaguan Bootleg)
 
-Last updated at 1/26/2026, 4:46:50 PM
+Last updated at 1/26/2026, 4:48:00 PM
