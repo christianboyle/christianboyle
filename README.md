@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432439878-p5027n-t500x500.jpg">](https://soundcloud.com/alaguan-backup/serebro-mi-mi-mi-alaguan-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PVyIkDaHQRkg-0-t500x500.png">](https://soundcloud.com/alaguan-music/dopamine-radio-mix)
 
-**Artist**: Alaguan Backup Page 
+**Artist**: Alaguan 
 
-**Track**: Serebro - Mi Mi Mi (Alaguan Bootleg)
+**Track**: Dopamine (Radio Mix)
 
-Last updated at 1/26/2026, 4:48:00 PM
+Last updated at 1/26/2026, 4:49:01 PM
