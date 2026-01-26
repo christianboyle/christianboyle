@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FLInDB0DcKgk0v5z-3a1R0g-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-le-freak?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RbSxYAzOLfHvMQDm-oZYkHw-t500x500.jpg">](https://soundcloud.com/4nna1una/wake-me-up?in=saxurn/sets/the-crys/)
 
-**Artist**: The Bounce Brothers 
+**Artist**: anna luna 
 
-**Track**: The Bounce Brothers - Le Freak
+**Track**: wake me up
 
-Last updated at 1/26/2026, 4:40:59 PM
+Last updated at 1/26/2026, 4:43:05 PM
