@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-QGXZ0MyJlykx3fsg-C0tpNw-t500x500.jpg">](https://soundcloud.com/don-k-donk/don-k-bop-it?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-viFozVyw6wmhAM4B-XUNydQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-where-we-belong-out-now?in=saxurn/sets/1a1/)
 
-**Artist**: Don-K 
+**Artist**: DRIFT 
 
-**Track**: Don-K - Bop It!
+**Track**: DRIFT - WHERE WE BELONG (OUT NOW)
 
-Last updated at 1/26/2026, 11:10:39 AM
+Last updated at 1/26/2026, 4:11:22 PM
