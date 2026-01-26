@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-DIfGbK89yojxiwFY-bbBAjA-t500x500.jpg">](https://soundcloud.com/pendarr/the-clear-blue-sky-pendarr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9ybDzUV5pdGDYXQ-yy52Rw-t500x500.jpg">](https://soundcloud.com/pendarr/let-down-your-armor-source-mix?in=pendarr/sets/downloads-on)
 
-**Artist**: Pendarr 
+**Artist**: Penny (Pendarr) 
 
-**Track**: The Clear Blue Sky (pendarr 10year remix)
+**Track**: Let Down Your Armor (Source Mix)
 
-Last updated at 1/26/2026, 4:58:42 PM
+Last updated at 1/26/2026, 4:59:52 PM
