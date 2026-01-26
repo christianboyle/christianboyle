@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BhLb0I18dcYQhMTc-SsbSRA-t500x500.jpg">](https://soundcloud.com/s3rl/make-me-wanna-s3rl-alaguan-ft-mixie-moon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zl6zhDSlhcDoyfcH-NMrmQw-t500x500.png">](https://soundcloud.com/hellrazermusic/bricksquad)
 
-**Artist**: S3RL, Alaguan, Mixie Moon 
+**Artist**: HELLRAZER 
 
-**Track**: Make Me Wanna - S3RL & Alaguan ft Mixie Moon
+**Track**: MAYHEM X ANTISERUM - BRICKSQUAD ANTHEM (HELLRAZER REMIX)
 
-Last updated at 1/26/2026, 4:51:01 PM
+Last updated at 1/26/2026, 4:52:31 PM
