@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ELGhrnfhVzYuWfQn-E08IyA-t500x500.png">](https://soundcloud.com/lacuna_official/tasruff-club-glow?in=denhamaudio/sets/club-glow-releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPIi7Yz6O7cBEv2C-pfABUg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/sunday-sessions-vol-55-drift-mash-up-track-listed)
 
-**Artist**: Lacuna 
+**Artist**: DRIFT 
 
-**Track**: Tasruff [Club Glow]
+**Track**: SUNDAY SESSIONS VOL 55 - DRIFT - MASH UP ((TRACK LISTED))
 
-Last updated at 1/26/2026, 6:04:50 AM
+Last updated at 1/26/2026, 9:27:45 AM
