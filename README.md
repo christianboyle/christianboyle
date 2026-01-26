@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000195430614-p9rpuz-t500x500.jpg">](https://soundcloud.com/alaguan/alan-walker-faded-alaguan-starscr3am-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BhLb0I18dcYQhMTc-SsbSRA-t500x500.jpg">](https://soundcloud.com/s3rl/make-me-wanna-s3rl-alaguan-ft-mixie-moon)
 
-**Artist**: Alaguan 
+**Artist**: S3RL, Alaguan, Mixie Moon 
 
-**Track**: Alan Walker - Faded (Alaguan & STARSCR3AM Remix)
+**Track**: Make Me Wanna - S3RL & Alaguan ft Mixie Moon
 
-Last updated at 1/26/2026, 4:50:01 PM
+Last updated at 1/26/2026, 4:51:01 PM
