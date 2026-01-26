@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MJYCf3hyusY6HgwR-HDdSYQ-t500x500.png">](https://soundcloud.com/bonkers-rave/8-ball-d-willz-bonkers-beats-231)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/jayme-d-walk-the-dino?in=revolution-records-uk/sets/latest-tracks-coming-soon)
 
-**Artist**: 8 Ball, D-Willz 
+**Artist**: Revolution-Records UK 
 
-**Track**: 8 Ball & D-Willz - Bonkers Beats 231
+**Track**: JAYME D - WALK THE DINO
 
-Last updated at 1/26/2026, 5:24:22 PM
+Last updated at 1/26/2026, 5:25:22 PM
