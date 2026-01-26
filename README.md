@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmbPAwZ0pIQdItvI-QrGcqw-t500x500.png">](https://soundcloud.com/ta1lsd0ll/remememem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PVPYbvW4MW0symWk-ZKs7xg-t500x500.png">](https://soundcloud.com/tomoyu/gaada-obat-tomoyu-remix)
 
-**Artist**: ta1lsd0ll 
+**Artist**: TOMOYU 
 
-**Track**: ta1lsd027
+**Track**: GAADA OBAT(TOMOYU Remix)
 
-Last updated at 1/26/2026, 4:54:41 PM
+Last updated at 1/26/2026, 4:55:42 PM
