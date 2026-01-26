@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B0irUWBwOymJ0yBt-3RzitA-t500x500.jpg">](https://soundcloud.com/nullrecuk/polarity-thunderdome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Skx57JKR8x0Wf605-zbPRmA-t500x500.png">](https://soundcloud.com/sacredsnowmusic/sacred-bass-mix-001)
 
-**Artist**: NullRec 
+**Artist**: SACRED SNOW 
 
-**Track**: Polarity - Thunderdome
+**Track**: SACRED BASS MIX 001
 
-Last updated at 1/26/2026, 5:28:32 PM
+Last updated at 1/26/2026, 5:29:58 PM
