@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pa9dFrYXbYhZDwwc-UebOFA-t500x500.png">](https://soundcloud.com/thisisjulianfox/26f8931d-da66-468f-be54-ce8dfafaaf3c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yyeSywOmgrBTITL-09VdWQ-t500x500.png">](https://soundcloud.com/kureimusic/want-me)
 
-**Artist**: Julian Fox 
+**Artist**: ☆KUREI☆, shmani 
 
-**Track**: Make You House
+**Track**: want me.
 
-Last updated at 1/27/2026, 2:21:38 PM
+Last updated at 1/27/2026, 2:21:43 PM
