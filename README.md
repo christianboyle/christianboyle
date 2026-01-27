@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PV70EpvE0zmmOu07-uxcBqw-t500x500.png">](https://soundcloud.com/djmarshy1984/side-fx-24th-jan-2026-promo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pa9dFrYXbYhZDwwc-UebOFA-t500x500.png">](https://soundcloud.com/thisisjulianfox/26f8931d-da66-468f-be54-ce8dfafaaf3c)
 
-**Artist**: Marshy 
+**Artist**: Julian Fox 
 
-**Track**: Side FX 24th Jan 2026 Promo - Marshy
+**Track**: Make You House
 
-Last updated at 1/27/2026, 2:13:28 PM
+Last updated at 1/27/2026, 2:21:38 PM
