@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FJYm7Oqpc7FTnoCF-JAylbg-t500x500.jpg">](https://soundcloud.com/drillbelgrade/drillpremiere-alleged-witches-parasitic-future-natural-sciences?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix?in=saxurn/sets/the-crys)
 
-**Artist**: Alleged Withes 
+**Artist**: Initi8 
 
-**Track**: DRILLPREMIERE: Alleged Witches - Parasitic Future [Natural Sciences]
+**Track**: CRY BBY - INITI8 REMIX
 
-Last updated at 1/27/2026, 7:04:59 AM
+Last updated at 1/27/2026, 7:10:29 AM
