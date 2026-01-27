@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592931663-a1bi30-t500x500.jpg">](https://soundcloud.com/macca-88-1/macca-burn-that-beachball?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GR5dpQy5m1UBJIow-mi4rLg-t500x500.jpg">](https://soundcloud.com/djslickmusic/cry-for-you-slick-remix?in=saxurn/sets/the-crys)
 
-**Artist**: Macca™ 
+**Artist**: September 
 
-**Track**: Macca - Burn That Beachball
+**Track**: Cry For You (SLICK REMIX)
 
-Last updated at 1/27/2026, 6:36:11 AM
+Last updated at 1/27/2026, 6:38:06 AM
