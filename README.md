@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5WydkyOKynAQmIJO-wDppqg-t500x500.png">](https://soundcloud.com/radiorudina/rudeboys-radio-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTP728XwUHayOLUr-cBnkRg-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/forgot-about-tutti-frutti)
 
-**Artist**: Radio Rudina 
+**Artist**: DJ Pleasure 
 
-**Track**: RudeBoys Radio | Radio Rudina
+**Track**: Forgot About Tutti Frutti [Sample].mp3
 
-Last updated at 1/27/2026, 3:49:04 PM
+Last updated at 1/27/2026, 4:47:20 PM
