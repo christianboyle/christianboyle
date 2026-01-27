@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxuJbHhH2WsUvzhW-aWXG6g-t500x500.png">](https://soundcloud.com/dewzixmusic/all-i-need-is-bass-dewzix-remix?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzdMMsb1lD84-0-t500x500.jpg">](https://soundcloud.com/getterofficial/mikichan-3-5?in=saxurn/sets/the-crys)
 
-**Artist**: DEWZIX 
+**Artist**: Getter 
 
-**Track**: PEEKABOO - All I Need Is Bass (DEWZIX Remix)
+**Track**: MIKICHAN 3.5
 
-Last updated at 1/27/2026, 9:52:27 AM
+Last updated at 1/27/2026, 11:29:15 AM
