@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FWrF6Hzw2Yh22qm3-6nxDZQ-t500x500.png">](https://soundcloud.com/area52ldn/lisene-convergence-a52001-previews)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abz2ydH8yMHcyYeY-3YrUFQ-t500x500.png">](https://soundcloud.com/djeddym89/woncha-donk-we-me-vol-7)
 
-**Artist**: Lisene 
+**Artist**: DJ EDDY M 
 
-**Track**: Lisene - Convergence [A52001] previews
+**Track**: WONCHA DONK WE ME VOL 7
 
-Last updated at 1/27/2026, 2:23:33 PM
+Last updated at 1/27/2026, 2:27:44 PM
