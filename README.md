@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxuJbHhH2WsUvzhW-aWXG6g-t500x500.png">](https://soundcloud.com/dewzixmusic/all-i-need-is-bass-dewzix-remix?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M8WsVbz6T1UyufUO-C0iSXQ-t500x500.jpg">](https://soundcloud.com/bitbird/i-feel-alive?in=saxurn/sets/the-crys)
 
-**Artist**: DEWZIX 
+**Artist**: KLAXX, San Holo 
 
-**Track**: PEEKABOO - All I Need Is Bass (DEWZIX Remix)
+**Track**: i feel ALIVE
 
-Last updated at 1/27/2026, 7:17:05 AM
+Last updated at 1/27/2026, 7:19:05 AM
