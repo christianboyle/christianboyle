@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzdMMsb1lD84-0-t500x500.jpg">](https://soundcloud.com/getterofficial/mikichan-3-5?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix?in=saxurn/sets/the-crys)
 
-**Artist**: Getter 
+**Artist**: Initi8 
 
-**Track**: MIKICHAN 3.5
+**Track**: CRY BBY - INITI8 REMIX
 
-Last updated at 1/27/2026, 9:37:21 AM
+Last updated at 1/27/2026, 9:40:07 AM
