@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSiIzU9kLm0AzjFd-tvyZjw-t500x500.png">](https://soundcloud.com/fossilsdub/back-hurt-asap-ferg-ft-migos-zei-x-fossils-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N57ctINiPuT3-0-t500x500.jpg">](https://soundcloud.com/lhomie1990/lifeline)
 
-**Artist**: FOSSILS, ZEI 
+**Artist**: L'homie 
 
-**Track**: BACK HURT - ASAP FERG FT. MIGOS  (ZEI X FOSSILS REMIX)
+**Track**: Lifeline
 
-Last updated at 1/27/2026, 5:40:25 PM
+Last updated at 1/27/2026, 5:40:30 PM
