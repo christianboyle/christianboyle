@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JNzsMewz80bgs4Qp-RvmySQ-t500x500.jpg">](https://soundcloud.com/mc_viper_davidbaker/im-back-mc-viper-dj-red-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abz2ydH8yMHcyYeY-3YrUFQ-t500x500.png">](https://soundcloud.com/djeddym89/woncha-donk-we-me-vol-7)
 
-**Artist**: MC Viper - David Baker 
+**Artist**: DJ EDDY M 
 
-**Track**: MC Viper🎤 + DJ Red 🎧 - The Return 🔥
+**Track**: WONCHA DONK WE ME VOL 7
 
-Last updated at 1/27/2026, 2:32:54 PM
+Last updated at 1/27/2026, 2:32:59 PM
