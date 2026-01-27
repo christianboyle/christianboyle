@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M27cykprhWEPpVS5-JDfoAQ-t500x500.png">](https://soundcloud.com/izumosound/otus500)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYSIzNkT6LATI6iP-Ub7VPQ-t500x500.png">](https://soundcloud.com/lowincomesquad/saligo-midnight-drift-trax10-lis043-4)
 
-**Artist**: izumo 
+**Artist**: Low Income Squad 
 
-**Track**: otus500
+**Track**: SALIGO - MIDNIGHT DRIFT [trax10]  (LIS043)
 
-Last updated at 1/27/2026, 7:25:01 AM
+Last updated at 1/27/2026, 7:28:21 AM
