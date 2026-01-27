@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyNGWJZh4gF8tnkD-qhsTIg-t500x500.jpg">](https://soundcloud.com/comechelet/silver-lake)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jymeume2xi7nsqfV-fWIV5A-t500x500.png">](https://soundcloud.com/mikrodot/squidwards-revenge)
 
-**Artist**: Comechelet w/ c+ 
+**Artist**: MIKRODOT 
 
-**Track**: SILVER LAKE
+**Track**: Chef Boyarbeatz - Squidward's Revenge (Mikrodot Remix)
 
-Last updated at 1/27/2026, 2:22:03 PM
+Last updated at 1/27/2026, 2:22:08 PM
