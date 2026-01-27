@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zl6zhDSlhcDoyfcH-NMrmQw-t500x500.png">](https://soundcloud.com/hellrazermusic/bricksquad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uo8TYif8H8jp8cG3-c6jMFQ-t500x500.jpg">](https://soundcloud.com/41rossco/feb26mix)
 
-**Artist**: HELLRAZER 
+**Artist**: DJ.Rossco 
 
-**Track**: MAYHEM X ANTISERUM - BRICKSQUAD ANTHEM (HELLRAZER REMIX)
+**Track**: Feb26Mix
 
-Last updated at 1/27/2026, 5:02:47 PM
+Last updated at 1/27/2026, 5:05:47 PM
