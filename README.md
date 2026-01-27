@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-abz2ydH8yMHcyYeY-3YrUFQ-t500x500.png">](https://soundcloud.com/djeddym89/woncha-donk-we-me-vol-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5WydkyOKynAQmIJO-wDppqg-t500x500.png">](https://soundcloud.com/radiorudina/rudeboys-radio-radio-rudina)
 
-**Artist**: DJ EDDY M 
+**Artist**: Radio Rudina 
 
-**Track**: WONCHA DONK WE ME VOL 7
+**Track**: RudeBoys Radio | Radio Rudina
 
-Last updated at 1/27/2026, 2:32:59 PM
+Last updated at 1/27/2026, 3:49:04 PM
