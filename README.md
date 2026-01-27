@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uo8TYif8H8jp8cG3-c6jMFQ-t500x500.jpg">](https://soundcloud.com/41rossco/feb26mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cr5RiwMUGrwJMB9b-yt4tuA-t500x500.jpg">](https://soundcloud.com/claire-brown-176201002/babble)
 
-**Artist**: DJ.Rossco 
+**Artist**: Claire Brown DJ 
 
-**Track**: Feb26Mix
+**Track**: HARD DANCE & BOUNCE MIX
 
-Last updated at 1/27/2026, 5:05:47 PM
+Last updated at 1/27/2026, 5:29:17 PM
