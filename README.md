@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cx8AzRgyPcaoeWYr-5cytrQ-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/dj-moff-exclusives-more-1-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D22mUDZNEz5a1IuV-C8cyVg-t500x500.png">](https://soundcloud.com/maddy-oneal/3-pay-no-mind-maddy-oneal-x-zoska-yoko-remix-3)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: Maddy O'Neal 
 
-**Track**: Dj Moff-Exclusives & More 1.3
+**Track**: Pay No Mind - Maddy O'Neal x Zoska  (Yoko Remix)
 
-Last updated at 1/27/2026, 5:39:30 PM
+Last updated at 1/27/2026, 5:39:35 PM
