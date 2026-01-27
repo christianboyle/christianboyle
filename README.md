@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wL3eAwzHdISqRdA4-HZ1Z2A-t500x500.jpg">](https://soundcloud.com/meadohmusic/meadoh-honest-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rSiIzU9kLm0AzjFd-tvyZjw-t500x500.png">](https://soundcloud.com/fossilsdub/back-hurt-asap-ferg-ft-migos-zei-x-fossils-remix)
 
-**Artist**: Meadoh 
+**Artist**: FOSSILS, ZEI 
 
-**Track**: Future - Honest (Meadoh Flip)
+**Track**: BACK HURT - ASAP FERG FT. MIGOS  (ZEI X FOSSILS REMIX)
 
-Last updated at 1/27/2026, 5:40:20 PM
+Last updated at 1/27/2026, 5:40:25 PM
