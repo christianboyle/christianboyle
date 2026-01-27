@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jymeume2xi7nsqfV-fWIV5A-t500x500.png">](https://soundcloud.com/mikrodot/squidwards-revenge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O36POUiEBdj7FlV1-TosoAw-t500x500.png">](https://soundcloud.com/mayple_dubs/80efa890-d75c-4878-b409-0fff189ad084)
 
-**Artist**: MIKRODOT 
+**Artist**: Mayple, Stupid Fried 
 
-**Track**: Chef Boyarbeatz - Squidward's Revenge (Mikrodot Remix)
+**Track**: Natural Funk
 
-Last updated at 1/27/2026, 2:22:08 PM
+Last updated at 1/27/2026, 2:23:03 PM
