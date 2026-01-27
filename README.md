@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTP728XwUHayOLUr-cBnkRg-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/forgot-about-tutti-frutti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JNzsMewz80bgs4Qp-RvmySQ-t500x500.jpg">](https://soundcloud.com/mc_viper_davidbaker/im-back-mc-viper-dj-red-mp3)
 
-**Artist**: DJ Pleasure 
+**Artist**: MC Viper - David Baker 
 
-**Track**: Forgot About Tutti Frutti [Sample].mp3
+**Track**: MC Viper🎤 + DJ Red 🎧 - The Return 🔥
 
-Last updated at 1/27/2026, 4:47:20 PM
+Last updated at 1/27/2026, 4:50:20 PM
