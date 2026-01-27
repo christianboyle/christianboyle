@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYSIzNkT6LATI6iP-Ub7VPQ-t500x500.png">](https://soundcloud.com/lowincomesquad/toy-bolton-biebs-party-anthem-lis043-14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4WM9zvp1peOnm759-zodCqA-t500x500.png">](https://soundcloud.com/couvrexchefs/premiere-syntrovert-warm-up-tba-ineffable)
 
-**Artist**: Low Income Squad 
+**Artist**: syntrovert  
 
-**Track**: TOY BOLTON - BIEB'S PARTY ANTHEM (LIS043)
+**Track**: CxC PREMIERE: syntrovert - Warm Up (TBA) (Ineffable)
 
-Last updated at 1/27/2026, 7:41:12 AM
+Last updated at 1/27/2026, 7:44:18 AM
