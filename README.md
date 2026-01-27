@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYSIzNkT6LATI6iP-Ub7VPQ-t500x500.png">](https://soundcloud.com/lowincomesquad/beansclub-tired-and-better-lis043-3?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M8WsVbz6T1UyufUO-C0iSXQ-t500x500.jpg">](https://soundcloud.com/bitbird/i-feel-alive?in=saxurn/sets/the-crys)
 
-**Artist**: Low Income Squad 
+**Artist**: KLAXX, San Holo 
 
-**Track**: beansclub - tired and better (LIS043)
+**Track**: i feel ALIVE
 
-Last updated at 1/27/2026, 9:44:12 AM
+Last updated at 1/27/2026, 9:47:27 AM
