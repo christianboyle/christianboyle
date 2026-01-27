@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4WM9zvp1peOnm759-zodCqA-t500x500.png">](https://soundcloud.com/couvrexchefs/premiere-syntrovert-warm-up-tba-ineffable)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-34ZOhwkh3LbF4na0-rwnuOw-t500x500.jpg">](https://soundcloud.com/enochian_rec/slime-coca-x-yana-etc-nexum)
 
-**Artist**: syntrovert  
+**Artist**: ENOCHIAN 
 
-**Track**: CxC PREMIERE: syntrovert - Warm Up (TBA) (Ineffable)
+**Track**: SLIME COCA / YANA ETC - NEXUM
 
-Last updated at 1/27/2026, 7:44:18 AM
+Last updated at 1/27/2026, 7:47:28 AM
