@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYSIzNkT6LATI6iP-Ub7VPQ-t500x500.png">](https://soundcloud.com/lowincomesquad/beansclub-tired-and-better-lis043-3?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M27cykprhWEPpVS5-JDfoAQ-t500x500.png">](https://soundcloud.com/izumosound/otus500)
 
-**Artist**: Low Income Squad 
+**Artist**: izumo 
 
-**Track**: beansclub - tired and better (LIS043)
+**Track**: otus500
 
-Last updated at 1/27/2026, 9:09:35 AM
+Last updated at 1/27/2026, 9:12:50 AM
