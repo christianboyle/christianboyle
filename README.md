@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uyJZ6XJiGyH0BPhF-3EAbvg-t500x500.jpg">](https://soundcloud.com/user-353136586-537906317/trancendance-promo-mix-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KyNGWJZh4gF8tnkD-qhsTIg-t500x500.jpg">](https://soundcloud.com/comechelet/silver-lake)
 
-**Artist**: mynax86 
+**Artist**: Comechelet w/ c+ 
 
-**Track**: TrancenDance Promo Mix.mp3
+**Track**: SILVER LAKE
 
-Last updated at 1/27/2026, 2:21:58 PM
+Last updated at 1/27/2026, 2:22:03 PM
