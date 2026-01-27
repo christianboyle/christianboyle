@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cr5RiwMUGrwJMB9b-yt4tuA-t500x500.jpg">](https://soundcloud.com/claire-brown-176201002/babble)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-stTi9rTnG9lk1Eyu-Wfx6KA-t500x500.jpg">](https://soundcloud.com/mc-mitsey/travisty-bounce-solo-wav)
 
-**Artist**: Claire Brown DJ 
+**Artist**: Mitsey 
 
-**Track**: HARD DANCE & BOUNCE MIX
+**Track**: Travisty 1st  Bounce solo set
 
-Last updated at 1/27/2026, 5:29:17 PM
+Last updated at 1/27/2026, 5:29:22 PM
