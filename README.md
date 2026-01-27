@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592931663-a1bi30-t500x500.jpg">](https://soundcloud.com/macca-88-1/macca-burn-that-beachball?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cYSIzNkT6LATI6iP-Ub7VPQ-t500x500.png">](https://soundcloud.com/lowincomesquad/beansclub-tired-and-better-lis043-3?in=saxurn/sets/the-crys)
 
-**Artist**: Macca™ 
+**Artist**: Low Income Squad 
 
-**Track**: Macca - Burn That Beachball
+**Track**: beansclub - tired and better (LIS043)
 
-Last updated at 1/27/2026, 9:42:33 AM
+Last updated at 1/27/2026, 9:44:12 AM
