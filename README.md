@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-34ZOhwkh3LbF4na0-rwnuOw-t500x500.jpg">](https://soundcloud.com/enochian_rec/slime-coca-x-yana-etc-nexum)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix?in=saxurn/sets/the-crys)
 
-**Artist**: ENOCHIAN 
+**Artist**: Initi8 
 
-**Track**: SLIME COCA / YANA ETC - NEXUM
+**Track**: CRY BBY - INITI8 REMIX
 
-Last updated at 1/27/2026, 7:47:28 AM
+Last updated at 1/27/2026, 8:22:25 AM
