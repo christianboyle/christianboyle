@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000592931663-a1bi30-t500x500.jpg">](https://soundcloud.com/macca-88-1/macca-burn-that-beachball?in=saxurn/sets/the-crys)
 
-**Artist**: Initi8 
+**Artist**: Macca™ 
 
-**Track**: CRY BBY - INITI8 REMIX
+**Track**: Macca - Burn That Beachball
 
-Last updated at 1/27/2026, 9:40:07 AM
+Last updated at 1/27/2026, 9:42:33 AM
