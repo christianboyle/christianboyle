@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M27cykprhWEPpVS5-JDfoAQ-t500x500.png">](https://soundcloud.com/izumosound/otus500)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QzdMMsb1lD84-0-t500x500.jpg">](https://soundcloud.com/getterofficial/mikichan-3-5?in=saxurn/sets/the-crys)
 
-**Artist**: izumo 
+**Artist**: Getter 
 
-**Track**: otus500
+**Track**: MIKICHAN 3.5
 
-Last updated at 1/27/2026, 6:48:28 AM
+Last updated at 1/27/2026, 6:49:52 AM
