@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FdIny3IUVfgtmD2u-Wgl5Aw-t500x500.png">](https://soundcloud.com/donflockmusic/lyny-breaker-donflock-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HtSKUgDeofBiozwf-azW93g-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-open-your-eyes)
 
-**Artist**: Donflock 
+**Artist**: The Bounce Brothers 
 
-**Track**: LYNY - Breaker (Donflock Flip)
+**Track**: The Bounce Brothers - Open Your Eyes
 
-Last updated at 1/27/2026, 6:44:05 PM
+Last updated at 1/27/2026, 6:45:36 PM
