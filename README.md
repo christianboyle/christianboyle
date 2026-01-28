@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xnJOtqxAi1CystHN-1WYPCQ-t500x500.jpg">](https://soundcloud.com/afik-2/mind-ya-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix)
 
-**Artist**: KIRK 
+**Artist**: Initi8 
 
-**Track**: Mind Ya Business
+**Track**: CRY BBY - INITI8 REMIX
 
-Last updated at 1/27/2026, 6:58:12 PM
+Last updated at 1/27/2026, 7:03:08 PM
