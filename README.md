@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7b6yTtKUt2lyvHMB-rAzFQg-t500x500.png">](https://soundcloud.com/onezei/jigsaw-fossils-x-zei)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SuAZHVfzXLVMa2o5-JkmyLQ-t500x500.png">](https://soundcloud.com/globztermusic/globzter-under-pressure)
 
-**Artist**: Fossils, Zei 
+**Artist**: Globzter 
 
-**Track**: JIGSAW
+**Track**: GLOBZTER - UNDER PRESSURE
 
-Last updated at 1/27/2026, 6:43:56 PM
+Last updated at 1/27/2026, 6:44:01 PM
