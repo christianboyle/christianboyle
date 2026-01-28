@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEBLzjzXi3xbrywT-zH1zAA-t500x500.jpg">](https://soundcloud.com/41rossco/donnas40th)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AUKzrjfuDpXGYlay-mXoAZQ-t500x500.png">](https://soundcloud.com/tom-lysar/nuru-yangu)
 
-**Artist**: DJ.Rossco 
+**Artist**: Tom Lysar 
 
-**Track**: Donnas40th
+**Track**: Nuru Yangu  🕊️🕊️  ✨ My Light ✨
 
-Last updated at 1/28/2026, 6:29:41 AM
+Last updated at 1/28/2026, 6:37:16 AM
