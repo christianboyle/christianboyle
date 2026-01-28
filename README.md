@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTqHmpIMdREaGbv2-wmZdaQ-t500x500.png">](https://soundcloud.com/tom-lysar/inside-the-sound)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pEBLzjzXi3xbrywT-zH1zAA-t500x500.jpg">](https://soundcloud.com/41rossco/donnas40th)
 
-**Artist**: Tom Lysar 
+**Artist**: DJ.Rossco 
 
-**Track**: Inside the Sound
+**Track**: Donnas40th
 
-Last updated at 1/28/2026, 6:28:36 AM
+Last updated at 1/28/2026, 6:29:41 AM
