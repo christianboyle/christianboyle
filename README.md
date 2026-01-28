@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HmCMA81GoMorGtH8-OrFO2A-t500x500.jpg">](https://soundcloud.com/fourfourmagazine/local-selection-292-aoife-nic-canna)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QFYUabKN31FY9Dgq-MtEUTQ-t500x500.jpg">](https://soundcloud.com/redx-364172303/redx-mashup-pack-2026-filterd)
 
-**Artist**: Aoife Nic Canna 
+**Artist**: REDX 
 
-**Track**: Local Selection 292: Aoife Nic Canna
+**Track**: REDX - MASHUP PACK 2026 (FILTERD)
 
-Last updated at 1/28/2026, 10:52:47 AM
+Last updated at 1/28/2026, 10:52:52 AM
