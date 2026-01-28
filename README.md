@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HtSKUgDeofBiozwf-azW93g-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-open-your-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WaUc7Ce79dMNHjeo-Jzpb8w-t500x500.jpg">](https://soundcloud.com/buggytunez/buggy-devise)
 
-**Artist**: The Bounce Brothers 
+**Artist**: BUGGY 
 
-**Track**: The Bounce Brothers - Open Your Eyes
+**Track**: BUGGY - Devise [Free DL]
 
-Last updated at 1/27/2026, 6:45:36 PM
+Last updated at 1/27/2026, 6:45:51 PM
