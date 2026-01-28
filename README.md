@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oFqvcSldyxqgzRnL-NROy4g-t500x500.png">](https://soundcloud.com/whyperdubz/excision-sullivan-king-encore-whyper-bleaubeard-flip-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D22mUDZNEz5a1IuV-C8cyVg-t500x500.png">](https://soundcloud.com/maddy-oneal/3-pay-no-mind-maddy-oneal-x-zoska-yoko-remix-3)
 
-**Artist**: WHYPER & Bleaubeard 
+**Artist**: Maddy O'Neal 
 
-**Track**: Excision & Sullivan King - Encore (WHYPER & Bleaubeard Flip) [FREE DOWNLOAD]
+**Track**: Pay No Mind - Maddy O'Neal x Zoska  (Yoko Remix)
 
-Last updated at 1/28/2026, 10:49:12 AM
+Last updated at 1/28/2026, 10:49:17 AM
