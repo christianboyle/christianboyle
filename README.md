@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztRdIgzlBznz7y3V-nYLBgA-t500x500.png">](https://soundcloud.com/technowereld/premiere-petru-kss-trappist-grit-mix-kss-lp01c-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQEmD9Hspx7L6vxp-W96uWQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-arnaud-le-texier-preludium-srva03)
 
-**Artist**: Techno Wereld, PETRU KSS 
+**Artist**: HATE, Arnaud Le Texier 
 
-**Track**: Premiere: PETRU KSS - Trappist (Grit Mix) [KSS-LP01c-D]
+**Track**: Premiere: Arnaud Le Texier — Preludium [SRVA03]
 
-Last updated at 1/28/2026, 6:38:16 AM
+Last updated at 1/28/2026, 6:40:02 AM
