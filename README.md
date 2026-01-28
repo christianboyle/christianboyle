@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4S0nnzZS11O1CAXk-ucqrlA-t500x500.png">](https://soundcloud.com/hide-the-junk/hu4d?in=itsxclub/sets/hu4d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SjOQacZa33VboQzG-zaynpA-t500x500.png">](https://soundcloud.com/spacelabrecords/a2-biocym-fates-2?in=spacelabrecords/sets/biocym-fates-ep-spclab018)
 
-**Artist**: X CLUB., Matthew Dear 
+**Artist**: space lab 
 
-**Track**: HU4D
+**Track**: A2 Biocym - Fates
 
-Last updated at 1/28/2026, 6:42:06 AM
+Last updated at 1/28/2026, 8:02:37 AM
