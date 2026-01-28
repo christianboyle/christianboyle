@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vbrv5bKzeGil1xOU-73gi9g-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/bounce-jackerz-1998)
 
-**Artist**: Initi8 
+**Artist**: Bounce Jackerz 
 
-**Track**: CRY BBY - INITI8 REMIX
+**Track**: 1998
 
-Last updated at 1/27/2026, 7:03:08 PM
+Last updated at 1/27/2026, 7:05:28 PM
