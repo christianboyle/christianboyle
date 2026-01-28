@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zwXyG37GdYg9Ifyy-fAjKFQ-t500x500.png">](https://soundcloud.com/skeemuh/aap-rocky-fine-as-hell-skeemuh-flip?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ytt9MDD9LqRNIvU-Zoqp0Q-t500x500.png">](https://soundcloud.com/technowereld/premiere-wbk-shut-up-and-dance?in=saxurn/sets/1a1/)
 
-**Artist**: SKEEMUH 
+**Artist**: Techno Wereld, WBK 
 
-**Track**: A$AP Rocky- FINE AS HELL (SKEEMUH FLIP)
+**Track**: Premiere: WBK - Shut Up And Dance
 
-Last updated at 1/27/2026, 7:18:04 PM
+Last updated at 1/27/2026, 8:38:27 PM
