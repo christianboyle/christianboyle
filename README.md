@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL8hy3swm33JMbOL-Mc2UyQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-bumble-bee-extended-mix?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTqHmpIMdREaGbv2-wmZdaQ-t500x500.png">](https://soundcloud.com/tom-lysar/inside-the-sound)
 
-**Artist**: Tatsunoshin 
+**Artist**: Tom Lysar 
 
-**Track**: Tatsunoshin - Bumble Bee (Extended Mix)
+**Track**: Inside the Sound
 
-Last updated at 1/28/2026, 6:27:36 AM
+Last updated at 1/28/2026, 6:28:36 AM
