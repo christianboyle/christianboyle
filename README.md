@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wL3eAwzHdISqRdA4-HZ1Z2A-t500x500.jpg">](https://soundcloud.com/meadohmusic/meadoh-honest-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zl6zhDSlhcDoyfcH-NMrmQw-t500x500.png">](https://soundcloud.com/hellrazermusic/bricksquad)
 
-**Artist**: Meadoh 
+**Artist**: HELLRAZER 
 
-**Track**: Future - Honest (Meadoh Flip)
+**Track**: MAYHEM X ANTISERUM - BRICKSQUAD ANTHEM (HELLRAZER REMIX)
 
-Last updated at 1/27/2026, 6:47:46 PM
+Last updated at 1/27/2026, 6:50:27 PM
