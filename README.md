@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxnU0Qbp3RAhWQ3j-ynZfIQ-t500x500.png">](https://soundcloud.com/junkiekidmusic/9e2e4745-b1b4-4585-a25d-268f9d5de30b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-13LmTBIPHAvu4dDS-LLxFAQ-t500x500.png">](https://soundcloud.com/thelogcabin/volume-unit-dweller-18)
 
-**Artist**: JUNKIE KID 
+**Artist**: The Log Cabin 
 
-**Track**: will.i.am, Britney Spears - Scream & Shout (JUNKIE KID EDIT)
+**Track**: Volume Unit - Dweller
 
-Last updated at 1/28/2026, 10:51:07 AM
+Last updated at 1/28/2026, 10:51:47 AM
