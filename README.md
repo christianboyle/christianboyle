@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0zise005dMd6n8v-Qdcbyw-t500x500.jpg">](https://soundcloud.com/axelblueboy/better-off-alone-ray-isaac-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xnJOtqxAi1CystHN-1WYPCQ-t500x500.jpg">](https://soundcloud.com/afik-2/mind-ya-business)
 
-**Artist**: Kim Petras & Nicki Minaj VS Alice Deejay 
+**Artist**: KIRK 
 
-**Track**: Better Off Alone (Axelblueboy Remix) - Kim Petras & Nicki Minaj
+**Track**: Mind Ya Business
 
-Last updated at 1/27/2026, 6:54:07 PM
+Last updated at 1/27/2026, 6:58:12 PM
