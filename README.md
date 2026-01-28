@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eJYlOzMB9xeTDKdJ-tO23Qg-t500x500.png">](https://soundcloud.com/synthdr_flowsen/mashup-monday-disco)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oBHiRaYXpYXC6GbD-s1dyKg-t500x500.png">](https://soundcloud.com/lushreds/dont-stop)
 
-**Artist**: Synth Dr. F 
+**Artist**: Lushreds 
 
-**Track**: Mashup Monday - Disco
+**Track**: Don't Stop
 
-Last updated at 1/27/2026, 6:42:41 PM
+Last updated at 1/27/2026, 6:42:46 PM
