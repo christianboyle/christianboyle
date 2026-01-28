@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7b6yTtKUt2lyvHMB-rAzFQg-t500x500.png">](https://soundcloud.com/onezei/jigsaw-fossils-x-zei?in=onezei/sets/villains-zei-fossils-instantparty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yydzFnEL56P7S08f-WzwjTw-t500x500.png">](https://soundcloud.com/onezei/as-above-so-below-2025-zei-bassix-producer-showcase)
 
-**Artist**: Fossils, Zei 
+**Artist**: Zei 
 
-**Track**: JIGSAW
+**Track**: As Above So Below 2025 - Zei - Bassix Producer Showcase
 
-Last updated at 1/27/2026, 6:46:26 PM
+Last updated at 1/27/2026, 6:46:31 PM
