@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-13LmTBIPHAvu4dDS-LLxFAQ-t500x500.png">](https://soundcloud.com/thelogcabin/volume-unit-dweller-18?in=saxurn/sets/phonon/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ytt9MDD9LqRNIvU-Zoqp0Q-t500x500.png">](https://soundcloud.com/technowereld/premiere-wbk-shut-up-and-dance?in=saxurn/sets/phonon/)
 
-**Artist**: The Log Cabin 
+**Artist**: Techno Wereld, WBK 
 
-**Track**: Volume Unit - Dweller
+**Track**: Premiere: WBK - Shut Up And Dance
 
-Last updated at 1/28/2026, 5:57:32 PM
+Last updated at 1/28/2026, 7:03:07 PM
