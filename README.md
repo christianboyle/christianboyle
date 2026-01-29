@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxlffauyryoe2egy-GlIR1g-t500x500.jpg">](https://soundcloud.com/user-945978836-795342668/david-guetta-memories-feat-kid-cudi-rainedrop-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxnU0Qbp3RAhWQ3j-ynZfIQ-t500x500.png">](https://soundcloud.com/junkiekidmusic/9e2e4745-b1b4-4585-a25d-268f9d5de30b?in=saxurn/sets/phonon)
 
-**Artist**: RAINEDROP 
+**Artist**: JUNKIE KID 
 
-**Track**: David Guetta - Memories (feat. Kid Cudi) (RAINEDROP HARD TECHNO EDIT) [FREE DL]
+**Track**: will.i.am, Britney Spears - Scream & Shout (JUNKIE KID EDIT)
 
-Last updated at 1/29/2026, 2:14:19 PM
+Last updated at 1/29/2026, 2:15:19 PM
