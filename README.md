@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qxlffauyryoe2egy-GlIR1g-t500x500.jpg">](https://soundcloud.com/user-945978836-795342668/david-guetta-memories-feat-kid-cudi-rainedrop-hard-techno-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d3q7me2OUDSsWXtA-x4C4OQ-t500x500.png">](https://soundcloud.com/salvyanmusic/voodoo-salvyan-remix)
 
-**Artist**: RAINEDROP 
+**Artist**: Salvyan 
 
-**Track**: David Guetta - Memories (feat. Kid Cudi) (RAINEDROP HARD TECHNO EDIT) [FREE DL]
+**Track**: Martin Garrix, R3HAB & Skytech - Voodoo (Salvyan Remix) [FREE DOWNLOAD]
 
-Last updated at 1/29/2026, 2:03:58 PM
+Last updated at 1/29/2026, 2:08:08 PM
