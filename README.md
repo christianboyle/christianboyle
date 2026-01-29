@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zl6zhDSlhcDoyfcH-NMrmQw-t500x500.png">](https://soundcloud.com/hellrazermusic/bricksquad?in=saxurn/sets/phonon/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-389iPzVFXFs2EUIY-gGtkDA-t500x500.png">](https://soundcloud.com/dnzrecords/fadeaway-syren-baby-goodbye?in=saxurn/sets/phonon/)
 
-**Artist**: HELLRAZER 
+**Artist**: Fadeaway & Syren 
 
-**Track**: MAYHEM X ANTISERUM - BRICKSQUAD ANTHEM (HELLRAZER REMIX)
+**Track**: Fadeaway & Syren - Baby Goodbye
 
-Last updated at 1/28/2026, 7:07:33 PM
+Last updated at 1/28/2026, 7:10:32 PM
