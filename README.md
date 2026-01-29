@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ytt9MDD9LqRNIvU-Zoqp0Q-t500x500.png">](https://soundcloud.com/technowereld/premiere-wbk-shut-up-and-dance?in=saxurn/sets/phonon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zl6zhDSlhcDoyfcH-NMrmQw-t500x500.png">](https://soundcloud.com/hellrazermusic/bricksquad?in=saxurn/sets/phonon)
 
-**Artist**: Techno Wereld, WBK 
+**Artist**: HELLRAZER 
 
-**Track**: Premiere: WBK - Shut Up And Dance
+**Track**: MAYHEM X ANTISERUM - BRICKSQUAD ANTHEM (HELLRAZER REMIX)
 
-Last updated at 1/29/2026, 1:31:15 PM
+Last updated at 1/29/2026, 1:35:41 PM
