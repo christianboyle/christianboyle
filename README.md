@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hNBGHpZy56qbjnXN-QyMZ6A-t500x500.png">](https://soundcloud.com/otrapic/space_pathetic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyQzpz61Z8zNhWeb-bDA5tQ-t500x500.jpg">](https://soundcloud.com/maiko-bruederlin/chip-monk)
 
-**Artist**: otrapic 
+**Artist**: Μ€ŘҜ¥ ŴΔŦ€ŘŽ 
 
-**Track**: space // pathetic
+**Track**: Chip Mønk
 
-Last updated at 1/29/2026, 9:08:02 PM
+Last updated at 1/29/2026, 9:08:07 PM
