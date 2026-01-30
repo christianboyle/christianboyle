@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twCSgQ3fiY9yzxV6-4OD38g-t500x500.png">](https://soundcloud.com/glenwestt/b86af5b7-292a-43b5-847a-9372320b121a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPvUAh6WeHjqUEcy-8nLRXQ-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/no-good-edit)
 
-**Artist**: glenwest 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Glenwest - Beat Em Down
+**Track**: The Prodigy - No Good (Marlon Hoffstadt's Rave Revival)
 
-Last updated at 1/30/2026, 8:50:02 AM
+Last updated at 1/30/2026, 8:53:08 AM
