@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nz7o277tNvtKg7wc-HnRvoA-t500x500.jpg">](https://soundcloud.com/yinons/playing-pretend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Q1TO9WWs8X31WMs-dNFcfg-t500x500.png">](https://soundcloud.com/getterofficial/ego-torture-feat-south-strip)
 
-**Artist**: yinon 
+**Artist**: GETTER 
 
-**Track**: playing pretend
+**Track**: EGO TORTURE feat. South Strip
 
-Last updated at 1/30/2026, 12:26:47 PM
+Last updated at 1/30/2026, 2:00:49 PM
