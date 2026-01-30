@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2vPDErDmNQ7b-0-t500x500.jpg">](https://soundcloud.com/bluntsnblondes/bluntsplitta)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjHQdi19kdMNSVRC-w3y7xQ-t500x500.jpg">](https://soundcloud.com/user-259961641/damaged-jo-e-dex)
 
-**Artist**: Blunts & Blondes 
+**Artist**: JO E DEX 
 
-**Track**: Bluntsplitta
+**Track**: Damaged - Jo E Dex
 
-Last updated at 1/30/2026, 7:16:39 AM
+Last updated at 1/30/2026, 8:39:01 AM
