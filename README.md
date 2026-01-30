@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1os86tjpqeXiWX4q-BBYcSA-t500x500.jpg">](https://soundcloud.com/shloppy_jo/crankdat-movement-shloppy-jo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pp7FKsHm5ikpU5Yu-R5ER5Q-t500x500.jpg">](https://soundcloud.com/stemacmusic/chlo)
 
-**Artist**: Shloppy Jo 
+**Artist**: Ste Mac 
 
-**Track**: Crankdat - Movement (Shloppy Jo Flip)
+**Track**: Its Always Been You (Original Mix )
 
-Last updated at 1/29/2026, 7:32:34 PM
+Last updated at 1/29/2026, 7:33:33 PM
