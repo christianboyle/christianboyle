@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1os86tjpqeXiWX4q-BBYcSA-t500x500.jpg">](https://soundcloud.com/shloppy_jo/crankdat-movement-shloppy-jo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyW7OrqEJD3Ujr4L-oi9i3w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-love-me-again-rule-edit)
 
-**Artist**: Shloppy Jo 
+**Artist**: CARV 
 
-**Track**: Crankdat - Movement (Shloppy Jo Flip)
+**Track**: Love Me Again (Rule Edit)
 
-Last updated at 1/29/2026, 8:09:12 PM
+Last updated at 1/29/2026, 8:09:16 PM
