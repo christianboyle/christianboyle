@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pp7FKsHm5ikpU5Yu-R5ER5Q-t500x500.jpg">](https://soundcloud.com/stemacmusic/chlo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tpgEfUie80caksIH-mkOzew-t500x500.png">](https://soundcloud.com/grandalliancemusic/watch-me-techtonic-remix-master-24bit-41k-2)
 
-**Artist**: Ste Mac 
+**Artist**: TechTonic 
 
-**Track**: Its Always Been You (Original Mix )
+**Track**: Watch Me (TechTonic Remix)
 
-Last updated at 1/29/2026, 7:33:33 PM
+Last updated at 1/29/2026, 7:34:45 PM
