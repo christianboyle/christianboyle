@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0DBfZ82UJay-0-t500x500.jpg">](https://soundcloud.com/bluntsnblondes/heartless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyQzpz61Z8zNhWeb-bDA5tQ-t500x500.jpg">](https://soundcloud.com/maiko-bruederlin/chip-monk)
 
-**Artist**: Blunts & Blondes 
+**Artist**: Μ€ŘҜ¥ ŴΔŦ€ŘŽ 
 
-**Track**: Heartless
+**Track**: Chip Mønk
 
-Last updated at 1/29/2026, 8:08:22 PM
+Last updated at 1/29/2026, 8:08:27 PM
