@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u1sR70Pyoe3bX2tx-KclI0g-t500x500.jpg">](https://soundcloud.com/carv-music/holy-priest-manji-no-balance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfVeLt5PD7b0w2RT-kj5z0g-t500x500.png">](https://soundcloud.com/carv-music/carv-boiler-floor-gotec-club-set)
 
 **Artist**: CARV 
 
-**Track**: Holy Priest & Manji - No Balance (CARV Remix)
+**Track**: CARV | Boiler Floor - Gotec Club | Full Set
 
-Last updated at 1/29/2026, 7:36:49 PM
+Last updated at 1/29/2026, 7:36:54 PM
