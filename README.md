@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfVeLt5PD7b0w2RT-kj5z0g-t500x500.png">](https://soundcloud.com/carv-music/carv-boiler-floor-gotec-club-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I5rtK6Sud78A-0-t500x500.png">](https://soundcloud.com/carv-music/hard-kick-dealer)
 
 **Artist**: CARV 
 
-**Track**: CARV | Boiler Floor - Gotec Club | Full Set
+**Track**: Hard Kick Dealer
 
-Last updated at 1/29/2026, 7:36:54 PM
+Last updated at 1/29/2026, 7:37:04 PM
