@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cEvyPnta9XhaDX1f-yTzpWw-t500x500.png">](https://soundcloud.com/dnzrecords/angel-garcia-dj-deep-inside-of-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2vPDErDmNQ7b-0-t500x500.jpg">](https://soundcloud.com/bluntsnblondes/bluntsplitta)
 
-**Artist**: Angel Garcia DJ 
+**Artist**: Blunts & Blondes 
 
-**Track**: Angel Garcia DJ - Deep Inside Of Me
+**Track**: Bluntsplitta
 
-Last updated at 1/30/2026, 7:15:34 AM
+Last updated at 1/30/2026, 7:16:39 AM
