@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gLx3bI0Z8KZD-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/i-cant-come-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHez0uqRXlNyFFaT-wsa8sA-t500x500.jpg">](https://soundcloud.com/djsammybbounce/sammy-b-donk-n-bits-1)
 
-**Artist**: Ben Stevens, Juicy Steve 
+**Artist**: Sammy B 
 
-**Track**: I Can't Come Down
+**Track**: Sammy B - Donks N Bits
 
-Last updated at 1/30/2026, 10:49:55 AM
+Last updated at 1/30/2026, 12:10:31 PM
