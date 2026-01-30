@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjHQdi19kdMNSVRC-w3y7xQ-t500x500.jpg">](https://soundcloud.com/user-259961641/damaged-jo-e-dex)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RIciASn2lzWF-0-t500x500.jpg">](https://soundcloud.com/kstko/shadow-empyrean)
 
-**Artist**: JO E DEX 
+**Artist**: Bite This!, Kstko, Levianth 
 
-**Track**: Damaged - Jo E Dex
+**Track**: Shadow Empyrean
 
-Last updated at 1/30/2026, 8:39:01 AM
+Last updated at 1/30/2026, 8:42:32 AM
