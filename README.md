@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyKhNV2yvysx4Xl3-IZvmrA-t500x500.png">](https://soundcloud.com/sachsentrance/the-chemical-brothers-galvanize-listorio-edit-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-twCSgQ3fiY9yzxV6-4OD38g-t500x500.png">](https://soundcloud.com/glenwestt/b86af5b7-292a-43b5-847a-9372320b121a)
 
-**Artist**: LISTORIO 
+**Artist**: glenwest 
 
-**Track**: The Chemical Brothers - Galvanize (LISTORIO Edit) [ST021]
+**Track**: Glenwest - Beat Em Down
 
-Last updated at 1/30/2026, 8:45:27 AM
+Last updated at 1/30/2026, 8:50:02 AM
