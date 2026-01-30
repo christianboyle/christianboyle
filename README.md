@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AyQzpz61Z8zNhWeb-bDA5tQ-t500x500.jpg">](https://soundcloud.com/maiko-bruederlin/chip-monk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kyvpvpl20bYIXI0o-gevy3Q-t500x500.png">](https://soundcloud.com/ottottottotto/bangarangottoremix)
 
-**Artist**: Μ€ŘҜ¥ ŴΔŦ€ŘŽ 
+**Artist**: Skrillex 
 
-**Track**: Chip Mønk
+**Track**: Bangarang (OTTO Remix) [FREE DL]
 
-Last updated at 1/29/2026, 9:08:07 PM
+Last updated at 1/29/2026, 9:08:12 PM
