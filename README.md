@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wmPolGzRUZYprjP3-XKK6lQ-t500x500.jpg">](https://soundcloud.com/montarecs/ailow-lizdek-hi-fashion-feat-matt-ox-dj-smokey?in=lizdek/sets/ailow-lizdek-hi-fashion-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nz7o277tNvtKg7wc-HnRvoA-t500x500.jpg">](https://soundcloud.com/yinons/playing-pretend)
 
-**Artist**: Ailow, Lizdek, Matt OX, Dj Smokey 
+**Artist**: yinon 
 
-**Track**: Ailow & Lizdek - HI-FASHION (feat. Matt OX & Dj Smokey)
+**Track**: playing pretend
 
-Last updated at 1/30/2026, 12:23:47 PM
+Last updated at 1/30/2026, 12:26:47 PM
