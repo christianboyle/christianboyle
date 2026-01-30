@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7BoySW9FsJ00ibU-HEzjuw-t500x500.jpg">](https://soundcloud.com/ari-0n/dc-breaks-prolix-purge-ari-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aSyeKJ5oKLJG9Gic-0OmGlg-t500x500.png">](https://soundcloud.com/chmuramusic/a-show-on-mars-2)
 
-**Artist**: ARI-ON 
+**Artist**: chmura, Duffrey 
 
-**Track**: DC Breaks & Prolix - Purge (ARI-ON RMX) FREE DWNLD
+**Track**: A Show on Mars
 
-Last updated at 1/30/2026, 4:44:04 PM
+Last updated at 1/30/2026, 4:47:09 PM
