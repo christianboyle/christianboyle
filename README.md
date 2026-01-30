@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I5rtK6Sud78A-0-t500x500.png">](https://soundcloud.com/carv-music/hard-kick-dealer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cyW7OrqEJD3Ujr4L-oi9i3w-t500x500.jpg">](https://soundcloud.com/carv-music/carv-love-me-again-rule-edit)
 
 **Artist**: CARV 
 
-**Track**: Hard Kick Dealer
+**Track**: Love Me Again (Rule Edit)
 
-Last updated at 1/29/2026, 7:37:04 PM
+Last updated at 1/29/2026, 7:37:14 PM
