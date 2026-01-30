@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1os86tjpqeXiWX4q-BBYcSA-t500x500.jpg">](https://soundcloud.com/shloppy_jo/crankdat-movement-shloppy-jo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bW76aR3yOZVoNso-9Xh4qQ-t500x500.jpg">](https://soundcloud.com/thnderzravetokremixes/voices-in-my-f1-klofama-x)
 
-**Artist**: Shloppy Jo 
+**Artist**: THNDERZ (RAVETOK REMIXES) 
 
-**Track**: Crankdat - Movement (Shloppy Jo Flip)
+**Track**: VOICES IN MY F1 (KLOFAMA X JOVYNN X JRD) (THNDERZ MASHUP)
 
-Last updated at 1/29/2026, 8:09:30 PM
+Last updated at 1/29/2026, 8:13:07 PM
