@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOQVCHSTFDbezsJt-A1kXdA-t500x500.jpg">](https://soundcloud.com/user-65691278/m83-outro-carv-edit-leak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0DBfZ82UJay-0-t500x500.jpg">](https://soundcloud.com/bluntsnblondes/heartless)
 
-**Artist**: Ocas7 
+**Artist**: Blunts & Blondes 
 
-**Track**: M83 Outro - (CARV EDIT) *LEAK (skip to 0:30)
+**Track**: Heartless
 
-Last updated at 1/29/2026, 8:08:04 PM
+Last updated at 1/29/2026, 8:08:22 PM
