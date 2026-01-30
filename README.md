@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9yhVim0gyhxNQpu-82r7jA-t500x500.png">](https://soundcloud.com/elsecretmenu/john-summit-lights-go-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rO5uYPhCmLkzqexf-1zT3aQ-t500x500.png">](https://soundcloud.com/initi8uk/bass-n-bangers-volume-2)
 
-**Artist**: John Summit,Secret Menu 
+**Artist**: Initi8 
 
-**Track**: John Summit - Lights Go Out (Secret Menu Remix)
+**Track**: BASS N BANGERS VOLUME 2
 
-Last updated at 1/29/2026, 7:31:08 PM
+Last updated at 1/29/2026, 7:32:13 PM
