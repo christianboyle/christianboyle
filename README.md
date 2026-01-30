@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bW76aR3yOZVoNso-9Xh4qQ-t500x500.jpg">](https://soundcloud.com/thnderzravetokremixes/voices-in-my-f1-klofama-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yEJN8CVpn5VrJ2L-Pb1rxQ-t500x500.jpg">](https://soundcloud.com/drian_voxo/junkie-kid-presents-the)
 
-**Artist**: THNDERZ (RAVETOK REMIXES) 
+**Artist**: SleepyJoe 
 
-**Track**: VOICES IN MY F1 (KLOFAMA X JOVYNN X JRD) (THNDERZ MASHUP)
+**Track**: Junkie Kid presents: The Paradox Live @ Wasteland 2025
 
-Last updated at 1/29/2026, 8:13:07 PM
+Last updated at 1/29/2026, 8:15:57 PM
