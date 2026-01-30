@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6lgEYbWInhQzkZX-S0bd8A-t500x500.jpg">](https://soundcloud.com/hellgnar/lemme-get-low-poly-noise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJh8huAw1orkaYdv-vcG85g-t500x500.png">](https://soundcloud.com/onezei/turn-it)
 
-**Artist**: HELLGNAR 
+**Artist**: Zei 
 
-**Track**: LOW POLY-THE NOISE (HELLGNAR FLIP)
+**Track**: turn it
 
-Last updated at 1/30/2026, 4:49:15 PM
+Last updated at 1/30/2026, 4:57:11 PM
