@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9yEJN8CVpn5VrJ2L-Pb1rxQ-t500x500.jpg">](https://soundcloud.com/drian_voxo/junkie-kid-presents-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yt6QFcLi7pm9F1VC-UZ2e5w-t500x500.jpg">](https://soundcloud.com/earth-hz/velcroshirt-x-devowr-fahhh)
 
-**Artist**: SleepyJoe 
+**Artist**: earth Hz 
 
-**Track**: Junkie Kid presents: The Paradox Live @ Wasteland 2025
+**Track**: VelcroShirt X DEVOWR. - FAHHH!
 
-Last updated at 1/29/2026, 8:15:57 PM
+Last updated at 1/29/2026, 9:07:52 PM
