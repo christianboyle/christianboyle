@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rO5uYPhCmLkzqexf-1zT3aQ-t500x500.png">](https://soundcloud.com/initi8uk/bass-n-bangers-volume-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1os86tjpqeXiWX4q-BBYcSA-t500x500.jpg">](https://soundcloud.com/shloppy_jo/crankdat-movement-shloppy-jo-flip)
 
-**Artist**: Initi8 
+**Artist**: Shloppy Jo 
 
-**Track**: BASS N BANGERS VOLUME 2
+**Track**: Crankdat - Movement (Shloppy Jo Flip)
 
-Last updated at 1/29/2026, 7:32:13 PM
+Last updated at 1/29/2026, 7:32:34 PM
