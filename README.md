@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3FjiWyk9VFOgwHhr-6BuGPQ-t500x500.jpg">](https://soundcloud.com/paulmeier-wav/aj-tracey-ladbroke-grove-paul-meier-dj-tallboy-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZJySiCVlW8JuOwkM-tNXBsA-t500x500.png">](https://soundcloud.com/hardwiredmusic/yall-ready-for-pump-up-the-jam-free-dl-hardwired-remix)
 
-**Artist**: PAUL MEIER, DJ TALLBOY 
+**Artist**: HardWired 
 
-**Track**: AJ TRACEY - LADBROKE GROVE (PAUL MEIER & DJ TALLBOY EDIT)
+**Track**: Yall Ready For Pump Up The Jam (FREE DL) [HARDWIRED Remix]
 
-Last updated at 1/30/2026, 9:01:33 AM
+Last updated at 1/30/2026, 9:05:19 AM
