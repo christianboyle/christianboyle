@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vh1fqPFfzixBJhTG-2uBpvA-t500x500.jpg">](https://soundcloud.com/rolexzofficial/rolexz-die-angst-zu-fuhlen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bW76aR3yOZVoNso-9Xh4qQ-t500x500.jpg">](https://soundcloud.com/thnderzravetokremixes/voices-in-my-f1-klofama-x)
 
-**Artist**: Rolexz 
+**Artist**: THNDERZ (RAVETOK REMIXES) 
 
-**Track**: ROLEXZ - Die Angst Zu Fühlen
+**Track**: VOICES IN MY F1 (KLOFAMA X JOVYNN X JRD) (THNDERZ MASHUP)
 
-Last updated at 1/29/2026, 9:09:07 PM
+Last updated at 1/29/2026, 9:12:57 PM
