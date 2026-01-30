@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPvUAh6WeHjqUEcy-8nLRXQ-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/no-good-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4BrQaBDaNt3yAIO-Y9dhAQ-t500x500.png">](https://soundcloud.com/contact-ambraberlin/plws-bucovino-amb042)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Ambra 
 
-**Track**: The Prodigy - No Good (Marlon Hoffstadt's Rave Revival)
+**Track**: PLWS - BUCOVINO [AMB042]
 
-Last updated at 1/30/2026, 8:53:08 AM
+Last updated at 1/30/2026, 8:58:43 AM
