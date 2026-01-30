@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Q1TO9WWs8X31WMs-dNFcfg-t500x500.png">](https://soundcloud.com/getterofficial/ego-torture-feat-south-strip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7BoySW9FsJ00ibU-HEzjuw-t500x500.jpg">](https://soundcloud.com/ari-0n/dc-breaks-prolix-purge-ari-on)
 
-**Artist**: GETTER 
+**Artist**: ARI-ON 
 
-**Track**: EGO TORTURE feat. South Strip
+**Track**: DC Breaks & Prolix - Purge (ARI-ON RMX) FREE DWNLD
 
-Last updated at 1/30/2026, 2:00:49 PM
+Last updated at 1/30/2026, 4:44:04 PM
