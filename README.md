@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kozrctjMkeji6RSW-cRYkQQ-t500x500.jpg">](https://soundcloud.com/user-631893218/iceyournutz-ultraviolet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rrjBtI3PXYfTDy5v-OQ3ybQ-t500x500.png">](https://soundcloud.com/featfurryftfuta/efn-dubstep-remix-2)
 
-**Artist**: Iceyournutzpma 
+**Artist**: Feat Furry Ft. Futa, Jeffrey Epstein 
 
-**Track**: Iceyournutz - Ultraviolet Floodlight
+**Track**: EFN Dubstep Remix
 
-Last updated at 1/30/2026, 10:01:00 PM
+Last updated at 1/30/2026, 10:01:10 PM
