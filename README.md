@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhWAVYgUaB4t9SBW-M5Xbew-t500x500.jpg">](https://soundcloud.com/knervmusic/oliver-heldens-x-becky-hill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdiZvdxzqMUQTQ8r-hhvrcQ-t500x500.jpg">](https://soundcloud.com/earth-hz/split-x-aktiviii-maybe-im)
 
-**Artist**: Knerv 
+**Artist**: earth Hz 
 
-**Track**: Oliver Heldens x Becky Hill - Gecko (Overdrive)(Knerv Flip)
+**Track**: SPLiT x AKTIVIII - Maybe I'm Dreamin
 
-Last updated at 1/30/2026, 10:01:25 PM
+Last updated at 1/30/2026, 10:01:30 PM
