@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xddttyBI5RiL9Wi1-OLOuYQ-t500x500.png">](https://soundcloud.com/marc69-1/htid-sy-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mOfRQzZKozXyjCa0-5037ig-t500x500.jpg">](https://soundcloud.com/41rossco/itstheweekend26mix)
 
-**Artist**: Marc.K.B 
+**Artist**: DJ.Rossco 
 
-**Track**: HTID SY MIX
+**Track**: Itstheweekend26Mix
 
-Last updated at 1/31/2026, 11:58:30 AM
+Last updated at 1/31/2026, 12:00:20 PM
