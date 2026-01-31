@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdiZvdxzqMUQTQ8r-hhvrcQ-t500x500.jpg">](https://soundcloud.com/earth-hz/kyokee-cya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TMg9h9z6NnUgABwq-JiubnA-t500x500.png">](https://soundcloud.com/hangthedjsuk/kesha-take-it-off-hang-the-djs-bootleg)
 
-**Artist**: earth Hz 
+**Artist**: Hang The DJs 
 
-**Track**: Kyokee - CYA
+**Track**: Kesha - Take It Off (Hang The DJs Bootleg)
 
-Last updated at 1/31/2026, 10:25:32 AM
+Last updated at 1/31/2026, 11:55:39 AM
