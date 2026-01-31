@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdiZvdxzqMUQTQ8r-hhvrcQ-t500x500.jpg">](https://soundcloud.com/earth-hz/kyokee-cya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iqBPlPqAzcbmFXIk-ACzGIQ-t500x500.png">](https://soundcloud.com/skyskytunes/be-quiet-and-drive)
 
-**Artist**: earth Hz 
+**Artist**: Deftones 
 
-**Track**: Kyokee - CYA
+**Track**: Be Quiet and Drive (SKY SKY & 9oneyth Remix) - Deftones
 
-Last updated at 1/31/2026, 10:06:24 AM
+Last updated at 1/31/2026, 10:22:50 AM
