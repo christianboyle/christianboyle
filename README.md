@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TMg9h9z6NnUgABwq-JiubnA-t500x500.png">](https://soundcloud.com/hangthedjsuk/kesha-take-it-off-hang-the-djs-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xddttyBI5RiL9Wi1-OLOuYQ-t500x500.png">](https://soundcloud.com/marc69-1/htid-sy-mix)
 
-**Artist**: Hang The DJs 
+**Artist**: Marc.K.B 
 
-**Track**: Kesha - Take It Off (Hang The DJs Bootleg)
+**Track**: HTID SY MIX
 
-Last updated at 1/31/2026, 11:55:39 AM
+Last updated at 1/31/2026, 11:58:30 AM
