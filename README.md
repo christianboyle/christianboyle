@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lckazo8fgKJ9PyRn-bXyEbg-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/noes-wait4u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hyHZO1mmcKbZAG6o-lmeoSw-t500x500.png">](https://soundcloud.com/augment_bass/the-prophet)
 
-**Artist**: NOES 
+**Artist**: Augment 
 
-**Track**: QGR-046S1 | NOES - WAIT4U
+**Track**: The Prophet
 
-Last updated at 2/1/2026, 5:50:03 PM
+Last updated at 2/1/2026, 5:50:08 PM
