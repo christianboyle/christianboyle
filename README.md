@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ROMOeX33j3z-0-t500x500.jpg">](https://soundcloud.com/bluntsnblondes/want-a-piece)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbFDBO0hbcbesZke-fPZ6iQ-t500x500.jpg">](https://soundcloud.com/zurglin/baddie)
 
-**Artist**: Blunts & Blondes 
+**Artist**: ZURGLIN 
 
-**Track**: Want A Piece
+**Track**: BADDIE [Free DL]
 
-Last updated at 2/1/2026, 9:50:41 AM
+Last updated at 2/1/2026, 9:52:36 AM
