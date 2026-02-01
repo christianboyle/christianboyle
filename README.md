@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wdiZvdxzqMUQTQ8r-hhvrcQ-t500x500.jpg">](https://soundcloud.com/earth-hz/kyokee-cya)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a86yMYMkWJy0JCyp-qEDvQQ-t500x500.jpg">](https://soundcloud.com/psykeduk/benjy-x-witek-body-rock-wip)
 
-**Artist**: earth Hz 
+**Artist**: Benjy, Witek 
 
-**Track**: Kyokee - CYA
+**Track**: Body Rock
 
-Last updated at 2/1/2026, 5:58:16 AM
+Last updated at 2/1/2026, 9:05:42 AM
