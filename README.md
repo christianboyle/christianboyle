@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HBu8OO0mKUZP6BHW-vSokXQ-t500x500.jpg">](https://soundcloud.com/themarct/bangers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHw2xnHBj56gyayw-JTJyHQ-t500x500.jpg">](https://soundcloud.com/grazcore/graz-vibe-coded)
 
-**Artist**: Marc't 
+**Artist**: Graz 
 
-**Track**: Bangers | Vol. 1
+**Track**: Graz - Vibe Coded
 
-Last updated at 2/1/2026, 5:49:23 PM
+Last updated at 2/1/2026, 5:49:28 PM
