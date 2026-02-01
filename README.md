@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IbFDBO0hbcbesZke-fPZ6iQ-t500x500.jpg">](https://soundcloud.com/zurglin/baddie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HBu8OO0mKUZP6BHW-vSokXQ-t500x500.jpg">](https://soundcloud.com/themarct/bangers)
 
-**Artist**: ZURGLIN 
+**Artist**: Marc't 
 
-**Track**: BADDIE [Free DL]
+**Track**: Bangers | Vol. 1
 
-Last updated at 2/1/2026, 9:52:36 AM
+Last updated at 2/1/2026, 5:49:23 PM
