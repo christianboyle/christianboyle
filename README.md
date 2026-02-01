@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tgbiyHzClYX2x8nu-nuDOFA-t500x500.png">](https://soundcloud.com/grandalliancemusic/grimee-x-headtash-yikes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ROMOeX33j3z-0-t500x500.jpg">](https://soundcloud.com/bluntsnblondes/want-a-piece)
 
-**Artist**: GRIMEE, Head$tash 
+**Artist**: Blunts & Blondes 
 
-**Track**: GRIMEE x Head$tash - Yikes
+**Track**: Want A Piece
 
-Last updated at 2/1/2026, 9:48:20 AM
+Last updated at 2/1/2026, 9:50:41 AM
