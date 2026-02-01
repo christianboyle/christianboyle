@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UPkZ8lJ5L5rWL1eH-yWWevw-t500x500.jpg">](https://soundcloud.com/craig-london/the-thrillseekers-synaesthesia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6fhTVNkPSP6T58b-71UwpQ-t500x500.png">](https://soundcloud.com/inductordx/inductor-turn-up-the-bass-1)
 
-**Artist**: Craig London Official 
+**Artist**: Inductor 
 
-**Track**: The Thrillseekers - Synaesthesia (London & Niko Lost In The Moment Remix) Clip
+**Track**: Turn Up The Bass (FREEDL)
 
-Last updated at 2/1/2026, 9:10:48 AM
+Last updated at 2/1/2026, 9:11:48 AM
