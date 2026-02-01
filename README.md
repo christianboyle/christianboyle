@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPdxcysIOwzTtxb5-UOZq5Q-t500x500.jpg">](https://soundcloud.com/bitbird/talk2me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uXMRuiG4Ycst6N0R-zhiPwA-t500x500.png">](https://soundcloud.com/ryan_t08/ryan-t-stay-clip)
 
-**Artist**: Arya 
+**Artist**: Ryan T 
 
-**Track**: TALK2ME
+**Track**: Ryan T - Stay ( Clip )
 
-Last updated at 2/1/2026, 9:06:48 AM
+Last updated at 2/1/2026, 9:08:58 AM
