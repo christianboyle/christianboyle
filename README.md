@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a86yMYMkWJy0JCyp-qEDvQQ-t500x500.jpg">](https://soundcloud.com/psykeduk/benjy-x-witek-body-rock-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPdxcysIOwzTtxb5-UOZq5Q-t500x500.jpg">](https://soundcloud.com/bitbird/talk2me)
 
-**Artist**: Benjy, Witek 
+**Artist**: Arya 
 
-**Track**: Body Rock
+**Track**: TALK2ME
 
-Last updated at 2/1/2026, 9:05:42 AM
+Last updated at 2/1/2026, 9:06:48 AM
