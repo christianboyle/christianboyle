@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6fhTVNkPSP6T58b-71UwpQ-t500x500.png">](https://soundcloud.com/inductordx/inductor-turn-up-the-bass-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kBePrCj1MUtnMSOC-WOHMyA-t500x500.png">](https://soundcloud.com/fatalenergyrecords/helena-kristiansson-moon-and-sun-ecibel-hardstyle-remix)
 
-**Artist**: Inductor 
+**Artist**: Fatal Energy Records 
 
-**Track**: Turn Up The Bass (FREEDL)
+**Track**: Helena Kristiansson - Moon And Sun (Ecibel 'Hardstyle' Remix)
 
-Last updated at 2/1/2026, 9:11:48 AM
+Last updated at 2/1/2026, 9:47:20 AM
