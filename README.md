@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nz7o277tNvtKg7wc-HnRvoA-t500x500.jpg">](https://soundcloud.com/yinons/playing-pretend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5VVbFgSUJ4SVd0u-jeXHSw-t500x500.png">](https://soundcloud.com/jumpin_jack/club-thumpers-recr8ed007-cindy-still-got-balls)
 
-**Artist**: yinon 
+**Artist**: Club Thumpers 
 
-**Track**: playing pretend
+**Track**: Club Thumpers - RECR8ED007 (Cindy Still Got Balls)
 
-Last updated at 2/2/2026, 11:21:33 AM
+Last updated at 2/2/2026, 11:23:13 AM
