@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1QiGssaylyTrpdz-vV4yrg-t500x500.png">](https://soundcloud.com/gangstahouserec/sun-shi-in-your-eyes-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p7sYeQlGslAbArNE-gz0CNQ-t500x500.jpg">](https://soundcloud.com/frontlinenetwork/lockerz-work-dub-free-dl)
 
-**Artist**: SUN SHI 
+**Artist**: FRONTLINE 
 
-**Track**: SUN SHI - In Your Eyes
+**Track**: LOCKERZ - WORK DUB (FREE DL)
 
-Last updated at 2/2/2026, 8:21:34 AM
+Last updated at 2/2/2026, 8:22:34 AM
