@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oa1tRG4e9UfKpQqf-RDq8tQ-t500x500.jpg">](https://soundcloud.com/itsbydesignmusic/gta-what-so-not-feel-it-redesigned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H5vyCw0vysaYsv9V-TntAHw-t500x500.png">](https://soundcloud.com/dionofficial-1/radiance-hard-mix)
 
-**Artist**: By Design 
+**Artist**: Divination 
 
-**Track**: GTA, What So Not (feat. Tunge Ije) - Feel It (Re-Designed)
+**Track**: KOBOSIL,UBERREST - RADIANCE ( Divination HARD MIX ) FREEDL
 
-Last updated at 2/1/2026, 6:07:16 PM
+Last updated at 2/1/2026, 6:15:07 PM
