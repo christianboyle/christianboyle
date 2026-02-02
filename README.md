@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pL8hy3swm33JMbOL-Mc2UyQ-t500x500.jpg">](https://soundcloud.com/tatsunoshin_ofc/tatsunoshin-bumble-bee-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmbPAwZ0pIQdItvI-QrGcqw-t500x500.png">](https://soundcloud.com/ta1lsd0ll/remememem)
 
-**Artist**: Tatsunoshin 
+**Artist**: ta1lsd0ll 
 
-**Track**: Tatsunoshin - Bumble Bee (Extended Mix)
+**Track**: ta1lsd027
 
-Last updated at 2/2/2026, 1:36:37 PM
+Last updated at 2/2/2026, 1:39:53 PM
