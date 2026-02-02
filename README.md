@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bMLSmmi3a7oyEVS5-moAWZA-t500x500.png">](https://soundcloud.com/animalia-label/anilive-eighty-christian-coiffeur-live-persona-festival-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zF3V51OQLAxvoTBx-NaDxwQ-t500x500.png">](https://soundcloud.com/adamjasimofficial/7b179a1c-a066-44ff-9ec3-1124245408ea)
 
-**Artist**: Christian Coiffeur 
+**Artist**: Adam Jasim, James Dece, Dani King 
 
-**Track**: ani/live Eighty: Christian Coiffeur (live) @ pe:rsona Festival, 2025
+**Track**: Don't Let Love Go
 
-Last updated at 2/2/2026, 8:24:44 AM
+Last updated at 2/2/2026, 9:18:39 AM
