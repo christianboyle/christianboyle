@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Okpggj2jnZkzj51o-q3fmOg-t500x500.png">](https://soundcloud.com/hendy2017/monsters-hendy-jb-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyuUGQqVfQQ655zB-j29PzQ-t500x500.png">](https://soundcloud.com/david-cruickshanks/hell-of-a-bounce-episode-34)
 
-**Artist**: DJ Hendy 
+**Artist**: SHANKS 
 
-**Track**: Monsters - Hendy & JB Remix
+**Track**: HELL OF A BOUNCE EPISODE 34
 
-Last updated at 2/2/2026, 7:42:12 AM
+Last updated at 2/2/2026, 7:43:42 AM
