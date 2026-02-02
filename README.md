@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rO5uYPhCmLkzqexf-1zT3aQ-t500x500.png">](https://soundcloud.com/initi8uk/bass-n-bangers-volume-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6lgEYbWInhQzkZX-S0bd8A-t500x500.jpg">](https://soundcloud.com/hellgnar/lemme-get-low-poly-noise)
 
-**Artist**: Initi8 
+**Artist**: HELLGNAR 
 
-**Track**: BASS N BANGERS VOLUME 2
+**Track**: LOW POLY-THE NOISE (HELLGNAR FLIP)
 
-Last updated at 2/2/2026, 10:58:57 AM
+Last updated at 2/2/2026, 11:01:07 AM
