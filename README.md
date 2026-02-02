@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IHw2xnHBj56gyayw-JTJyHQ-t500x500.jpg">](https://soundcloud.com/grazcore/graz-vibe-coded)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdR7SAVLVA7XKZK9-nnPVnQ-t500x500.png">](https://soundcloud.com/trinitiii/66921e30-cc25-4f9b-a212-ac0ab855e844)
 
-**Artist**: Graz 
+**Artist**: TRINITIII, HY3RID 
 
-**Track**: Graz - Vibe Coded
+**Track**: Wubmarine VIP
 
-Last updated at 2/2/2026, 7:46:53 AM
+Last updated at 2/2/2026, 8:20:34 AM
