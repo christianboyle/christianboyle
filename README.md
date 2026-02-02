@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3sK5roDFKqfQ-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/holiday-lover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1ryTaytDlxeuCMK-6gNZdA-t500x500.png">](https://soundcloud.com/headsknow/stop-playing-with-em-3)
 
-**Artist**: MC Finchy, DJ Kenty 
+**Artist**: onlytom 
 
-**Track**: Holiday Lover
+**Track**: onlytom - Stop Playin With ‘Em
 
-Last updated at 2/2/2026, 10:55:26 AM
+Last updated at 2/2/2026, 10:56:26 AM
