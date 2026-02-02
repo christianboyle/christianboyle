@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zF3V51OQLAxvoTBx-NaDxwQ-t500x500.png">](https://soundcloud.com/adamjasimofficial/7b179a1c-a066-44ff-9ec3-1124245408ea)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9vNnj5NUlBsnMKel-darEmQ-t500x500.jpg">](https://soundcloud.com/omnirock/triumph)
 
-**Artist**: Adam Jasim, James Dece, Dani King 
+**Artist**: Omnirock 
 
-**Track**: Don't Let Love Go
+**Track**: Triumph
 
-Last updated at 2/2/2026, 9:18:39 AM
+Last updated at 2/2/2026, 9:22:25 AM
