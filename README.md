@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VxnU0Qbp3RAhWQ3j-ynZfIQ-t500x500.png">](https://soundcloud.com/junkiekidmusic/9e2e4745-b1b4-4585-a25d-268f9d5de30b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9knHrSckLljTTK0o-yTe6Yg-t500x500.png">](https://soundcloud.com/earth-hz/kimati-volume-unit-innmi)
 
-**Artist**: JUNKIE KID 
+**Artist**: earth Hz 
 
-**Track**: will.i.am, Britney Spears - Scream & Shout (JUNKIE KID EDIT)
+**Track**: Kimati & Volume Unit - INNMI
 
-Last updated at 2/2/2026, 6:49:57 AM
+Last updated at 2/2/2026, 7:25:31 AM
