@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6lgEYbWInhQzkZX-S0bd8A-t500x500.jpg">](https://soundcloud.com/hellgnar/lemme-get-low-poly-noise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nz7o277tNvtKg7wc-HnRvoA-t500x500.jpg">](https://soundcloud.com/yinons/playing-pretend)
 
-**Artist**: HELLGNAR 
+**Artist**: yinon 
 
-**Track**: LOW POLY-THE NOISE (HELLGNAR FLIP)
+**Track**: playing pretend
 
-Last updated at 2/2/2026, 11:01:07 AM
+Last updated at 2/2/2026, 11:21:33 AM
