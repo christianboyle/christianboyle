@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oQKwe7hz81d3RpqO-11IIdw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/this-is-100-quosh-records-part-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPqHECfcujzyszKH-tjx50w-t500x500.png">](https://soundcloud.com/dnzrecords/illintent-how-i-rock)
 
-**Artist**: Dj Des 
+**Artist**: Illintent 
 
-**Track**: This is 100% Quosh Records ...... ( part 3 )
+**Track**: Illintent - How I Rock
 
-Last updated at 2/2/2026, 9:53:06 AM
+Last updated at 2/2/2026, 10:48:00 AM
