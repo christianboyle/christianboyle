@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jmbPAwZ0pIQdItvI-QrGcqw-t500x500.png">](https://soundcloud.com/ta1lsd0ll/remememem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8ytt9MDD9LqRNIvU-Zoqp0Q-t500x500.png">](https://soundcloud.com/technowereld/premiere-wbk-shut-up-and-dance)
 
-**Artist**: ta1lsd0ll 
+**Artist**: Techno Wereld, WBK 
 
-**Track**: ta1lsd027
+**Track**: Premiere: WBK - Shut Up And Dance
 
-Last updated at 2/2/2026, 1:39:53 PM
+Last updated at 2/2/2026, 1:45:08 PM
