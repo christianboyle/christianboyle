@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9knHrSckLljTTK0o-yTe6Yg-t500x500.png">](https://soundcloud.com/earth-hz/kimati-volume-unit-innmi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhZWzwY66hOcsw1y-zSyiTA-t500x500.jpg">](https://soundcloud.com/theonlymajed/majed-i-wanna-go)
 
-**Artist**: earth Hz 
+**Artist**: Majed 
 
-**Track**: Kimati & Volume Unit - INNMI
+**Track**: Britney Spears - I Wanna Go (MAJED Remix)
 
-Last updated at 2/2/2026, 7:25:31 AM
+Last updated at 2/2/2026, 7:27:11 AM
