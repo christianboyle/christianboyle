@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dIhpSIQQ5w4NSFQ-cspzvQ-t500x500.jpg">](https://soundcloud.com/alaguan/gayle-abcdefu-alaguan-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCrpnVp5ZAxzX8re-g6tdUQ-t500x500.png">](https://soundcloud.com/tatsunoshin_ofc/alice-deejay-better-off-alone-tatsunoshin-remix)
 
-**Artist**: Alaguan 
+**Artist**: Tatsunoshin 
 
-**Track**: GAYLE - Abcdefu (Alaguan Remix) [Free Download]
+**Track**: Alice Deejay - Better Off Alone (Tatsunoshin Remix)
 
-Last updated at 2/2/2026, 1:28:37 PM
+Last updated at 2/2/2026, 1:31:27 PM
