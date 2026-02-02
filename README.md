@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dyuUGQqVfQQ655zB-j29PzQ-t500x500.png">](https://soundcloud.com/david-cruickshanks/hell-of-a-bounce-episode-34)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbnPzMJ8yLr9rxD8-obh10A-t500x500.jpg">](https://soundcloud.com/user-442734125/fraktion-bazooka-remix-dias)
 
-**Artist**: SHANKS 
+**Artist**: DIAS BE 
 
-**Track**: HELL OF A BOUNCE EPISODE 34
+**Track**: FRAKTION - BAZOOKA REMIX (DIAS SPECIAL)
 
-Last updated at 2/2/2026, 7:43:42 AM
+Last updated at 2/2/2026, 7:44:42 AM
