@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xnJOtqxAi1CystHN-1WYPCQ-t500x500.jpg">](https://soundcloud.com/afik-2/mind-ya-business)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHNIw5kFSg4f-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/lie-to-myself)
 
-**Artist**: KIRK 
+**Artist**: MC Finchy, DJ Kenty 
 
-**Track**: Mind Ya Business
+**Track**: Lie To Myself
 
-Last updated at 2/2/2026, 2:00:00 PM
+Last updated at 2/2/2026, 5:19:37 PM
