@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PhZWzwY66hOcsw1y-zSyiTA-t500x500.jpg">](https://soundcloud.com/theonlymajed/majed-i-wanna-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Okpggj2jnZkzj51o-q3fmOg-t500x500.png">](https://soundcloud.com/hendy2017/monsters-hendy-jb-remix)
 
-**Artist**: Majed 
+**Artist**: DJ Hendy 
 
-**Track**: Britney Spears - I Wanna Go (MAJED Remix)
+**Track**: Monsters - Hendy & JB Remix
 
-Last updated at 2/2/2026, 7:27:11 AM
+Last updated at 2/2/2026, 7:42:12 AM
