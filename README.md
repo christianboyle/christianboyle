@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sdR7SAVLVA7XKZK9-nnPVnQ-t500x500.png">](https://soundcloud.com/trinitiii/66921e30-cc25-4f9b-a212-ac0ab855e844)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1QiGssaylyTrpdz-vV4yrg-t500x500.png">](https://soundcloud.com/gangstahouserec/sun-shi-in-your-eyes-1)
 
-**Artist**: TRINITIII, HY3RID 
+**Artist**: SUN SHI 
 
-**Track**: Wubmarine VIP
+**Track**: SUN SHI - In Your Eyes
 
-Last updated at 2/2/2026, 8:20:34 AM
+Last updated at 2/2/2026, 8:21:34 AM
