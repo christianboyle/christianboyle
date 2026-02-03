@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-f1Rr9N5HsyCeBTrK-4P57sw-t500x500.jpg">](https://soundcloud.com/dj-sol-3/twitch-live-02-02)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8iDHeh2W3gDPJjwq-a2kDgQ-t500x500.jpg">](https://soundcloud.com/leannelloyd1985/hard-house-banger-original-mix)
 
-**Artist**: dj-sol 
+**Artist**: Lady Hard House 
 
-**Track**: twitch live 02.02
+**Track**: Hard House Banger. Original Mix .. Free Download . Click More Tab.
 
-Last updated at 2/3/2026, 9:39:27 AM
+Last updated at 2/3/2026, 9:42:12 AM
