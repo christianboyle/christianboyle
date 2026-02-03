@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dw3osHECZYw6rK0F-8p27DQ-t500x500.png">](https://soundcloud.com/parasoxmusic/magicconch-feat-mxxnwatchers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yFQvjyVS7q5zSsU-JWVEKQ-t500x500.png">](https://soundcloud.com/tomdamage/never-give-up)
 
-**Artist**: parasox, mxxnwatchers 
+**Artist**: Tom Damage 
 
-**Track**: Magic Conch feat. mxxnwatchers
+**Track**: Never Give Up
 
-Last updated at 2/3/2026, 8:35:08 AM
+Last updated at 2/3/2026, 8:36:18 AM
