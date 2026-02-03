@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XVX3AsJ3qeFz6Fce-QYjkRQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-krtm-one-of-the-men-said-original-mix-artsx066)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dw3osHECZYw6rK0F-8p27DQ-t500x500.png">](https://soundcloud.com/parasoxmusic/magicconch-feat-mxxnwatchers)
 
-**Artist**: HATE, [KRTM]  
+**Artist**: parasox, mxxnwatchers 
 
-**Track**: Premiere: [KRTM] — One Of The Men Said (Original Mix) [ARTSX066]
+**Track**: Magic Conch feat. mxxnwatchers
 
-Last updated at 2/3/2026, 8:34:03 AM
+Last updated at 2/3/2026, 8:35:08 AM
