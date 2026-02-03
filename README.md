@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yt6QFcLi7pm9F1VC-UZ2e5w-t500x500.jpg">](https://soundcloud.com/earth-hz/velcroshirt-x-devowr-fahhh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IPYxVGGdly7exC6z-KDx9kA-t500x500.jpg">](https://soundcloud.com/djpaullee/beachball-love-sample-wav-2)
 
-**Artist**: earth Hz 
+**Artist**: BOBBO 
 
-**Track**: VelcroShirt X DEVOWR. - FAHHH!
+**Track**: beachball love (sample).wav
 
-Last updated at 2/3/2026, 9:45:18 AM
+Last updated at 2/3/2026, 9:46:43 AM
