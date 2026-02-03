@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pB8AlQqGCDcFciRf-yW2oCw-t500x500.jpg">](https://soundcloud.com/dark-ace-560253318/strange-quarks)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lozPuLcGtz9w5fgI-Wvr99g-t500x500.png">](https://soundcloud.com/dnzrecords/graham-mcclean-turn-it-around)
 
-**Artist**: Damos 
+**Artist**: Graham McClean 
 
-**Track**: strange quarks
+**Track**: Graham McClean - Turn It Around
 
-Last updated at 2/3/2026, 8:13:11 AM
+Last updated at 2/3/2026, 8:14:26 AM
