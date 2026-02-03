@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGKlazKzDQTuVzWw-IMzo4Q-t500x500.png">](https://soundcloud.com/fatkidonfire/wraz-mikrodot-dosed-artkl084-fkof-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMPQYDJyF7pWvOeJ-uiq3Gg-t500x500.jpg">](https://soundcloud.com/chromebodies/evacuate)
 
-**Artist**: Wraz & Mikrodot 
+**Artist**: CHROMEBODIES 
 
-**Track**: Wraz & Mikrodot - Dosed (ARTKL084) [FKOF Premiere]
+**Track**: CASCADA - EVACUATE THE DANCEFLOOR (CHROMEBODIED)
 
-Last updated at 2/3/2026, 9:53:04 AM
+Last updated at 2/3/2026, 9:57:39 AM
