@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CrNvmDcdOgB9oRCv-RuynOg-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mzzdee-devotion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHXyUDbRc8X2tAm1-tLRQqA-t500x500.png">](https://soundcloud.com/djsquidge/unhinged-8-dj-squidge)
 
-**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
+**Artist**: DJ Squidge 
 
-**Track**: MZZDEE -DEVOTION 😈
+**Track**: Unhinged #8 - DJ Squidge
 
-Last updated at 2/3/2026, 8:29:08 AM
+Last updated at 2/3/2026, 8:30:08 AM
