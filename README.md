@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-isTu3IRRI0zziCEc-czECVQ-t500x500.png">](https://soundcloud.com/eric-georgesco/cest-la-vie-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XVX3AsJ3qeFz6Fce-QYjkRQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-krtm-one-of-the-men-said-original-mix-artsx066)
 
-**Artist**: Eric GEORGESCO Productions 
+**Artist**: HATE, [KRTM]  
 
-**Track**: C’EST LA VIE 3
+**Track**: Premiere: [KRTM] — One Of The Men Said (Original Mix) [ARTSX066]
 
-Last updated at 2/3/2026, 8:33:03 AM
+Last updated at 2/3/2026, 8:34:03 AM
