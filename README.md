@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9gC2qcIqONuSaXJ-Ty23yg-t500x500.png">](https://soundcloud.com/user-853939101/loemps-bury-a-friend-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cC7uPA8vvkR7ohxE-7VZ5uA-t500x500.jpg">](https://soundcloud.com/user-853939101/gruwelijke-spacer-final)
 
 **Artist**: LØEMPS 
 
-**Track**: Bury a Friend - LØEMPS {FREE DL}
+**Track**: LØEMPS - High on XTC (Free DL)
 
-Last updated at 2/3/2026, 11:41:45 AM
+Last updated at 2/3/2026, 11:42:55 AM
