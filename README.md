@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lvkyk7sv6Xtu3gri-2tMWAA-t500x500.jpg">](https://soundcloud.com/eric-georgesco/love-can-save-us-feat-sandi-j)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-isTu3IRRI0zziCEc-czECVQ-t500x500.png">](https://soundcloud.com/eric-georgesco/cest-la-vie-3)
 
 **Artist**: Eric GEORGESCO Productions 
 
-**Track**: LOVE CAN SAVE US Feat. Sandi J.
+**Track**: C’EST LA VIE 3
 
-Last updated at 2/3/2026, 8:31:58 AM
+Last updated at 2/3/2026, 8:33:03 AM
