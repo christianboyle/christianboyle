@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tpgEfUie80caksIH-mkOzew-t500x500.png">](https://soundcloud.com/grandalliancemusic/watch-me-techtonic-remix-master-24bit-41k-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yt6QFcLi7pm9F1VC-UZ2e5w-t500x500.jpg">](https://soundcloud.com/earth-hz/velcroshirt-x-devowr-fahhh)
 
-**Artist**: TechTonic 
+**Artist**: earth Hz 
 
-**Track**: Watch Me (TechTonic Remix)
+**Track**: VelcroShirt X DEVOWR. - FAHHH!
 
-Last updated at 2/3/2026, 9:44:18 AM
+Last updated at 2/3/2026, 9:45:18 AM
