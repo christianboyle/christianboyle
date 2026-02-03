@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tHXyUDbRc8X2tAm1-tLRQqA-t500x500.png">](https://soundcloud.com/djsquidge/unhinged-8-dj-squidge)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lvkyk7sv6Xtu3gri-2tMWAA-t500x500.jpg">](https://soundcloud.com/eric-georgesco/love-can-save-us-feat-sandi-j)
 
-**Artist**: DJ Squidge 
+**Artist**: Eric GEORGESCO Productions 
 
-**Track**: Unhinged #8 - DJ Squidge
+**Track**: LOVE CAN SAVE US Feat. Sandi J.
 
-Last updated at 2/3/2026, 8:30:08 AM
+Last updated at 2/3/2026, 8:31:58 AM
