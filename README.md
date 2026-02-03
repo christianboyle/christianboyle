@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHNIw5kFSg4f-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/lie-to-myself)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AzkpctSyx6Szr2cB-Hd1BxA-t500x500.jpg">](https://soundcloud.com/k4rson/doubleup)
 
-**Artist**: MC Finchy, DJ Kenty 
+**Artist**: karson 
 
-**Track**: Lie To Myself
+**Track**: doubleup! (advxrse + comanati)
 
-Last updated at 2/3/2026, 5:51:33 AM
+Last updated at 2/3/2026, 8:12:11 AM
