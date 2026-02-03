@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMPQYDJyF7pWvOeJ-uiq3Gg-t500x500.jpg">](https://soundcloud.com/chromebodies/evacuate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9gC2qcIqONuSaXJ-Ty23yg-t500x500.png">](https://soundcloud.com/user-853939101/loemps-bury-a-friend-free-dl)
 
-**Artist**: CHROMEBODIES 
+**Artist**: LØEMPS 
 
-**Track**: CASCADA - EVACUATE THE DANCEFLOOR (CHROMEBODIED)
+**Track**: Bury a Friend - LØEMPS {FREE DL}
 
-Last updated at 2/3/2026, 11:40:21 AM
+Last updated at 2/3/2026, 11:41:45 AM
