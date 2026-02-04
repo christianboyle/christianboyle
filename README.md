@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6lgEYbWInhQzkZX-S0bd8A-t500x500.jpg">](https://soundcloud.com/hellgnar/lemme-get-low-poly-noise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-65eDL2F4y2ucpV6m-aJndhg-t500x500.png">](https://soundcloud.com/user-853939101/bubbling-rave-bochka-free-download?in=saxurn/sets/1a1/)
 
-**Artist**: HELLGNAR 
+**Artist**: LØEMPS 
 
-**Track**: LOW POLY-THE NOISE (HELLGNAR FLIP)
+**Track**: BUBBLING RAVE  {FREE DL}
 
-Last updated at 2/4/2026, 7:35:04 AM
+Last updated at 2/4/2026, 8:05:19 AM
