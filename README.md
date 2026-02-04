@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnqoWX6pXkO3QWqQ-f1FVqA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/horyzon-echoes-of-tomorrow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BzC8GdP0uBNcN8BS-5Jmzcg-t500x500.png">](https://soundcloud.com/dj_kendo87/dj-kendo-vol-20)
 
-**Artist**: Horyzon 
+**Artist**: Dj KeNdO 
 
-**Track**: Horyzon - Echoes Of Tomorrow
+**Track**: Dj KeNdO- VOL XX
 
-Last updated at 2/4/2026, 6:24:38 AM
+Last updated at 2/4/2026, 6:26:08 AM
