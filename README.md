@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/dj-gee-volume-86)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tdwg1wVDvzMXlzh6-mDrZAA-t500x500.jpg">](https://soundcloud.com/musicbymugli/outro)
 
-**Artist**: Revolution-Records UK 
+**Artist**: MUGLI PROJECT 
 
-**Track**: Dj Gee - Volume 86
+**Track**: M83 "Outro" (MUGLI PROJECT Schranz Remix)
 
-Last updated at 2/4/2026, 6:31:23 AM
+Last updated at 2/4/2026, 6:33:13 AM
