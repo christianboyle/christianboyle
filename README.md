@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wan6FtGfTCQ0alEF-s3oyMg-t500x500.jpg">](https://soundcloud.com/tj12318/choose-life-freestyle?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kMPQYDJyF7pWvOeJ-uiq3Gg-t500x500.jpg">](https://soundcloud.com/chromebodies/evacuate?in=saxurn/sets/fr-tho)
 
-**Artist**: tjweaver 
+**Artist**: CHROMEBODIES 
 
-**Track**: Choose Life Freestyle ft. mossgarden
+**Track**: CASCADA - EVACUATE THE DANCEFLOOR (CHROMEBODIED)
 
-Last updated at 2/4/2026, 8:10:07 AM
+Last updated at 2/4/2026, 8:13:33 AM
