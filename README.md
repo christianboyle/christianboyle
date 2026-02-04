@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvC4IKKU5UH7r2hI-fImv6g-t500x500.png">](https://soundcloud.com/emotegi/friendzone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RThUlZD4RXSL9UNw-5hX3Nw-t500x500.jpg">](https://soundcloud.com/soak0000/10-23-23-sterile)
 
-**Artist**: emotegi 
+**Artist**: ♬♩♫♪Cade♬♩♪♫parker♪♫♩♬ 
 
-**Track**: merry christmas mr. laurence rip (2018 archive)
+**Track**: 10 23 23 Sterile
 
-Last updated at 2/4/2026, 8:08:04 AM
+Last updated at 2/4/2026, 8:09:09 AM
