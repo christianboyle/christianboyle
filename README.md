@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nz7o277tNvtKg7wc-HnRvoA-t500x500.jpg">](https://soundcloud.com/yinons/playing-pretend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vh1fqPFfzixBJhTG-2uBpvA-t500x500.jpg">](https://soundcloud.com/rolexzofficial/rolexz-die-angst-zu-fuhlen?in=saxurn/sets/fr-tho/)
 
-**Artist**: yinon 
+**Artist**: Rolexz 
 
-**Track**: playing pretend
+**Track**: ROLEXZ - Die Angst Zu Fühlen
 
-Last updated at 2/4/2026, 8:38:10 AM
+Last updated at 2/4/2026, 8:41:32 AM
