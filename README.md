@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8X725AvBdcK-0-t500x500.jpg">](https://soundcloud.com/thisisbounceukmusic/my-heads-been-turned)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NGwvVMQjoGgK6kIt-t8RQ7w-t500x500.png">](https://soundcloud.com/ezrahazardextra/anthem4)
 
-**Artist**: MC Finchy, DJ Kenty 
+**Artist**: Ezra Hazard 
 
-**Track**: My Heads Been Turned
+**Track**: Floorfilla - Anthem #4 (Ezra Hazard Remix)
 
-Last updated at 2/4/2026, 6:19:47 AM
+Last updated at 2/4/2026, 6:20:47 AM
