@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rSk3uKA1JWYyfq5-Ey6dgw-t500x500.jpg">](https://soundcloud.com/user-853939101/snuif-nou-eens-op)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GjS0eruUDvlR46U-VUaiJA-t500x500.jpg">](https://soundcloud.com/mandotechno/indenacht)
 
-**Artist**: LØEMPS 
+**Artist**: MANDØ 
 
-**Track**: Intrusive Voice - LØEMPS [Free DL]
+**Track**: Shah - In De Nacht (MANDØ Industrial Edit)
 
-Last updated at 2/4/2026, 9:12:18 AM
+Last updated at 2/4/2026, 9:21:38 AM
