@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aQlCLkxtXIPx-0-t500x500.jpg">](https://soundcloud.com/keepingtheravealive/serotonez-let-you-in-kujinfu?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vh1fqPFfzixBJhTG-2uBpvA-t500x500.jpg">](https://soundcloud.com/rolexzofficial/rolexz-die-angst-zu-fuhlen?in=saxurn/sets/fr-tho)
 
-**Artist**: Serotonez 
+**Artist**: Rolexz 
 
-**Track**: Let You In (Kujinfu Remix)
+**Track**: ROLEXZ - Die Angst Zu Fühlen
 
-Last updated at 2/4/2026, 8:33:35 AM
+Last updated at 2/4/2026, 8:37:05 AM
