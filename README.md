@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3bW76aR3yOZVoNso-9Xh4qQ-t500x500.jpg">](https://soundcloud.com/thnderzravetokremixes/voices-in-my-f1-klofama-x?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wan6FtGfTCQ0alEF-s3oyMg-t500x500.jpg">](https://soundcloud.com/tj12318/choose-life-freestyle?in=saxurn/sets/fr-tho)
 
-**Artist**: THNDERZ (RAVETOK REMIXES) 
+**Artist**: tjweaver 
 
-**Track**: VOICES IN MY F1 (KLOFAMA X JOVYNN X JRD) (THNDERZ MASHUP)
+**Track**: Choose Life Freestyle ft. mossgarden
 
-Last updated at 2/4/2026, 9:21:48 AM
+Last updated at 2/4/2026, 9:24:38 AM
