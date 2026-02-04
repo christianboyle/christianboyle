@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rSk3uKA1JWYyfq5-Ey6dgw-t500x500.jpg">](https://soundcloud.com/user-853939101/snuif-nou-eens-op?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wan6FtGfTCQ0alEF-s3oyMg-t500x500.jpg">](https://soundcloud.com/tj12318/choose-life-freestyle?in=saxurn/sets/fr-tho)
 
-**Artist**: LØEMPS 
+**Artist**: tjweaver 
 
-**Track**: Intrusive Voice - LØEMPS [Free DL]
+**Track**: Choose Life Freestyle ft. mossgarden
 
-Last updated at 2/4/2026, 10:37:51 AM
+Last updated at 2/4/2026, 1:23:48 PM
