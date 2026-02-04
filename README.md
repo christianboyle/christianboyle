@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NGwvVMQjoGgK6kIt-t8RQ7w-t500x500.png">](https://soundcloud.com/ezrahazardextra/anthem4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2co0yGXSHzxBu7Nr-LhQSVA-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/stephen-game-cut-you-deep-dwx-copyright-free)
 
-**Artist**: Ezra Hazard 
+**Artist**: Stephen Game 
 
-**Track**: Floorfilla - Anthem #4 (Ezra Hazard Remix)
+**Track**: Stephen Game - Cut You Deep (DWX Copyright Free)
 
-Last updated at 2/4/2026, 6:20:47 AM
+Last updated at 2/4/2026, 6:23:38 AM
