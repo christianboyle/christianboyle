@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzrYYCWzc8jNAwR4-DgYmzQ-t500x500.jpg">](https://soundcloud.com/nova-v3/peezy-resurrection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fGO7hkH8y1g3CyNb-tsntYg-t500x500.jpg">](https://soundcloud.com/bgzaudio/trademarkusarmx)
 
-**Artist**: nova v3 
+**Artist**: BGZ 
 
-**Track**: PEEZY - RESURRECTION PROD. PLENTYNIGHTS (NOVA EXCLUSIVE)
+**Track**: TRADEMARK USA (BGZ REWORK)
 
-Last updated at 2/5/2026, 6:23:29 AM
+Last updated at 2/5/2026, 6:24:45 AM
