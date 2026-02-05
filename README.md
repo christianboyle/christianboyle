@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NeQhy0p1Id34Z3Bh-NdIEGg-t500x500.jpg">](https://soundcloud.com/august-kind/lgo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xzrYYCWzc8jNAwR4-DgYmzQ-t500x500.jpg">](https://soundcloud.com/nova-v3/peezy-resurrection)
 
-**Artist**: John Summit 
+**Artist**: nova v3 
 
-**Track**: LIGHTS GO OUT (August Kind Remix) #LGOREMIX
+**Track**: PEEZY - RESURRECTION PROD. PLENTYNIGHTS (NOVA EXCLUSIVE)
 
-Last updated at 2/5/2026, 6:22:29 AM
+Last updated at 2/5/2026, 6:23:29 AM
