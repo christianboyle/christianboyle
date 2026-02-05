@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bzxmxx0izioXZCaa-zl4XyQ-t500x500.jpg">](https://soundcloud.com/darn84/s3rl-htid-australia-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qDVnceLNjlTZYahh-6LjKXQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/origin8a-propa-cheff-the-boy-100-hardcore)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Hardcore Energy 
 
-**Track**: S3RL @ HTID - Australia 🇦🇺 2026 - Sydney Showground (24/01/2026)
+**Track**: Origin8a & Propa, Cheff The Boy - 100% Hardcore
 
-Last updated at 2/5/2026, 6:25:55 AM
+Last updated at 2/5/2026, 6:29:00 AM
