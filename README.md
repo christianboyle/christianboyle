@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5VVbFgSUJ4SVd0u-jeXHSw-t500x500.png">](https://soundcloud.com/jumpin_jack/club-thumpers-recr8ed007-cindy-still-got-balls?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6a3tcKgztlpy5yI-yzhQHg-t500x500.jpg">](https://soundcloud.com/sihk66/owl-city-fireflies-sihk-90s-happy-hardcore-remix-free-dl?in=saxurn/sets/fr-tho)
 
-**Artist**: Club Thumpers 
+**Artist**: SIHK 
 
-**Track**: Club Thumpers - RECR8ED007 (Cindy Still Got Balls)
+**Track**: Owl City - Fireflies (Sihk 90's Happy Hardcore Remix) FREE DL
 
-Last updated at 2/5/2026, 8:29:11 AM
+Last updated at 2/5/2026, 8:33:41 AM
