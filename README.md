@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6a3tcKgztlpy5yI-yzhQHg-t500x500.jpg">](https://soundcloud.com/sihk66/owl-city-fireflies-sihk-90s-happy-hardcore-remix-free-dl?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZtnPuyitB89zSsu-6bzjig-t500x500.jpg">](https://soundcloud.com/jordanogden98/oxidationvolume9)
 
-**Artist**: SIHK 
+**Artist**: Jordan Ogden 
 
-**Track**: Owl City - Fireflies (Sihk 90's Happy Hardcore Remix) FREE DL
+**Track**: Oxidation: VOLUME 009 - The Scouse House Special
 
-Last updated at 2/5/2026, 8:33:41 AM
+Last updated at 2/5/2026, 1:49:34 PM
