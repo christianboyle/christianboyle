@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vh1fqPFfzixBJhTG-2uBpvA-t500x500.jpg">](https://soundcloud.com/rolexzofficial/rolexz-die-angst-zu-fuhlen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ba59eA1d1Yp6yaTX-uzTmxA-t500x500.png">](https://soundcloud.com/name-drop/trigger)
 
-**Artist**: Rolexz 
+**Artist**: NAME DROP 
 
-**Track**: ROLEXZ - Die Angst Zu Fühlen
+**Track**: TRIGGER
 
-Last updated at 2/5/2026, 5:42:51 AM
+Last updated at 2/5/2026, 6:21:29 AM
