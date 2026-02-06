@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCW8sB4Z5B2cJCri-NSVD8A-t500x500.jpg">](https://soundcloud.com/jgsmakina/jgs-intent-alectrona-feat-siobbhan-always-on-my-mind-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4TRWyKArsg3WoeHJ-qvUkTA-t500x500.png">](https://soundcloud.com/bpmbullyz/24k-stop-the-lightning-hardy-m)
 
-**Artist**: JGS 
+**Artist**: Hardy M/2wisted Bounce/BPM BULLYZ 
 
-**Track**: JGS, INTENT & Alectrona Feat. Siobbhan - Always On My Mind (Sample)
+**Track**: 24k - Stop The Lightning (Hardy M Fast Mix)
 
-Last updated at 2/6/2026, 8:04:10 AM
+Last updated at 2/6/2026, 8:05:30 AM
