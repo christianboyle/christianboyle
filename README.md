@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EEvHIJ6ScFgtHCu8-atPrwA-t500x500.png">](https://soundcloud.com/smashthehouse/hey-boy-hey-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCW8sB4Z5B2cJCri-NSVD8A-t500x500.jpg">](https://soundcloud.com/jgsmakina/jgs-intent-alectrona-feat-siobbhan-always-on-my-mind-sample)
 
-**Artist**: Olly James  
+**Artist**: JGS 
 
-**Track**: Hey Boy Hey Girl
+**Track**: JGS, INTENT & Alectrona Feat. Siobbhan - Always On My Mind (Sample)
 
-Last updated at 2/6/2026, 7:22:16 AM
+Last updated at 2/6/2026, 8:04:10 AM
