@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4TRWyKArsg3WoeHJ-qvUkTA-t500x500.png">](https://soundcloud.com/bpmbullyz/24k-stop-the-lightning-hardy-m)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fhet8PyZaBhLl6UZ-67OlxQ-t500x500.jpg">](https://soundcloud.com/darren-hocking-801311274/01-rec-2025-11-19-1)
 
-**Artist**: Hardy M/2wisted Bounce/BPM BULLYZ 
+**Artist**: DJ Shock 
 
-**Track**: 24k - Stop The Lightning (Hardy M Fast Mix)
+**Track**: Winter Warming Bounce
 
-Last updated at 2/6/2026, 8:05:30 AM
+Last updated at 2/6/2026, 8:12:13 AM
