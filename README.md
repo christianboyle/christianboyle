@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hv1OT4dfNBxcSoG8-pmxuLw-t500x500.jpg">](https://soundcloud.com/41rossco/6-2-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EEvHIJ6ScFgtHCu8-atPrwA-t500x500.png">](https://soundcloud.com/smashthehouse/hey-boy-hey-girl)
 
-**Artist**: DJ.Rossco 
+**Artist**: Olly James  
 
-**Track**: 6.2.26
+**Track**: Hey Boy Hey Girl
 
-Last updated at 2/6/2026, 7:21:16 AM
+Last updated at 2/6/2026, 7:22:16 AM
