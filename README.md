@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xZtnPuyitB89zSsu-6bzjig-t500x500.jpg">](https://soundcloud.com/jordanogden98/oxidationvolume9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGKlazKzDQTuVzWw-IMzo4Q-t500x500.png">](https://soundcloud.com/fatkidonfire/wraz-mikrodot-dosed-artkl084-fkof-premiere)
 
-**Artist**: Jordan Ogden 
+**Artist**: Wraz & Mikrodot 
 
-**Track**: Oxidation: VOLUME 009 - The Scouse House Special
+**Track**: Wraz & Mikrodot - Dosed (ARTKL084) [FKOF Premiere]
 
-Last updated at 2/5/2026, 1:49:34 PM
+Last updated at 2/6/2026, 6:19:08 AM
