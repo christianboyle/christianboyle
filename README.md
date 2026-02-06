@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VhzoLzzTNUefjerM-EG2Scw-t500x500.jpg">](https://soundcloud.com/liam-doherty-47984215/vol-2-liam-d-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5VVbFgSUJ4SVd0u-jeXHSw-t500x500.png">](https://soundcloud.com/jumpin_jack/club-thumpers-recr8ed007-cindy-still-got-balls)
 
-**Artist**: liamd 
+**Artist**: Club Thumpers 
 
-**Track**: VOL 2 BOUNCED EDITION LIAM D
+**Track**: Club Thumpers - RECR8ED007 (Cindy Still Got Balls)
 
-Last updated at 2/6/2026, 9:11:17 AM
+Last updated at 2/6/2026, 4:10:06 PM
