@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbU89kdMbHKusKcW-0NnmJg-t500x500.jpg">](https://soundcloud.com/lisahigham81/01-rec-2026-02-05)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4TRWyKArsg3WoeHJ-qvUkTA-t500x500.png">](https://soundcloud.com/bpmbullyz/24k-stop-the-lightning-hardy-m)
 
-**Artist**: Yes ii  
+**Artist**: Hardy M/2wisted Bounce/BPM BULLYZ 
 
-**Track**: Yes ii presents The Bounce Generation vol 77 Feat Dicky 💥💥
+**Track**: 24k - Stop The Lightning (Hardy M Fast Mix)
 
-Last updated at 2/6/2026, 6:45:12 PM
+Last updated at 2/6/2026, 6:45:17 PM
