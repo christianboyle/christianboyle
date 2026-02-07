@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1uQaJHF4V0HOLJQ-dU8q0g-t500x500.png">](https://soundcloud.com/jimmer-mcallister/jimmer-let-the-beat-control)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbU89kdMbHKusKcW-0NnmJg-t500x500.jpg">](https://soundcloud.com/lisahigham81/01-rec-2026-02-05)
 
-**Artist**: Jimmer • DJs Factory 
+**Artist**: Yes ii  
 
-**Track**: Jimmer - Let the Beat Control Your Body [sample]
+**Track**: Yes ii presents The Bounce Generation vol 77 Feat Dicky 💥💥
 
-Last updated at 2/6/2026, 6:45:07 PM
+Last updated at 2/6/2026, 6:45:12 PM
