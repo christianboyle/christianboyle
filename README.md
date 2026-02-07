@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3jlxzmWJBAyHStAe-86oXtw-t500x500.jpg">](https://soundcloud.com/sherie-hartill-518619981/faith-wes-p-dream-frequency-ft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kc06fFdw0NtVM5Jz-2HJjUw-t500x500.png">](https://soundcloud.com/djoggy1/drowning)
 
-**Artist**: Sherie Hartill, Wes P, Dream Frequency 
+**Artist**: DJ OGGY 
 
-**Track**: Faith - Wes P - Dream Frequency Ft Sherie Hartill Soudcloud Edit.wav
+**Track**: Drowning
 
-Last updated at 2/6/2026, 6:31:20 PM
+Last updated at 2/6/2026, 6:31:25 PM
