@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyP0Oljzbsyy4MF7-Wo1UNQ-t500x500.jpg">](https://soundcloud.com/imxue/dead-skin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zznSYTgyULysyRqk-5GCzLQ-t500x500.jpg">](https://soundcloud.com/the-techno-community/chuie-beat-the-funk-ttc)
 
-**Artist**: xue 
+**Artist**: TTC Records 
 
-**Track**: dead skin
+**Track**: Chuie - Beat The Funk [TTC022]
 
-Last updated at 2/6/2026, 6:43:17 PM
+Last updated at 2/6/2026, 6:44:26 PM
