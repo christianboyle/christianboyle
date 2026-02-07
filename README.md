@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJuuyoT0KQ84GJVg-0gOnxg-t500x500.jpg">](https://soundcloud.com/dropkick/solomon-grundle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TcQJfJl4xdwD5j4X-8T3jeg-t500x500.png">](https://soundcloud.com/itsplushtoi/2-plushtoi-can-u-keep-up-2)
 
-**Artist**: Dropkick 
+**Artist**: Plushtoi 
 
-**Track**: Solomon Grundle
+**Track**: 2. PLUSHTOi - Can U Keep Up!
 
-Last updated at 2/6/2026, 6:36:06 PM
+Last updated at 2/6/2026, 6:36:46 PM
