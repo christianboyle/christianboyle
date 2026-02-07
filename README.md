@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYM9a2yw0aSGQwCk-0iSSuQ-t500x500.png">](https://soundcloud.com/luhvmusic/juice-wrld-come-go-luhv-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zaLBNSu4cA93Xgxv-V0jOtA-t500x500.png">](https://soundcloud.com/phillionairemusic/lights-go-out-john-summit-phillionaire-flip)
 
-**Artist**: Luhv 
+**Artist**: Phillionaire 
 
-**Track**: Juice WRLD - Come & Go (Luhv Remix)
+**Track**: John Summit - Lights Go Out (Phillionaire Flip)
 
-Last updated at 2/6/2026, 6:40:46 PM
+Last updated at 2/6/2026, 6:40:51 PM
