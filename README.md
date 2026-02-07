@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TcQJfJl4xdwD5j4X-8T3jeg-t500x500.png">](https://soundcloud.com/itsplushtoi/2-plushtoi-can-u-keep-up-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YFgWz976B0KOzHdd-u7Upbg-t500x500.png">](https://soundcloud.com/m8trx/foldedlove)
 
-**Artist**: Plushtoi 
+**Artist**: M8TRX 
 
-**Track**: 2. PLUSHTOi - Can U Keep Up!
+**Track**: FOLDED 👖 // LOVE IN THIS CLUB 💜
 
-Last updated at 2/6/2026, 6:40:32 PM
+Last updated at 2/6/2026, 6:40:36 PM
