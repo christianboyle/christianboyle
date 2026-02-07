@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sd6aIqlh5tnzBXHg-bodlEQ-t500x500.png">](https://soundcloud.com/nash_rly/stop_me_fallin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0Jxa7z8wyzbDcRr-hOsrtQ-t500x500.png">](https://soundcloud.com/da-bow/eladio-carrion-bzrp-vol-4066-dabow-flip)
 
-**Artist**: Nash Rly 
+**Artist**: Dabow 
 
-**Track**: Stop Me Fallin
+**Track**: Eladio Carrion: Bzrp Vol. 40/66 [Dabow Flip]
 
-Last updated at 2/7/2026, 9:17:47 AM
+Last updated at 2/7/2026, 9:19:27 AM
