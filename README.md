@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7mCQFkurzbk0YYa6-AunujA-t500x500.png">](https://soundcloud.com/prodbyroyal99/restricted-x-nik-sitz-tunnel-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jD0QUcpzlK4Njoc9-4zciTA-t500x500.png">](https://soundcloud.com/dupermusic/obscure-by-nature)
 
-**Artist**: ROYAL, Restricted, Nik Sitz 
+**Artist**: DUPER 
 
-**Track**: Restricted X Nik Sitz - Tunnel Vision (ROYAL Remix)
+**Track**: Obscure by Nature
 
-Last updated at 2/6/2026, 6:30:55 PM
+Last updated at 2/6/2026, 6:31:10 PM
