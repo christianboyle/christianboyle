@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPmRmbaCWgXzA1bc-dyATRw-t500x500.png">](https://soundcloud.com/clubangel/what-should-i-do-next)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3g9CWuVKz9Qcq3Lv-3yjJJQ-t500x500.png">](https://soundcloud.com/xox-scruz/plustwo-melody-scruz-remix-yay)
 
-**Artist**: Club Angel 
+**Artist**: scruz 
 
-**Track**: What Should I Do Next?
+**Track**: plustwo - melody (scruz remix)
 
-Last updated at 2/7/2026, 9:38:45 AM
+Last updated at 2/7/2026, 9:39:45 AM
