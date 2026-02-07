@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ja3Egjsy4f0HPVE1-XmJv7A-t500x500.png">](https://soundcloud.com/jakazid/over-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ze7OX0ePzcWb7NZm-HAiqKg-t500x500.jpg">](https://soundcloud.com/darn84/twista-rsr-transmission-twista)
 
-**Artist**: JAKAZiD 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: Over U [OUT NOW on Rave to the Past Vol.2]
+**Track**: Twista & RSR - Transmission - Twista Records (2010)
 
-Last updated at 2/6/2026, 6:44:56 PM
+Last updated at 2/6/2026, 6:45:01 PM
