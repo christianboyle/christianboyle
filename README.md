@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TcQJfJl4xdwD5j4X-8T3jeg-t500x500.png">](https://soundcloud.com/itsplushtoi/2-plushtoi-can-u-keep-up-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jf3CSTf9m1XEyi8b-mypzAA-t500x500.png">](https://soundcloud.com/zenxow-patreon/zenxow-secta-calamar-patreon)
 
-**Artist**: Plushtoi 
+**Artist**: ZENXOW (PATREON & PLATES) 
 
-**Track**: 2. PLUSHTOi - Can U Keep Up!
+**Track**: ZENXOW - SECTA CALAMAR (PATREON EXCLUSIVE)
 
-Last updated at 2/6/2026, 6:36:46 PM
+Last updated at 2/6/2026, 6:39:16 PM
