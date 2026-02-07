@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOw5cwrWZsGuLj1n-fKHSsg-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-only-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z3gtEOwD8xyByfGR-Ao2Wqg-t500x500.png">](https://soundcloud.com/user-578406259/smokey-scott-f-sleep-tonight)
 
-**Artist**: Jordan Irwin 
+**Artist**: Smokey & Scott F 
 
-**Track**: Jordan Irwin - Only You
+**Track**: Smokey & Scott F - Sleep Tonight [sample]
 
-Last updated at 2/6/2026, 7:05:04 PM
+Last updated at 2/6/2026, 7:05:14 PM
