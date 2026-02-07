@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7hYUTgByieNS7go-sWzucw-t500x500.jpg">](https://soundcloud.com/gemlyfe/whine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RKLSghQA54JWYJVG-OrAVHw-t500x500.jpg">](https://soundcloud.com/uxiexo/nameless)
 
-**Artist**: bmolly 
+**Artist**: uxie, tera 
 
-**Track**: Whine
+**Track**: Nameless 🏆🎉🥇 #XO (Erdo & Moru) ⊹☾⋆⁺₊🎧✩°｡ #dynasty
 
-Last updated at 2/6/2026, 7:06:49 PM
+Last updated at 2/6/2026, 7:06:54 PM
