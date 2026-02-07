@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePIdGrgmB5wL1HAA-oGCWww-t500x500.jpg">](https://soundcloud.com/okosaint/see-how-i-do-it-crusey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJwJt9WmhzzTWyDI-acWLFQ-t500x500.jpg">](https://soundcloud.com/ntdubz/toxic-raw)
 
-**Artist**: oko 
+**Artist**: NT 
 
-**Track**: see how i do it + crusey prod cwta
+**Track**: NT - TOXIC RAW (CLIP)
 
-Last updated at 2/6/2026, 7:10:34 PM
+Last updated at 2/6/2026, 7:10:44 PM
