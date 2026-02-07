@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LcLYLYrffqFN5P58-u0PBOQ-t500x500.jpg">](https://soundcloud.com/initi8uk/initi8-miami-82?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5QFboBN58ci-0-t500x500.jpg">](https://soundcloud.com/0800shygirl/siren-is-out-of-reach-tdj?in=saxurn/sets/yoloid/)
 
-**Artist**: Initi8 
+**Artist**: Shygirl, TDJ 
 
-**Track**: INITI8 - MIAMI 82
+**Track**: SIREN is OUT OF REACH [TDJ]
 
-Last updated at 2/7/2026, 4:14:57 PM
+Last updated at 2/7/2026, 4:16:17 PM
