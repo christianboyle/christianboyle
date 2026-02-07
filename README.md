@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4IECbv33ATr1SX5A-GJhxjw-t500x500.png">](https://soundcloud.com/hexadevi/house-of-balloons-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ePIdGrgmB5wL1HAA-oGCWww-t500x500.jpg">](https://soundcloud.com/okosaint/see-how-i-do-it-crusey)
 
-**Artist**: Hexadevi 
+**Artist**: oko 
 
-**Track**: The Weeknd - House of Balloons (Hexadevi Flip)
+**Track**: see how i do it + crusey prod cwta
 
-Last updated at 2/6/2026, 7:10:29 PM
+Last updated at 2/6/2026, 7:10:34 PM
