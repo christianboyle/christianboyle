@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zznSYTgyULysyRqk-5GCzLQ-t500x500.jpg">](https://soundcloud.com/the-techno-community/chuie-beat-the-funk-ttc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MUublZHUydylOKEO-wElyjw-t500x500.jpg">](https://soundcloud.com/earth-hz/hobi-swrvn-thru-tha)
 
-**Artist**: TTC Records 
+**Artist**: earth Hz 
 
-**Track**: Chuie - Beat The Funk [TTC022]
+**Track**: hobi - swrvn thru tha
 
-Last updated at 2/6/2026, 6:44:26 PM
+Last updated at 2/6/2026, 6:44:31 PM
