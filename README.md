@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0DY64hBwezoU6poh-50zL9w-t500x500.jpg">](https://soundcloud.com/tommymcmusic/fast-car-out-now-hit-dl-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDzPVj0pgLCHbv1T-ffmiyQ-t500x500.jpg">](https://soundcloud.com/lozziedj/lozzie-love-shy-2021-mix)
 
-**Artist**: Tommy Mc 
+**Artist**: LOZZIE 
 
-**Track**: Tommy Mc - Fast Car [FREE EDIT DOWNLOAD]
+**Track**: Lozzie - Love Shy (2021 Mix) FREE DOWNLOAD
 
-Last updated at 2/6/2026, 7:20:50 PM
+Last updated at 2/6/2026, 7:21:10 PM
