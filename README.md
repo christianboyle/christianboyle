@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zv74BAmLEhWyPc2r-346puQ-t500x500.jpg">](https://soundcloud.com/notsegan/john-summit-lights-go-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B624APSMnOY5-0-t500x500.jpg">](https://soundcloud.com/manilakilla/killa-babe)
 
-**Artist**: Segan 
+**Artist**: Manila Killa, Tiaro, Maya Sarkissian 
 
-**Track**: John Summit - Lights Go Out (Segan Remix)
+**Track**: KILLA BABE
 
-Last updated at 2/6/2026, 7:10:19 PM
+Last updated at 2/6/2026, 7:10:24 PM
