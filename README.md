@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IB7n32LjZ3G6VDFq-njMABg-t500x500.jpg">](https://soundcloud.com/bpmbullyz/dave-reeve-vs-hardy-m-euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7ET8xMPJVn7jruyt-jFFJxA-t500x500.jpg">](https://soundcloud.com/kevin-mcgill-949477615/rec-2026-02-06)
 
-**Artist**: Hardy M 
+**Artist**: DJKEVMC 
 
-**Track**: Dave Reeve Vs Hardy M - Euphoria
+**Track**: Just Bangin 2026 Part 1
 
-Last updated at 2/6/2026, 6:31:45 PM
+Last updated at 2/6/2026, 6:31:50 PM
