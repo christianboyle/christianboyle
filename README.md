@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wa7TwflW0fPdva3D-8i6TBQ-t500x500.jpg">](https://soundcloud.com/synovamusic/comeclean)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000)
 
-**Artist**: Synova 
+**Artist**: Darby 
 
-**Track**: Hilary Duff - Come Clean (Synova Flip)
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/6/2026, 7:16:10 PM
+Last updated at 2/6/2026, 7:16:15 PM
