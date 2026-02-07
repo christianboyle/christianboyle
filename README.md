@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtDzFaBqzzzkgVPM-1brmcA-t500x500.jpg">](https://soundcloud.com/terastic/worldwide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1crYUFoi0ynzdKVC-y1c9bw-t500x500.jpg">](https://soundcloud.com/skinnylimbs/potion)
 
-**Artist**: tera 
+**Artist**: Skinny Limbs 
 
-**Track**: WORLDWIDE +SEPH PROD ERDO & CENTRLX #DYNASTYSZN
+**Track**: Potion
 
-Last updated at 2/6/2026, 7:10:49 PM
+Last updated at 2/6/2026, 7:10:54 PM
