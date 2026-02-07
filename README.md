@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ze7OX0ePzcWb7NZm-HAiqKg-t500x500.jpg">](https://soundcloud.com/darn84/twista-rsr-transmission-twista)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1uQaJHF4V0HOLJQ-dU8q0g-t500x500.png">](https://soundcloud.com/jimmer-mcallister/jimmer-let-the-beat-control)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Jimmer • DJs Factory 
 
-**Track**: Twista & RSR - Transmission - Twista Records (2010)
+**Track**: Jimmer - Let the Beat Control Your Body [sample]
 
-Last updated at 2/6/2026, 6:45:01 PM
+Last updated at 2/6/2026, 6:45:07 PM
