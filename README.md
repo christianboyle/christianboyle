@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gtzwwlcuNlw1S4AF-v9GpOA-t500x500.png">](https://soundcloud.com/ktrl/the-chainsmokers-helium-ktrl-perses-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYM9a2yw0aSGQwCk-0iSSuQ-t500x500.png">](https://soundcloud.com/luhvmusic/juice-wrld-come-go-luhv-1)
 
-**Artist**: KTRL, PERSES, The Chainsmokers 
+**Artist**: Luhv 
 
-**Track**: The Chainsmokers - HELIUM (KTRL & PERSES Remix)
+**Track**: Juice WRLD - Come & Go (Luhv Remix)
 
-Last updated at 2/6/2026, 6:40:41 PM
+Last updated at 2/6/2026, 6:40:46 PM
