@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5QFboBN58ci-0-t500x500.jpg">](https://soundcloud.com/0800shygirl/siren-is-out-of-reach-tdj?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGSurzsrS3ydJH1C-uTMNmQ-t500x500.png">](https://soundcloud.com/debisco/stronger?in=saxurn/sets/yoloid/)
 
-**Artist**: Shygirl, TDJ 
+**Artist**: DeBisco 
 
-**Track**: SIREN is OUT OF REACH [TDJ]
+**Track**: Stronger
 
-Last updated at 2/7/2026, 4:16:17 PM
+Last updated at 2/7/2026, 4:19:23 PM
