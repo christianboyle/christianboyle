@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vxp7kmBeNUw59G4X-bqzErg-t500x500.png">](https://soundcloud.com/2spademusic/beenzino-boogie-on-on-2spade-x-doberman-hdm-flip-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xWXOxVc5rpL0BeJK-55mNoQ-t500x500.jpg">](https://soundcloud.com/saokevvo/gaze)
 
-**Artist**: 2Spade, DOBERMAN_KR 
+**Artist**: saokevvo 
 
-**Track**: Beenzino – Boogie On & On (2Spade x Doberman HDM FLIP)
+**Track**: sao‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎- ‎ ‎ ‎ ‎ ‎ ‎ gaze ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ @rhekdens
 
-Last updated at 2/7/2026, 5:57:30 PM
+Last updated at 2/7/2026, 5:58:35 PM
