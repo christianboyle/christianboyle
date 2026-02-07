@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vVjUkTZNzOtIbluM-BYfwvQ-t500x500.png">](https://soundcloud.com/hangthedjsuk/showtek-fts-hang-the-djs-bootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TwPJso7fxThBRuO6-0rsl2w-t500x500.png">](https://soundcloud.com/stomping-recordings/strobe-lights-in-my-room-wip)
 
-**Artist**: Hang The DJs 
+**Artist**: WOGGY 
 
-**Track**: Showtek - FTS (Hang The DJs Bootleg)
+**Track**: STROBE LIGHTS IN MY ROOM -WIP
 
-Last updated at 2/6/2026, 6:35:31 PM
+Last updated at 2/6/2026, 6:35:36 PM
