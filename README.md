@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lyEoLWdyKJzAlxCs-RWBykQ-t500x500.png">](https://soundcloud.com/presentlylifted/ghost-rook-innate-domain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ErQI2f9gN7ZYKx3-mMCavA-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/jay-phoenix-daevo-crazy-free-download-1)
 
-**Artist**: Ghost Rook 
+**Artist**: Jay Phoenix & Daevo 
 
-**Track**: Innate Domain
+**Track**: Jay Phoenix & Daevo - Crazy [FREE DOWNLOAD]
 
-Last updated at 2/6/2026, 7:15:55 PM
+Last updated at 2/6/2026, 7:16:00 PM
