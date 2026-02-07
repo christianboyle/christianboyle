@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYM9a2yw0aSGQwCk-0iSSuQ-t500x500.png">](https://soundcloud.com/luhvmusic/juice-wrld-come-go-luhv-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NJYD3YjbR8RVma7Q-mNyUKA-t500x500.png">](https://soundcloud.com/recyclexbin/wingsandacurse)
 
-**Artist**: Luhv 
+**Artist**: recycleBin, pradaaslife, april21 
 
-**Track**: Juice WRLD - Come & Go (Luhv Remix)
+**Track**: Wings and a Curse (ft. pradaaslife) [prod. recycleBin & april21]
 
-Last updated at 2/6/2026, 6:42:46 PM
+Last updated at 2/6/2026, 6:43:02 PM
