@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IxskFgmBVRy3gwQW-pluW5w-t500x500.jpg">](https://soundcloud.com/meridiyn/john-summit-lights-go-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wa7TwflW0fPdva3D-8i6TBQ-t500x500.jpg">](https://soundcloud.com/synovamusic/comeclean)
 
-**Artist**: Meridiyn 
+**Artist**: Synova 
 
-**Track**: John Summit - Lights Go Out (Meridiyn Remix)
+**Track**: Hilary Duff - Come Clean (Synova Flip)
 
-Last updated at 2/6/2026, 7:16:05 PM
+Last updated at 2/6/2026, 7:16:10 PM
