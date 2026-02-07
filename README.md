@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPmmeQG4wryfH8eo-efg2bg-t500x500.jpg">](https://soundcloud.com/froggore/fried)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qPmRmbaCWgXzA1bc-dyATRw-t500x500.png">](https://soundcloud.com/clubangel/what-should-i-do-next)
 
-**Artist**: FROGGORE 
+**Artist**: Club Angel 
 
-**Track**: FROGGORE - F.R.I.E.D.
+**Track**: What Should I Do Next?
 
-Last updated at 2/7/2026, 9:37:30 AM
+Last updated at 2/7/2026, 9:38:45 AM
