@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E0Jxa7z8wyzbDcRr-hOsrtQ-t500x500.png">](https://soundcloud.com/da-bow/eladio-carrion-bzrp-vol-4066-dabow-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-crdpS3Bu7kej0wzM-IDkcNQ-t500x500.jpg">](https://soundcloud.com/billythekiddub/rave-ft-via-1)
 
-**Artist**: Dabow 
+**Artist**: BILLYTHEKID 
 
-**Track**: Eladio Carrion: Bzrp Vol. 40/66 [Dabow Flip]
+**Track**: RAVE FT. VIA
 
-Last updated at 2/7/2026, 9:19:27 AM
+Last updated at 2/7/2026, 9:20:27 AM
