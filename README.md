@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDzPVj0pgLCHbv1T-ffmiyQ-t500x500.jpg">](https://soundcloud.com/lozziedj/lozzie-love-shy-2021-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aOsjpy6er0qgpyA6-7gLBbQ-t500x500.jpg">](https://soundcloud.com/stompa-g/makina-addiction-05-02-26)
 
-**Artist**: LOZZIE 
+**Artist**: DJ STOMPA G 
 
-**Track**: Lozzie - Love Shy (2021 Mix) FREE DOWNLOAD
+**Track**: MAKINA ADDICTION 05/02/26
 
-Last updated at 2/6/2026, 7:21:10 PM
+Last updated at 2/6/2026, 7:21:20 PM
