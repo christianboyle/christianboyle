@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7k7akzoutOJuPzVa-TvcpgQ-t500x500.jpg">](https://soundcloud.com/circadian-riff/polyneural-labs-live-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oq0Oc5htKLzSgsKr-1HXImA-t500x500.png">](https://soundcloud.com/phluxxbass/wiley-mental-phluxx-flip)
 
-**Artist**: Circa 
+**Artist**: PHLUXX 
 
-**Track**: Traffik Jams Live Mix
+**Track**: WILEY - MENTAL (PHLUXX FLIP)
 
-Last updated at 2/6/2026, 6:44:41 PM
+Last updated at 2/6/2026, 6:44:46 PM
