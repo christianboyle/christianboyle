@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCW8sB4Z5B2cJCri-NSVD8A-t500x500.jpg">](https://soundcloud.com/jgsmakina/jgs-intent-alectrona-feat-siobbhan-always-on-my-mind-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MYwUuW6k5ofPqSia-vigJPA-t500x500.png">](https://soundcloud.com/gltymusic/peteandbasflip)
 
-**Artist**: JGS 
+**Artist**: GLTY 
 
-**Track**: JGS, INTENT & Alectrona Feat. Siobbhan - Always On My Mind (Sample)
+**Track**: Pete & Bas - Stepped Into The Building (GLTY Flip)
 
-Last updated at 2/6/2026, 6:31:30 PM
+Last updated at 2/6/2026, 6:31:35 PM
