@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AvOcmRy78btg3777-80ZC6A-t500x500.png">](https://soundcloud.com/johnniezone/johnnie-zone-old-but-gold-rewired-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mEulKr3KW4zru3CG-y98YTA-t500x500.png">](https://soundcloud.com/the-rad-hatter/surrender)
 
-**Artist**: Johnnie Zone 
+**Artist**: The Rad Hatter 
 
-**Track**: Johnnie Zone - Old But Gold (Rewired Records)
+**Track**: Surrender
 
-Last updated at 2/6/2026, 6:41:06 PM
+Last updated at 2/6/2026, 6:41:26 PM
