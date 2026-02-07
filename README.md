@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kJwJt9WmhzzTWyDI-acWLFQ-t500x500.jpg">](https://soundcloud.com/ntdubz/toxic-raw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtDzFaBqzzzkgVPM-1brmcA-t500x500.jpg">](https://soundcloud.com/terastic/worldwide)
 
-**Artist**: NT 
+**Artist**: tera 
 
-**Track**: NT - TOXIC RAW (CLIP)
+**Track**: WORLDWIDE +SEPH PROD ERDO & CENTRLX #DYNASTYSZN
 
-Last updated at 2/6/2026, 7:10:44 PM
+Last updated at 2/6/2026, 7:10:49 PM
