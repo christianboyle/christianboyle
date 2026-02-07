@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jD0QUcpzlK4Njoc9-4zciTA-t500x500.png">](https://soundcloud.com/dupermusic/obscure-by-nature)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E2zUaFpFWgVygz2N-ILymYg-t500x500.png">](https://soundcloud.com/bonka-mashups-iii/mashup-mayhem-vol3)
 
-**Artist**: DUPER 
+**Artist**: BONKA  
 
-**Track**: Obscure by Nature
+**Track**: MASHUP MAYHEM VOL.3 **FREE DOWNLOAD NOW**
 
-Last updated at 2/6/2026, 6:31:10 PM
+Last updated at 2/6/2026, 6:31:15 PM
