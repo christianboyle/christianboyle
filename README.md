@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pHWQH49RroizPvhx-QEgjzw-t500x500.jpg">](https://soundcloud.com/air_or/its-on-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b7hYUTgByieNS7go-sWzucw-t500x500.jpg">](https://soundcloud.com/gemlyfe/whine)
 
-**Artist**: airynore 
+**Artist**: bmolly 
 
-**Track**: It's On You
+**Track**: Whine
 
-Last updated at 2/6/2026, 7:06:24 PM
+Last updated at 2/6/2026, 7:06:49 PM
