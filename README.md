@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/whitney-houston-its-not-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oJuuyoT0KQ84GJVg-0gOnxg-t500x500.jpg">](https://soundcloud.com/dropkick/solomon-grundle)
 
-**Artist**: V-Bounce 
+**Artist**: Dropkick 
 
-**Track**: Whitney Houston - It's Not Right But It's Okay (V-Bounce Remake Mix) Hypasonic No Donk m
+**Track**: Solomon Grundle
 
-Last updated at 2/6/2026, 6:36:01 PM
+Last updated at 2/6/2026, 6:36:06 PM
