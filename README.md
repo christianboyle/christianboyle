@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MCfhXdy9bpTxyrlx-Mbuujw-t500x500.png">](https://soundcloud.com/ryan3138-885309451/bounce-bangers-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOw5cwrWZsGuLj1n-fKHSsg-t500x500.png">](https://soundcloud.com/jordanirwin/jordan-irwin-only-you)
 
-**Artist**: 🎧Sparky🎧 
+**Artist**: Jordan Irwin 
 
-**Track**: Bounce Bangers 8
+**Track**: Jordan Irwin - Only You
 
-Last updated at 2/6/2026, 7:04:59 PM
+Last updated at 2/6/2026, 7:05:04 PM
