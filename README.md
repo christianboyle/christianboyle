@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lRLxLVbFmpajVnV5-bay5Rg-t500x500.png">](https://soundcloud.com/user-779109164/tommy-davis-x-mossy-ultimate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zv74BAmLEhWyPc2r-346puQ-t500x500.jpg">](https://soundcloud.com/notsegan/john-summit-lights-go-out)
 
-**Artist**: Tommy D X Mossy 
+**Artist**: Segan 
 
-**Track**: Tommy Davis X Mossy Ultimate Rework Mix
+**Track**: John Summit - Lights Go Out (Segan Remix)
 
-Last updated at 2/6/2026, 7:08:04 PM
+Last updated at 2/6/2026, 7:10:19 PM
