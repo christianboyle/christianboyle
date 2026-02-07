@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rfarh3fHbwmsYUGt-fATsyQ-t500x500.png">](https://soundcloud.com/4ktunezuk/drake-liddell-electric-skies)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPmmeQG4wryfH8eo-efg2bg-t500x500.jpg">](https://soundcloud.com/froggore/fried)
 
-**Artist**: 4K TUNEZ UK OFFICIAL 
+**Artist**: FROGGORE 
 
-**Track**: Drake Liddell - Electric Skies (2026)
+**Track**: FROGGORE - F.R.I.E.D.
 
-Last updated at 2/7/2026, 9:35:55 AM
+Last updated at 2/7/2026, 9:37:30 AM
