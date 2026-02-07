@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Kc06fFdw0NtVM5Jz-2HJjUw-t500x500.png">](https://soundcloud.com/djoggy1/drowning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UCW8sB4Z5B2cJCri-NSVD8A-t500x500.jpg">](https://soundcloud.com/jgsmakina/jgs-intent-alectrona-feat-siobbhan-always-on-my-mind-sample)
 
-**Artist**: DJ OGGY 
+**Artist**: JGS 
 
-**Track**: Drowning
+**Track**: JGS, INTENT & Alectrona Feat. Siobbhan - Always On My Mind (Sample)
 
-Last updated at 2/6/2026, 6:31:25 PM
+Last updated at 2/6/2026, 6:31:30 PM
