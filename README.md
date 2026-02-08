@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k3041qPINslyi0WL-vUfjoQ-t500x500.png">](https://soundcloud.com/itsrestricted/fcca5a41-127e-492a-b3b3-6b90ff0e7ceb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-axd96s7nVAjyJLXm-TocOjg-t500x500.png">](https://soundcloud.com/sadyouth/benee-green-honda-sadyouth)
 
-**Artist**: Restricted 
+**Artist**: SADYOUTH 
 
-**Track**: Crowd Operator
+**Track**: BENEE - GREEN HONDA (SADYOUTH BOOTLEG) FREE DL
 
-Last updated at 2/8/2026, 7:41:36 AM
+Last updated at 2/8/2026, 7:41:41 AM
