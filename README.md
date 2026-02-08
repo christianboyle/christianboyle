@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eg33sQKySypCHrjY-U5idYQ-t500x500.png">](https://soundcloud.com/tabularasarecords/shaking-cerulo-trust)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzPuonrpiYhM89KD-zIk0rw-t500x500.png">](https://soundcloud.com/niotech/niotech-x-vaent-crazy-frog-on-acid-free-dl)
 
-**Artist**: Tabula Rasa Records 
+**Artist**: Niotech, VAENT 
 
-**Track**: SHAKING, Cerulo - Trust
+**Track**: Niotech X  VAENT - Crazy Frog (On Acid) [Free DL]
 
-Last updated at 2/8/2026, 7:34:40 AM
+Last updated at 2/8/2026, 7:34:55 AM
