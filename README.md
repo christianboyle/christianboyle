@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0F19CEnkWKNI27qS-iNh3iA-t500x500.png">](https://soundcloud.com/brainrackofficial/lynysectionbrainrackremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHyhzC8nOftVqYBm-ACYemA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/westside-connection-bow-down-mstic-brainrack-remix)
 
-**Artist**: BRAINRACK 
+**Artist**: M?STIC, Brainrack 
 
-**Track**: LYNY - Section (Brainrack Remix)
+**Track**: WESTSIDE CONNECTION - BOW DOWN (M?STIC & Brainrack REMIX)
 
-Last updated at 2/8/2026, 6:02:12 AM
+Last updated at 2/8/2026, 7:27:05 AM
