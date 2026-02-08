@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcdDZKaDnyBqkYnP-8iJXyg-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-macarena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip)
 
-**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
+**Artist**: BANkaJI 
 
-**Track**: MIZZDEE- MACARENA
+**Track**: Moreart - Tom Ford (BANkaJI Flip)
 
-Last updated at 2/7/2026, 9:09:05 PM
+Last updated at 2/7/2026, 9:12:50 PM
