@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yj33mlRUvGot4DQ7-8eDyZw-t500x500.jpg">](https://soundcloud.com/werosemusic/manic-at-the-disco)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yt6QFcLi7pm9F1VC-UZ2e5w-t500x500.jpg">](https://soundcloud.com/earth-hz/velcroshirt-x-devowr-fahhh)
 
-**Artist**: We Rose 
+**Artist**: VelcroShirt, DEVOWR. 
 
-**Track**: Manic (At The Disco)
+**Track**: VelcroShirt X DEVOWR. - FAHHH!
 
-Last updated at 2/8/2026, 7:36:20 AM
+Last updated at 2/8/2026, 7:41:11 AM
