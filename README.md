@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iyHyNPOxX8J8hRjf-xMAjng-t500x500.png">](https://soundcloud.com/user-578406259/hardcore-anthems-vol-1-mixed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdpSfLwAsMh2OJqi-hZDV9w-t500x500.png">](https://soundcloud.com/hendy2017/breeze-styles-heartbeatz-hendy)
 
-**Artist**: Smokey 
+**Artist**: DJ Hendy 
 
-**Track**: Hardcore Anthems Vol 1 (Mixed By DJ Smokey)
+**Track**: Breeze & Styles - Heartbeatz (Hendy Remix)
 
-Last updated at 2/8/2026, 7:27:19 AM
+Last updated at 2/8/2026, 7:33:30 AM
