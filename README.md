@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hhh51GzAuAqW-0-t500x500.jpg">](https://soundcloud.com/inzo_music/world-is-yours-mind-splitter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Tzf4Lhv2DWB8yq5-Am0Fxg-t500x500.png">](https://soundcloud.com/lespaysbassradio/bassjackers-presents-les-pays)
 
-**Artist**: INZO, Blookah, ProbCause, Mind Splitter 
+**Artist**: Les Pays Bass Radio 
 
-**Track**: World Is Yours (Mind Splitter Remix)
+**Track**: Bassjackers presents Les Pays Bass Radio 072
 
-Last updated at 2/8/2026, 7:41:51 AM
+Last updated at 2/8/2026, 7:41:56 AM
