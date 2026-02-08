@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbU89kdMbHKusKcW-0NnmJg-t500x500.jpg">](https://soundcloud.com/lisahigham81/01-rec-2026-02-05)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2OahiStWgd0oJhrv-X3ux7w-t500x500.jpg">](https://soundcloud.com/garethdavies/gareth-davies-wrongun-free)
 
-**Artist**: Yes ii  
+**Artist**: Gareth Davies - Davies Unleashed 
 
-**Track**: Yes ii presents The Bounce Generation vol 77 Feat Dicky 💥💥
+**Track**: Gareth Davies - Wrong'un - FREE DOWNLOAD
 
-Last updated at 2/8/2026, 10:33:53 AM
+Last updated at 2/8/2026, 10:35:28 AM
