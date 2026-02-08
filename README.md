@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Tzf4Lhv2DWB8yq5-Am0Fxg-t500x500.png">](https://soundcloud.com/lespaysbassradio/bassjackers-presents-les-pays)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/i-have-no-purpose-and-i-think)
 
-**Artist**: Les Pays Bass Radio 
+**Artist**: beverly hills mom 
 
-**Track**: Bassjackers presents Les Pays Bass Radio 072
+**Track**: i have no purpose and i think thats beautiful
 
-Last updated at 2/8/2026, 7:41:56 AM
+Last updated at 2/8/2026, 7:42:01 AM
