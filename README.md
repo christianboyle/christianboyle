@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dKv2H5QeTv53c5Ut-TqQlmg-t500x500.png">](https://soundcloud.com/d3xtrrr/best-friend-d3xtr-remix-saweetie-x-doja-cat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qBtQbUlAYC744xqE-ApVrDQ-t500x500.png">](https://soundcloud.com/w-a-production/grand-african-house-vocals)
 
-**Artist**: D3XTR 
+**Artist**: W. A. Production® 
 
-**Track**: Best Friend (D3XTR Remix) - Saweetie X Doja Cat [Free Download]
+**Track**: Grand African House Vocals | Vocal Kits, Loops & Phrases
 
-Last updated at 2/8/2026, 7:42:11 AM
+Last updated at 2/8/2026, 7:42:21 AM
