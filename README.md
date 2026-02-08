@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynZLCd5sunvIE4Pv-JPPvdA-t500x500.png">](https://soundcloud.com/guerromusic/lil-wayne-a-milli-guerro-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eg33sQKySypCHrjY-U5idYQ-t500x500.png">](https://soundcloud.com/tabularasarecords/shaking-cerulo-trust)
 
-**Artist**: GUERRO 
+**Artist**: Tabula Rasa Records 
 
-**Track**: Lil Wayne - A Milli (GUERRO Flip)
+**Track**: SHAKING, Cerulo - Trust
 
-Last updated at 2/8/2026, 7:34:35 AM
+Last updated at 2/8/2026, 7:34:40 AM
