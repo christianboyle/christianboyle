@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XzPuonrpiYhM89KD-zIk0rw-t500x500.png">](https://soundcloud.com/niotech/niotech-x-vaent-crazy-frog-on-acid-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ky5rUJ0rRn8GF9oE-6XeWvQ-t500x500.png">](https://soundcloud.com/iaminfms/getitstartedwlordkado)
 
-**Artist**: Niotech, VAENT 
+**Artist**: iNFMS 
 
-**Track**: Niotech X  VAENT - Crazy Frog (On Acid) [Free DL]
+**Track**: GET IT STARTED w/ LordKado
 
-Last updated at 2/8/2026, 7:34:55 AM
+Last updated at 2/8/2026, 7:35:00 AM
