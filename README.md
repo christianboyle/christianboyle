@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhzNB8bF1hNG8DRb-L6TScA-t500x500.png">](https://soundcloud.com/itsyokomusic/downhill-jam-feat-pheel-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iyHyNPOxX8J8hRjf-xMAjng-t500x500.png">](https://soundcloud.com/user-578406259/hardcore-anthems-vol-1-mixed)
 
-**Artist**: Yoko, pheel. 
+**Artist**: Smokey 
 
-**Track**: Downhill Jam (feat. pheel.) [Electric Hawk Premiere]
+**Track**: Hardcore Anthems Vol 1 (Mixed By DJ Smokey)
 
-Last updated at 2/8/2026, 7:27:09 AM
+Last updated at 2/8/2026, 7:27:19 AM
