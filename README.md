@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-NyYryvzDHirSyYpT-zsr8eg-t500x500.jpg">](https://soundcloud.com/beverlyhillsmom/i-have-no-purpose-and-i-think)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dKv2H5QeTv53c5Ut-TqQlmg-t500x500.png">](https://soundcloud.com/d3xtrrr/best-friend-d3xtr-remix-saweetie-x-doja-cat)
 
-**Artist**: beverly hills mom 
+**Artist**: D3XTR 
 
-**Track**: i have no purpose and i think thats beautiful
+**Track**: Best Friend (D3XTR Remix) - Saweetie X Doja Cat [Free Download]
 
-Last updated at 2/8/2026, 7:42:01 AM
+Last updated at 2/8/2026, 7:42:11 AM
