@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvoydzkYoHvuQLSM-I1AzkQ-t500x500.png">](https://soundcloud.com/luminyst/vision-illanthropy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nVfbk54fyUlKj04P-lsWZJQ-t500x500.jpg">](https://soundcloud.com/circomusic/circo-wherehaveyoubeen)
 
-**Artist**: Luminyst, Ravenscoon, illanthropy 
+**Artist**: CIRCO 
 
-**Track**: VISION (ILLANTHROPY Remix)
+**Track**: Rihanna - Where Have You Been (CIRCO Edit) [FREE DL]
 
-Last updated at 2/8/2026, 7:41:26 AM
+Last updated at 2/8/2026, 7:41:31 AM
