@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hoy7emeir5IR6C2p-teCXpg-t500x500.jpg">](https://soundcloud.com/scott-hoy/armin-van-buuren-on-on-scott)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
 
-**Artist**: Scott Hoy/Gen 92 
+**Artist**: Big Ric DJ 
 
-**Track**: Armin Van Buuren - On & On [Scott Hoy Remix]
+**Track**: Big Ric - Not Touching The Ground
 
-Last updated at 2/9/2026, 8:42:28 AM
+Last updated at 2/9/2026, 8:46:08 AM
