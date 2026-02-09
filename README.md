@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
 
-**Artist**: Gomboc Records 
+**Artist**: Big Ric DJ 
 
-**Track**: IGDA - Jumpa Fya La (Free Download)
+**Track**: Big Ric - Not Touching The Ground
 
-Last updated at 2/9/2026, 10:32:05 AM
+Last updated at 2/9/2026, 10:38:53 AM
