@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3uTo2U6LBfzvMje8-gn4czA-t500x500.png">](https://soundcloud.com/slowboyyy/destruction)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rM1cuyTDR8x0D3U0-FBWcIg-t500x500.jpg">](https://soundcloud.com/wynde-up/wynde-up-is-the-price-right)
 
-**Artist**: Slowboy, Dabow, Lenny 
+**Artist**: Wynde Up 
 
-**Track**: Slowboy, Dabow, Lenny - DESTRUCTION
+**Track**: Wynde Up - Is The Price Right
 
-Last updated at 2/9/2026, 8:18:27 AM
+Last updated at 2/9/2026, 8:39:53 AM
