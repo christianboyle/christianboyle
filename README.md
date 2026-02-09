@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynyYM31vD13thk0z-JgoBTg-t500x500.png">](https://soundcloud.com/2tdmusic/crayzee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWZ4kWBt10leHufa-mrjRfQ-t500x500.jpg">](https://soundcloud.com/ekimose/red-hot-chili-peppers-cant-stop-ekimose-hypertechno-edit-free-download)
 
-**Artist**: 2TD, QL1X 
+**Artist**: Ekimose 
 
-**Track**: CRAYZEE
+**Track**: Red Hot Chili Peppers - Can't Stop (Ekimose Hypertechno Edit) FREE DOWNLOAD
 
-Last updated at 2/9/2026, 10:43:39 AM
+Last updated at 2/9/2026, 10:46:39 AM
