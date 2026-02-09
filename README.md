@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-otHoeWxD1pUiT0o1-UXjsEQ-t500x500.jpg">](https://soundcloud.com/djpulsepodcast/some-kinda-rush-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download)
 
-**Artist**: Dj Pulse 
+**Artist**: Gomboc Records 
 
-**Track**: Some Kinda Rush
+**Track**: IGDA - Jumpa Fya La (Free Download)
 
-Last updated at 2/9/2026, 10:29:02 AM
+Last updated at 2/9/2026, 10:32:05 AM
