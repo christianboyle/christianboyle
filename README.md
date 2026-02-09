@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVL1N3G2ARiaL69Q-JNBHnQ-t500x500.jpg">](https://soundcloud.com/xox-scruz/paramore-still-into-u-scruz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcdDZKaDnyBqkYnP-8iJXyg-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-macarena)
 
-**Artist**: scruz 
+**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
 
-**Track**: paramore - still into you (scruz remix)
+**Track**: MIZZDEE- MACARENA
 
-Last updated at 2/9/2026, 10:55:05 AM
+Last updated at 2/9/2026, 10:59:40 AM
