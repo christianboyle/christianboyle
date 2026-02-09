@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dv9vHNxmzsXBf3Il-sGHmvg-t500x500.png">](https://soundcloud.com/illeniumofficial/dont-want-your-love)
 
-**Artist**: Gomboc Records 
+**Artist**: ILLENIUM, Ellie Goulding 
 
-**Track**: IGDA - Jumpa Fya La (Free Download)
+**Track**: Don't Want Your Love
 
-Last updated at 2/9/2026, 5:21:30 PM
+Last updated at 2/9/2026, 5:38:10 PM
