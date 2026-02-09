@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S1iavRvxduCiRM6o-og2B7g-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-under-the-strobe-lights?in=revolution-records-uk/sets/gee-revolutionized-ep-out-20th)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yHyhzC8nOftVqYBm-ACYemA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/westside-connection-bow-down-mstic-brainrack-remix)
 
-**Artist**: Revolution-Records UK 
+**Artist**: M?STIC, Brainrack 
 
-**Track**: GEE - UNDER THE STROBE LIGHTS
+**Track**: WESTSIDE CONNECTION - BOW DOWN (M?STIC & Brainrack REMIX)
 
-Last updated at 2/9/2026, 5:39:15 PM
+Last updated at 2/9/2026, 5:39:20 PM
