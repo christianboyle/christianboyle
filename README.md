@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJRFYAvUTSe3k1si-TAtmow-t500x500.png">](https://soundcloud.com/aswordinthestone/mountaintop-of-the-giants)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CpkT94Xykhyv6n4h-nYAM9Q-t500x500.jpg">](https://soundcloud.com/dillonfrancis/what-it-feels-like)
 
-**Artist**: A Sword in the Stone 
+**Artist**: Dillon Francis, Daya 
 
-**Track**: Mountaintop of the Giants
+**Track**: What It Feels Like
 
-Last updated at 2/9/2026, 6:18:51 AM
+Last updated at 2/9/2026, 8:13:25 AM
