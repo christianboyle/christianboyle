@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qjoa5K1ls9eIuz8F-NPN9rA-t500x500.png">](https://soundcloud.com/dj-jas-l/busta-rhymes-touch-it-party)
 
-**Artist**: Big Ric DJ 
+**Artist**: DJ Jas L (BBZ) 
 
-**Track**: Big Ric - Not Touching The Ground
+**Track**: Busta  Rhymes  - Touch it  (Party People Mash Up)  Bouncy Bangerz
 
-Last updated at 2/9/2026, 8:46:08 AM
+Last updated at 2/9/2026, 8:47:28 AM
