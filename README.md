@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o6ph1vZ8EONypulk-Mc6C0w-t500x500.png">](https://soundcloud.com/o-s-t-music/cigs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aUWFdKjBT5GipDFz-Fej9LQ-t500x500.jpg">](https://soundcloud.com/skinsx/sleeping-wih)
 
-**Artist**: Organ Tapes 
+**Artist**: frendi 
 
-**Track**: Cigs
+**Track**: If I'm James Dean, You're Audrey Hepburn
 
-Last updated at 2/9/2026, 8:49:38 AM
+Last updated at 2/9/2026, 8:50:38 AM
