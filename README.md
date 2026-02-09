@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baEtXzdpmzcFJpvN-Vnk2hg-t500x500.jpg">](https://soundcloud.com/ewcheeto/meantthat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KDT4SpT1tzO0mWSZ-u2y0VA-t500x500.png">](https://soundcloud.com/wormhole-music-group/like-that)
 
-**Artist**: cheeto 
+**Artist**: LabRat 
 
-**Track**: meant that prd. fakejoy
+**Track**: LabRat - LIKE THAT
 
-Last updated at 2/9/2026, 8:54:14 AM
+Last updated at 2/9/2026, 8:55:24 AM
