@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDGMVG9zh5c6SLMw-Ch07iQ-t500x500.jpg">](https://soundcloud.com/krenonmusic/krenon-inner-scream?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy?in=saxurn/sets/yoloid/)
 
-**Artist**: KRENON 
+**Artist**: SUS1ER 
 
-**Track**: KRENON - INNER SCREAM
+**Track**: SUS1ER - Envy
 
-Last updated at 2/10/2026, 9:43:10 AM
+Last updated at 2/10/2026, 9:46:40 AM
