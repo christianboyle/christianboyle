@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baEtXzdpmzcFJpvN-Vnk2hg-t500x500.jpg">](https://soundcloud.com/ewcheeto/meantthat?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5QFboBN58ci-0-t500x500.jpg">](https://soundcloud.com/0800shygirl/siren-is-out-of-reach-tdj?in=saxurn/sets/yoloid/)
 
-**Artist**: cheeto 
+**Artist**: Shygirl, TDJ 
 
-**Track**: meant that prd. fakejoy
+**Track**: SIREN is OUT OF REACH [TDJ]
 
-Last updated at 2/10/2026, 9:01:24 AM
+Last updated at 2/10/2026, 9:02:59 AM
