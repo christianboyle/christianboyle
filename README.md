@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wan6FtGfTCQ0alEF-s3oyMg-t500x500.jpg">](https://soundcloud.com/tj12318/choose-life-freestyle?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-vh1fqPFfzixBJhTG-2uBpvA-t500x500.jpg">](https://soundcloud.com/rolexzofficial/rolexz-die-angst-zu-fuhlen?in=saxurn/sets/fr-tho)
 
-**Artist**: tjweaver 
+**Artist**: Rolexz 
 
-**Track**: Choose Life Freestyle ft. mossgarden
+**Track**: ROLEXZ - Die Angst Zu Fühlen
 
-Last updated at 2/10/2026, 8:41:29 AM
+Last updated at 2/10/2026, 8:44:27 AM
