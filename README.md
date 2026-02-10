@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qu8hBtQ7GsoP4Yu-bOmnWQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-indifference-repitchdamn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy?in=saxurn/sets/yoloid/)
 
 **Artist**: SUS1ER 
 
-**Track**: SUS1ER - Indifference repitch/Damn:(
+**Track**: SUS1ER - Envy
 
-Last updated at 2/10/2026, 4:56:33 PM
+Last updated at 2/10/2026, 4:59:49 PM
