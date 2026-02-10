@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j5qEzHGAipAwCRJL-d03wQw-t500x500.png">](https://soundcloud.com/bignslim/echoesfeelagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QvoydzkYoHvuQLSM-I1AzkQ-t500x500.png">](https://soundcloud.com/luminyst/vision-illanthropy-remix)
 
-**Artist**: BIG N SLIM 
+**Artist**: Luminyst, Ravenscoon, illanthropy 
 
-**Track**: ECHOES (FEEL AGAIN)
+**Track**: VISION (ILLANTHROPY Remix)
 
-Last updated at 2/10/2026, 6:37:01 AM
+Last updated at 2/10/2026, 6:38:41 AM
