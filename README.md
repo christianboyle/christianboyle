@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAR7yAk9MLbYQ0Lg-VdifJw-t500x500.png">](https://soundcloud.com/gseppmusic/feels-like-us-devault-gsepp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000?in=saxurn/sets/yoloid/)
 
-**Artist**: GSEPP 
+**Artist**: Darby 
 
-**Track**: Feels Like Us - Devault ( GSEPP Remix )
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/10/2026, 9:22:59 AM
+Last updated at 2/10/2026, 9:25:03 AM
