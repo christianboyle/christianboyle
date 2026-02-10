@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynyYM31vD13thk0z-JgoBTg-t500x500.png">](https://soundcloud.com/2tdmusic/crayzee)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
 
-**Artist**: 2TD, QL1X 
+**Artist**: Big Ric DJ 
 
-**Track**: CRAYZEE
+**Track**: Big Ric - Not Touching The Ground
 
-Last updated at 2/10/2026, 9:05:47 AM
+Last updated at 2/10/2026, 9:06:52 AM
