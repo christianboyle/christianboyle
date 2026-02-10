@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the?in=saxurn/sets/yoloid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pHWQH49RroizPvhx-QEgjzw-t500x500.jpg">](https://soundcloud.com/air_or/its-on-you?in=saxurn/sets/yoloid)
 
-**Artist**: Big Ric DJ 
+**Artist**: airynore 
 
-**Track**: Big Ric - Not Touching The Ground
+**Track**: It's On You
 
-Last updated at 2/10/2026, 5:13:20 PM
+Last updated at 2/10/2026, 5:15:45 PM
