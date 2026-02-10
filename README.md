@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pHWQH49RroizPvhx-QEgjzw-t500x500.jpg">](https://soundcloud.com/air_or/its-on-you/s-IxFluFKG003?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJRFYAvUTSe3k1si-TAtmow-t500x500.png">](https://soundcloud.com/aswordinthestone/mountaintop-of-the-giants/s-IxFluFKG003?in=saxurn/sets/yoloid/)
 
-**Artist**: airynore 
+**Artist**: A Sword in the Stone 
 
-**Track**: It's On You
+**Track**: Mountaintop of the Giants
 
-Last updated at 2/10/2026, 8:51:05 AM
+Last updated at 2/10/2026, 8:52:35 AM
