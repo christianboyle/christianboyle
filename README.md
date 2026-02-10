@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdpP5JxRlSVm05xa-egyDZA-t500x500.png">](https://soundcloud.com/wearestudio/need-for-mirrors-mills-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j5qEzHGAipAwCRJL-d03wQw-t500x500.png">](https://soundcloud.com/bignslim/echoesfeelagain)
 
-**Artist**: STUDIO, Need For Mirrors 
+**Artist**: BIG N SLIM 
 
-**Track**: Need For Mirrors - Mills [Premiere]
+**Track**: ECHOES (FEEL AGAIN)
 
-Last updated at 2/10/2026, 6:22:46 AM
+Last updated at 2/10/2026, 6:37:01 AM
