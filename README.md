@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWZ4kWBt10leHufa-mrjRfQ-t500x500.jpg">](https://soundcloud.com/ekimose/red-hot-chili-peppers-cant-stop-ekimose-hypertechno-edit-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy)
 
-**Artist**: Ekimose 
+**Artist**: SUS1ER 
 
-**Track**: Red Hot Chili Peppers - Can't Stop (Ekimose Hypertechno Edit) FREE DOWNLOAD
+**Track**: SUS1ER - Envy
 
-Last updated at 2/10/2026, 7:18:23 AM
+Last updated at 2/10/2026, 7:32:14 AM
