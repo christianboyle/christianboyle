@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDGMVG9zh5c6SLMw-Ch07iQ-t500x500.jpg">](https://soundcloud.com/krenonmusic/krenon-inner-scream?in=saxurn/sets/yoloid/)
 
-**Artist**: Gomboc Records 
+**Artist**: KRENON 
 
-**Track**: IGDA - Jumpa Fya La (Free Download)
+**Track**: KRENON - INNER SCREAM
 
-Last updated at 2/10/2026, 9:40:00 AM
+Last updated at 2/10/2026, 9:43:10 AM
