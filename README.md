@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDGMVG9zh5c6SLMw-Ch07iQ-t500x500.jpg">](https://soundcloud.com/krenonmusic/krenon-inner-scream?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAR7yAk9MLbYQ0Lg-VdifJw-t500x500.png">](https://soundcloud.com/gseppmusic/feels-like-us-devault-gsepp)
 
-**Artist**: KRENON 
+**Artist**: GSEPP 
 
-**Track**: KRENON - INNER SCREAM
+**Track**: Feels Like Us - Devault ( GSEPP Remix )
 
-Last updated at 2/10/2026, 9:17:23 AM
+Last updated at 2/10/2026, 9:22:59 AM
