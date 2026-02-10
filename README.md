@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SgeVXZQxy1n8lIL-wJkKSA-t500x500.png">](https://soundcloud.com/whoskid/nunca-muda-kid-remix?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download?in=saxurn/sets/yoloid/)
 
-**Artist**: k?d 
+**Artist**: Gomboc Records 
 
-**Track**: Nunca Muda? (k?d Remix)
+**Track**: IGDA - Jumpa Fya La (Free Download)
 
-Last updated at 2/10/2026, 9:09:42 AM
+Last updated at 2/10/2026, 9:14:12 AM
