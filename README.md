@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000?in=saxurn/sets/yoloid/)
 
-**Artist**: Big Ric DJ 
+**Artist**: Darby 
 
-**Track**: Big Ric - Not Touching The Ground
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/10/2026, 9:06:52 AM
+Last updated at 2/10/2026, 9:07:57 AM
