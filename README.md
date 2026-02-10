@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5QFboBN58ci-0-t500x500.jpg">](https://soundcloud.com/0800shygirl/siren-is-out-of-reach-tdj?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000?in=saxurn/sets/yoloid/)
 
-**Artist**: Shygirl, TDJ 
+**Artist**: Darby 
 
-**Track**: SIREN is OUT OF REACH [TDJ]
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/10/2026, 9:02:59 AM
+Last updated at 2/10/2026, 9:04:42 AM
