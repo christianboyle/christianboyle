@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynyYM31vD13thk0z-JgoBTg-t500x500.png">](https://soundcloud.com/2tdmusic/crayzee)
 
-**Artist**: Darby 
+**Artist**: 2TD, QL1X 
 
-**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
+**Track**: CRAYZEE
 
-Last updated at 2/10/2026, 9:04:42 AM
+Last updated at 2/10/2026, 9:05:47 AM
