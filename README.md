@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWZ4kWBt10leHufa-mrjRfQ-t500x500.jpg">](https://soundcloud.com/ekimose/red-hot-chili-peppers-cant-stop-ekimose-hypertechno-edit-free-download)
 
-**Artist**: Gomboc Records 
+**Artist**: Ekimose 
 
-**Track**: IGDA - Jumpa Fya La (Free Download)
+**Track**: Red Hot Chili Peppers - Can't Stop (Ekimose Hypertechno Edit) FREE DOWNLOAD
 
-Last updated at 2/10/2026, 7:15:23 AM
+Last updated at 2/10/2026, 7:18:23 AM
