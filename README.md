@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download)
 
-**Artist**: Darby 
+**Artist**: Gomboc Records 
 
-**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
+**Track**: IGDA - Jumpa Fya La (Free Download)
 
-Last updated at 2/10/2026, 7:34:20 AM
+Last updated at 2/10/2026, 7:37:20 AM
