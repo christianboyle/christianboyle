@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy?in=saxurn/sets/yoloid/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-baEtXzdpmzcFJpvN-Vnk2hg-t500x500.jpg">](https://soundcloud.com/ewcheeto/meantthat?in=saxurn/sets/yoloid)
 
-**Artist**: SUS1ER 
+**Artist**: cheeto 
 
-**Track**: SUS1ER - Envy
+**Track**: meant that prd. fakejoy
 
-Last updated at 2/10/2026, 4:59:49 PM
+Last updated at 2/10/2026, 5:08:40 PM
