@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Le2ETuXRkakjngpb-4ojVlA-t500x500.jpg">](https://soundcloud.com/fremderr/golden-ticket)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHgn7r9nxP8bS04m-n3zWwA-t500x500.png">](https://soundcloud.com/nayrex_music/ea50e7d5-5d10-425a-af11-0dbb6a453570)
 
-**Artist**: Fremder 
+**Artist**: NAYREX 
 
-**Track**: Golden Ticket (FREE DL)
+**Track**: NAYREX - BLOCK
 
-Last updated at 2/11/2026, 11:27:32 AM
+Last updated at 2/11/2026, 11:32:27 AM
