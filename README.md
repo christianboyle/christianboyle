@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SgeVXZQxy1n8lIL-wJkKSA-t500x500.png">](https://soundcloud.com/whoskid/nunca-muda-kid-remix?in=saxurn/sets/yoloid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000?in=saxurn/sets/yoloid)
 
-**Artist**: k?d 
+**Artist**: Darby 
 
-**Track**: Nunca Muda? (k?d Remix)
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/11/2026, 11:36:33 AM
+Last updated at 2/11/2026, 11:36:35 AM
