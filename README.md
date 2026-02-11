@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWqzi0kCDmkqVTwy-4IXtvg-t500x500.jpg">](https://soundcloud.com/pinky-smash/breathless-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Le2ETuXRkakjngpb-4ojVlA-t500x500.jpg">](https://soundcloud.com/fremderr/golden-ticket)
 
-**Artist**: PINKY SMASH 
+**Artist**: Fremder 
 
-**Track**: Breathless
+**Track**: Golden Ticket (FREE DL)
 
-Last updated at 2/11/2026, 11:25:22 AM
+Last updated at 2/11/2026, 11:27:32 AM
