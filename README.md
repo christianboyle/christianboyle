@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pHWQH49RroizPvhx-QEgjzw-t500x500.jpg">](https://soundcloud.com/air_or/its-on-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000)
 
-**Artist**: airynore 
+**Artist**: Darby 
 
-**Track**: It's On You
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/10/2026, 6:58:42 PM
+Last updated at 2/11/2026, 6:59:04 AM
