@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWCuq8wffhPa-0-t500x500.jpg">](https://soundcloud.com/develin88/unheard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pQPNTZQG8QZ1zLZ4-TvPvkA-t500x500.png">](https://soundcloud.com/sfamofficial/waka-flocka-hard-in-da-paint-1?in=saxurn/sets/yoloid)
 
-**Artist**: Victor Marin 
+**Artist**: sfam 
 
-**Track**: Unheard
+**Track**: waka flocka - hard in da paint (sfam remix)
 
-Last updated at 2/11/2026, 11:05:45 AM
+Last updated at 2/11/2026, 11:06:25 AM
