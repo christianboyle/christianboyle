@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y5QFboBN58ci-0-t500x500.jpg">](https://soundcloud.com/0800shygirl/siren-is-out-of-reach-tdj?in=saxurn/sets/yoloid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53vrr24458i09Tzp-05jQRQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the?in=saxurn/sets/yoloid)
 
-**Artist**: Shygirl, TDJ 
+**Artist**: Big Ric DJ 
 
-**Track**: SIREN is OUT OF REACH [TDJ]
+**Track**: Big Ric - Not Touching The Ground
 
-Last updated at 2/11/2026, 7:07:10 AM
+Last updated at 2/11/2026, 7:10:10 AM
