@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy?in=saxurn/sets/yoloid)
 
-**Artist**: Darby 
+**Artist**: SUS1ER 
 
-**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
+**Track**: SUS1ER - Envy
 
-Last updated at 2/11/2026, 6:59:04 AM
+Last updated at 2/11/2026, 7:02:54 AM
