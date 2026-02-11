@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sHgn7r9nxP8bS04m-n3zWwA-t500x500.png">](https://soundcloud.com/nayrex_music/ea50e7d5-5d10-425a-af11-0dbb6a453570)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5SgeVXZQxy1n8lIL-wJkKSA-t500x500.png">](https://soundcloud.com/whoskid/nunca-muda-kid-remix?in=saxurn/sets/yoloid)
 
-**Artist**: NAYREX 
+**Artist**: k?d 
 
-**Track**: NAYREX - BLOCK
+**Track**: Nunca Muda? (k?d Remix)
 
-Last updated at 2/11/2026, 11:32:27 AM
+Last updated at 2/11/2026, 11:36:33 AM
