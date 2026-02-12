@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oygXyryFIz8my5ET-Zch8zA-t500x500.jpg">](https://soundcloud.com/1crusafix/squad)
 
-**Artist**: crusey 
+**Artist**: crusafix 
 
-**Track**: do u care? ft. lynU & trustt
+**Track**: squad prod advxrse & vihe
 
-Last updated at 2/11/2026, 8:39:20 PM
+Last updated at 2/11/2026, 8:40:20 PM
