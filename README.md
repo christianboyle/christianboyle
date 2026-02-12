@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbptbZK2TTZckNRe-zQmQmg-t500x500.jpg">](https://soundcloud.com/cruseyyyy/whatsitbout)
 
-**Artist**: SUS1ER 
+**Artist**: crusey 
 
-**Track**: SUS1ER - Envy
+**Track**: whats it bout prod rhekdens #life
 
-Last updated at 2/11/2026, 8:36:14 PM
+Last updated at 2/11/2026, 8:37:21 PM
