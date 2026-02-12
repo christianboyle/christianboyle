@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pQPNTZQG8QZ1zLZ4-TvPvkA-t500x500.png">](https://soundcloud.com/sfamofficial/waka-flocka-hard-in-da-paint-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PGSurzsrS3ydJH1C-uTMNmQ-t500x500.png">](https://soundcloud.com/debisco/stronger)
 
-**Artist**: sfam 
+**Artist**: DeBisco 
 
-**Track**: waka flocka - hard in da paint (sfam remix)
+**Track**: Stronger
 
-Last updated at 2/12/2026, 9:41:19 AM
+Last updated at 2/12/2026, 9:43:04 AM
