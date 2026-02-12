@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDGMVG9zh5c6SLMw-Ch07iQ-t500x500.jpg">](https://soundcloud.com/krenonmusic/krenon-inner-scream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJRFYAvUTSe3k1si-TAtmow-t500x500.png">](https://soundcloud.com/aswordinthestone/mountaintop-of-the-giants)
 
-**Artist**: KRENON 
+**Artist**: A Sword in the Stone 
 
-**Track**: KRENON - INNER SCREAM
+**Track**: Mountaintop of the Giants
 
-Last updated at 2/12/2026, 9:46:24 AM
+Last updated at 2/12/2026, 9:52:05 AM
