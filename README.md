@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tX0Kv66OyrwRFe63-Mq5yeA-t500x500.png">](https://soundcloud.com/mori/ofc)
 
-**Artist**: SUS1ER 
+**Artist**: mori 
 
-**Track**: SUS1ER - Envy
+**Track**: Ofc ✌️ 💯 (@saig23 @gen7i16)
 
-Last updated at 2/12/2026, 9:57:40 AM
+Last updated at 2/12/2026, 10:00:36 AM
