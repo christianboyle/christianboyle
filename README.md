@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0F19CEnkWKNI27qS-iNh3iA-t500x500.png">](https://soundcloud.com/brainrackofficial/lynysectionbrainrackremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BenV9EIbzvvnJAy6-2QuhYQ-t500x500.png">](https://soundcloud.com/darbysounds/furaca-o-2000-mimosa-2000)
 
-**Artist**: BRAINRACK 
+**Artist**: Darby 
 
-**Track**: LYNY - Section (Brainrack Remix)
+**Track**: FURACÃO 2000 - MIMOSA 2000 (DARBY RMX)
 
-Last updated at 2/12/2026, 9:35:54 AM
+Last updated at 2/12/2026, 9:38:14 AM
