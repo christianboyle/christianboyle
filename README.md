@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iJzOfGIPetJOK61-Clkmsw-t500x500.png">](https://soundcloud.com/2tdmusic/chompa)
 
-**Artist**: BANkaJI 
+**Artist**: 2TD 
 
-**Track**: Moreart - Tom Ford (BANkaJI Flip)
+**Track**: CHOMPA
 
-Last updated at 2/12/2026, 9:27:22 AM
+Last updated at 2/12/2026, 9:29:33 AM
