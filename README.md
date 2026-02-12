@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jcnhC2zbGq0zTeFv-CbdzMg-t500x500.png">](https://soundcloud.com/hartshorn303/live-ragecore-bunker-underground-6-27)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7zhEyQteQMplE5b-kza6wQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-from-heaven)
 
-**Artist**: Hartshorn 
+**Artist**: DJ Oskar 
 
-**Track**: Live @ RAGECORE //Bunker Underground 6-27
+**Track**: DJ Oskar - From Heaven
 
-Last updated at 2/12/2026, 8:26:47 AM
+Last updated at 2/12/2026, 8:29:08 AM
