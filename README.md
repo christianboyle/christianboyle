@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7zhEyQteQMplE5b-kza6wQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-from-heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
 
-**Artist**: DJ Oskar 
+**Artist**: crusey 
 
-**Track**: DJ Oskar - From Heaven
+**Track**: do u care? ft. lynU & trustt
 
-Last updated at 2/12/2026, 2:41:18 PM
+Last updated at 2/12/2026, 5:39:26 PM
