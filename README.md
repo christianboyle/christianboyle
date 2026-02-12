@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcdDZKaDnyBqkYnP-8iJXyg-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-macarena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYSlp11RmjZyptUx-3dHvsg-t500x500.png">](https://soundcloud.com/dj-ant-reynolds/higher-love-ant-reynolds-remix)
 
-**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
+**Artist**: JDS, DJ Ant Reynolds 
 
-**Track**: MIZZDEE- MACARENA
+**Track**: Higher Love [Ant Reynolds Remix]
 
-Last updated at 2/12/2026, 9:21:07 AM
+Last updated at 2/12/2026, 9:24:52 AM
