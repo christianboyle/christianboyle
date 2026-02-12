@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYSlp11RmjZyptUx-3dHvsg-t500x500.png">](https://soundcloud.com/dj-ant-reynolds/higher-love-ant-reynolds-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip)
 
-**Artist**: JDS, DJ Ant Reynolds 
+**Artist**: BANkaJI 
 
-**Track**: Higher Love [Ant Reynolds Remix]
+**Track**: Moreart - Tom Ford (BANkaJI Flip)
 
-Last updated at 2/12/2026, 9:24:52 AM
+Last updated at 2/12/2026, 9:27:22 AM
