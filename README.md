@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tX0Kv66OyrwRFe63-Mq5yeA-t500x500.png">](https://soundcloud.com/mori/ofc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnLRTgNFFEbabhR6-JkUH5Q-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-eyes-closed)
 
-**Artist**: mori 
+**Artist**: DJ Oggy 
 
-**Track**: Ofc ✌️ 💯 (@saig23 @gen7i16)
+**Track**: DJ Oggy - Eyes Closed
 
-Last updated at 2/12/2026, 2:37:07 PM
+Last updated at 2/12/2026, 2:39:13 PM
