@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vkxqE87XNtLLW8fy-BXuXNQ-t500x500.jpg">](https://soundcloud.com/4urc/blacktruck-wooly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XD2M32MjzyofkaLU-mJNFPA-t500x500.jpg">](https://soundcloud.com/omgisai/shy-away)
 
-**Artist**: xurco 
+**Artist**: isai 
 
-**Track**: #blackTruck (wooly)
+**Track**: shy away
 
-Last updated at 2/13/2026, 3:17:09 PM
+Last updated at 2/13/2026, 3:17:19 PM
