@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UNQpz6nLysJHeIMH-ny14XQ-t500x500.jpg">](https://soundcloud.com/syndikaet/nora-korra-aamourocean-zorza-worldwyde-2026-premaster-v1-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip)
 
-**Artist**: SYNDIKÆT 
+**Artist**: BANkaJI 
 
-**Track**: Nora Korra, Aamourocean, Zorza - Worldwyde
+**Track**: Moreart - Tom Ford (BANkaJI Flip)
 
-Last updated at 2/13/2026, 9:54:06 AM
+Last updated at 2/13/2026, 9:55:01 AM
