@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ow7gQ2BmczQ7aN9J-ACuDeQ-t500x500.png">](https://soundcloud.com/lil_peep/shelter-w-bexey-4?in=lil_peep/sets/romeos-regrets)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sqrKq5n2KT3V-0-t500x500.jpg">](https://soundcloud.com/lil_peep/regrets-feat-horse-head?in=lil_peep/sets/teen-romance-9)
 
-**Artist**: ☆LiL PEEP☆ 
+**Artist**: Lil Peep, Lederrick 
 
-**Track**: Shelter (w/ Bexey)
+**Track**: regrets (feat. Horse Head)
 
-Last updated at 2/12/2026, 6:53:09 PM
+Last updated at 2/12/2026, 6:53:19 PM
