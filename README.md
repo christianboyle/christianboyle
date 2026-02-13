@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vZBETzyGMyicOxWF-TM65tQ-t500x500.jpg">](https://soundcloud.com/chris-jones-41/dj-chris-j-ubr-radio-mix-10-06-23)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss)
 
-**Artist**: DJ Chris J 
+**Artist**: WILLIE G 
 
-**Track**: Unlimited Bounce Radio Mix 10 - 06 - 23 ***FREE DOWNLOAD***
+**Track**: Kiss
 
-Last updated at 2/13/2026, 8:07:56 AM
+Last updated at 2/13/2026, 8:24:11 AM
