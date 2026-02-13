@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432992052-3eyjbj-t500x500.jpg">](https://soundcloud.com/lil_peep/broken-smile-my-all?in=lil_peep/sets/come-over-when-youre-sober-pt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TZz43vmDlI5zIj9G-lAEnyw-t500x500.jpg">](https://soundcloud.com/willieg/slap)
 
-**Artist**: Lil Peep 
+**Artist**: WILLIE G 
 
-**Track**: Broken Smile (My All)
+**Track**: Slap
 
-Last updated at 2/12/2026, 6:53:54 PM
+Last updated at 2/12/2026, 6:57:50 PM
