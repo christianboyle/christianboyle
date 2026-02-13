@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BtyzAYkVUIVln5aL-HPinSg-t500x500.jpg">](https://soundcloud.com/user-321542670/dj-chrissy-g-valentines-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzXOBK5XAfTRxzzn-ykwcrg-t500x500.png">](https://soundcloud.com/bangerangelectro/bngelc035)
 
-**Artist**: DJ CHRISSY G 
+**Artist**: Tenryu 
 
-**Track**: DJ CHRISSY G   VALENTINES 26
+**Track**: Tenryu - Unholy
 
-Last updated at 2/13/2026, 7:50:29 AM
+Last updated at 2/13/2026, 7:50:34 AM
