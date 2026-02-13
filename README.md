@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjja5bwpxI7E-0-t500x500.jpg">](https://soundcloud.com/lil_peep/suck-my-blood?in=lil_peep/sets/teen-romance-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b9tvvYSpdZjC-0-t500x500.jpg">](https://soundcloud.com/lil_peep/star-shopping-live-in-london?in=lil_peep/sets/star-shopping-live-3)
 
-**Artist**: Lil Peep, Lederrick 
+**Artist**: Lil Peep 
 
-**Track**: suck my blood
+**Track**: Star Shopping (Live In London, UK - April 2017)
 
-Last updated at 2/12/2026, 6:53:24 PM
+Last updated at 2/12/2026, 6:53:29 PM
