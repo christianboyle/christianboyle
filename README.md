@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bGq8tN0oFGpj-0-t500x500.jpg">](https://soundcloud.com/lil_peep/spotlight-og-version?in=lil_peep/sets/hate-me-592573316)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000432992052-3eyjbj-t500x500.jpg">](https://soundcloud.com/lil_peep/broken-smile-my-all?in=lil_peep/sets/come-over-when-youre-sober-pt)
 
 **Artist**: Lil Peep 
 
-**Track**: Spotlight (og version)
+**Track**: Broken Smile (My All)
 
-Last updated at 2/12/2026, 6:53:39 PM
+Last updated at 2/12/2026, 6:53:54 PM
