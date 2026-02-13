@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197760911-brh7ha-t500x500.jpg">](https://soundcloud.com/lil_peep/smokepurpp-on-a-bean-prod-willie-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tX0Kv66OyrwRFe63-Mq5yeA-t500x500.png">](https://soundcloud.com/mori/ofc)
 
-**Artist**: Smoke Purpp , Lil Peep 
+**Artist**: mori 
 
-**Track**: smokepurpp on a bean (prod. willie g)
+**Track**: Ofc ✌️ 💯 (@saig23 @gen7i16)
 
-Last updated at 2/13/2026, 7:34:48 AM
+Last updated at 2/13/2026, 7:47:04 AM
