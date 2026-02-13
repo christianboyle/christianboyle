@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1E7Ox0nrCW4-0-t500x500.jpg">](https://soundcloud.com/alanshirahama-music/hellhole)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BtyzAYkVUIVln5aL-HPinSg-t500x500.jpg">](https://soundcloud.com/user-321542670/dj-chrissy-g-valentines-26)
 
-**Artist**: ALAN SHIRAHAMA, Komb 
+**Artist**: DJ CHRISSY G 
 
-**Track**: Hellhole
+**Track**: DJ CHRISSY G   VALENTINES 26
 
-Last updated at 2/13/2026, 7:50:19 AM
+Last updated at 2/13/2026, 7:50:29 AM
