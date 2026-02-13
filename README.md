@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eZBi8zjrjpYsrSJQ-3eHa7g-t500x500.png">](https://soundcloud.com/hellonuurse/nurse-electronic-holi-comp-mix?in=bass-n-babes/sets/fairytale-prod-x-bass-n-babes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q2k8YoeHeYw0ffWO-WESghw-t500x500.jpg">](https://soundcloud.com/lexthetranzformer/f333lz-electric-holi-finals?in=bass-n-babes/sets/fairytale-prod-x-bass-n-babes)
 
-**Artist**: Nurse 
+**Artist**: F333LZ 
 
-**Track**: Nurse -  Electronic Holi Comp Mix
+**Track**: F333LZ - ELECTRONIC HOLI FINALS SUBMISSION MIX
 
-Last updated at 2/13/2026, 3:16:49 PM
+Last updated at 2/13/2026, 3:16:54 PM
