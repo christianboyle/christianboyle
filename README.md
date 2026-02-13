@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcdDZKaDnyBqkYnP-8iJXyg-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-macarena)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
 
-**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
+**Artist**: crusey 
 
-**Track**: MIZZDEE- MACARENA
+**Track**: do u care? ft. lynU & trustt
 
-Last updated at 2/12/2026, 6:26:01 PM
+Last updated at 2/12/2026, 6:35:46 PM
