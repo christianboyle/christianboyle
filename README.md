@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iJzOfGIPetJOK61-Clkmsw-t500x500.png">](https://soundcloud.com/2tdmusic/chompa?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYM9a2yw0aSGQwCk-0iSSuQ-t500x500.png">](https://soundcloud.com/luhvmusic/juice-wrld-come-go-luhv-1?in=saxurn/sets/mergency)
 
-**Artist**: 2TD 
+**Artist**: Luhv 
 
-**Track**: CHOMPA
+**Track**: Juice WRLD - Come & Go (Luhv Remix)
 
-Last updated at 2/13/2026, 4:12:58 PM
+Last updated at 2/13/2026, 4:16:09 PM
