@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnLRTgNFFEbabhR6-JkUH5Q-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-eyes-closed)
 
-**Artist**: crusey 
+**Artist**: DJ Oggy 
 
-**Track**: do u care? ft. lynU & trustt
+**Track**: DJ Oggy - Eyes Closed
 
-Last updated at 2/12/2026, 6:35:46 PM
+Last updated at 2/12/2026, 6:37:52 PM
