@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss?in=saxurn/sets/won-love/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197760911-brh7ha-t500x500.jpg">](https://soundcloud.com/lil_peep/smokepurpp-on-a-bean-prod-willie-g?in=saxurn/sets/won-love/)
 
-**Artist**: WILLIE G 
+**Artist**: Smoke Purpp , Lil Peep 
 
-**Track**: Kiss
+**Track**: smokepurpp on a bean (prod. willie g)
 
-Last updated at 2/13/2026, 9:55:12 AM
+Last updated at 2/13/2026, 9:57:18 AM
