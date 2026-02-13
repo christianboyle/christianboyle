@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynyYM31vD13thk0z-JgoBTg-t500x500.png">](https://soundcloud.com/2tdmusic/crayzee?in=saxurn/sets/won-love/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iJzOfGIPetJOK61-Clkmsw-t500x500.png">](https://soundcloud.com/2tdmusic/chompa?in=saxurn/sets/won-love/)
 
-**Artist**: 2TD, QL1X 
+**Artist**: 2TD 
 
-**Track**: CRAYZEE
+**Track**: CHOMPA
 
-Last updated at 2/13/2026, 10:11:09 AM
+Last updated at 2/13/2026, 10:14:09 AM
