@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnLRTgNFFEbabhR6-JkUH5Q-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-eyes-closed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j1E7Ox0nrCW4-0-t500x500.jpg">](https://soundcloud.com/alanshirahama-music/hellhole)
 
-**Artist**: DJ Oggy 
+**Artist**: ALAN SHIRAHAMA, Komb 
 
-**Track**: DJ Oggy - Eyes Closed
+**Track**: Hellhole
 
-Last updated at 2/13/2026, 7:49:09 AM
+Last updated at 2/13/2026, 7:50:19 AM
