@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYM9a2yw0aSGQwCk-0iSSuQ-t500x500.png">](https://soundcloud.com/luhvmusic/juice-wrld-come-go-luhv-1?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip?in=saxurn/sets/mergency)
 
-**Artist**: Luhv 
+**Artist**: BANkaJI 
 
-**Track**: Juice WRLD - Come & Go (Luhv Remix)
+**Track**: Moreart - Tom Ford (BANkaJI Flip)
 
-Last updated at 2/13/2026, 4:16:09 PM
+Last updated at 2/13/2026, 4:19:46 PM
