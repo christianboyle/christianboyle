@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkd5z1rfD87yllXp-FlyJUQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-save-me-radio-edit)
 
-**Artist**: SUS1ER 
+**Artist**: DRIFT 
 
-**Track**: SUS1ER - Envy
+**Track**: DRIFT - SAVE ME (RADIO EDIT)
 
-Last updated at 2/12/2026, 5:58:58 PM
+Last updated at 2/12/2026, 6:01:34 PM
