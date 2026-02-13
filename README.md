@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip?in=saxurn/sets/won-love/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TeBt1MezMJCdLZW6-iVQoew-t500x500.png">](https://soundcloud.com/braxxmusic/lab-group-dipping-braxx-flip)
 
-**Artist**: BANkaJI 
+**Artist**: Braxx 
 
-**Track**: Moreart - Tom Ford (BANkaJI Flip)
+**Track**: Lab Group - Dipping ft. Supertask, Ruku (Braxx Flip)
 
-Last updated at 2/13/2026, 3:07:38 PM
+Last updated at 2/13/2026, 3:09:53 PM
