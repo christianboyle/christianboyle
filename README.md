@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3ML3GgXgwMNZywwC-5XvnUw-t500x500.png">](https://soundcloud.com/menthalo666/the-haunted-house-full-stream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DJ4DAaYjmN38OXRl-IIBixA-t500x500.png">](https://soundcloud.com/freaxment/oiia)
 
-**Artist**: MENTHALO 
+**Artist**: Freaxment 
 
-**Track**: THE HAUNTED HOUSE (FULL STREAM)
+**Track**: OIIA OIIA Dubstep Remix (Spinning Cat Meme)
 
-Last updated at 2/13/2026, 7:52:09 AM
+Last updated at 2/13/2026, 8:06:11 AM
