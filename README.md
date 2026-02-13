@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ow7gQ2BmczQ7aN9J-ACuDeQ-t500x500.png">](https://soundcloud.com/lil_peep/shelter-w-bexey-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss)
 
-**Artist**: ☆LiL PEEP☆ 
+**Artist**: WILLIE G 
 
-**Track**: Shelter (w/ Bexey)
+**Track**: Kiss
 
-Last updated at 2/12/2026, 7:00:16 PM
+Last updated at 2/12/2026, 7:00:26 PM
