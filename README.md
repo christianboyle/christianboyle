@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7zhEyQteQMplE5b-kza6wQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-from-heaven?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UNQpz6nLysJHeIMH-ny14XQ-t500x500.jpg">](https://soundcloud.com/syndikaet/nora-korra-aamourocean-zorza-worldwyde-2026-premaster-v1-3?in=saxurn/sets/mergency)
 
-**Artist**: DJ Oskar 
+**Artist**: SYNDIKÆT 
 
-**Track**: DJ Oskar - From Heaven
+**Track**: Nora Korra, Aamourocean, Zorza - Worldwyde
 
-Last updated at 2/13/2026, 3:34:40 PM
+Last updated at 2/13/2026, 3:38:10 PM
