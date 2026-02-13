@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss)
 
-**Artist**: crusey 
+**Artist**: WILLIE G 
 
-**Track**: do u care? ft. lynU & trustt
+**Track**: Kiss
 
-Last updated at 2/12/2026, 7:03:42 PM
+Last updated at 2/12/2026, 7:05:07 PM
