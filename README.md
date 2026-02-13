@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SM3lFZUPXzHjqsYb-xvP1Kg-t500x500.png">](https://soundcloud.com/gombocrec/igda-jumpa-fya-la-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss)
 
-**Artist**: Gomboc Records 
+**Artist**: WILLIE G 
 
-**Track**: IGDA - Jumpa Fya La (Free Download)
+**Track**: Kiss
 
-Last updated at 2/13/2026, 5:44:22 AM
+Last updated at 2/13/2026, 5:50:28 AM
