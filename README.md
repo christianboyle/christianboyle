@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y1pLCUpDjCD8nnIO-5xcqug-t500x500.jpg">](https://soundcloud.com/lil_peep/nuts-ft-lil-skil-prod-willie-g)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss)
 
-**Artist**: Lil Peep 
+**Artist**: WILLIE G 
 
-**Track**: nuts [ft. lil skil] (prod. willie g)
+**Track**: Kiss
 
-Last updated at 2/12/2026, 6:58:15 PM
+Last updated at 2/12/2026, 6:59:10 PM
