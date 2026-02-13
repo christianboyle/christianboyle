@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uBzfc2lg04d68Y0C-u8o4Zg-t500x500.png">](https://soundcloud.com/ktrl/ktrl-idontlikeyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dw3osHECZYw6rK0F-8p27DQ-t500x500.png">](https://soundcloud.com/parasoxmusic/magicconch-feat-mxxnwatchers)
 
-**Artist**: KTRL 
+**Artist**: parasox, mxxnwatchers 
 
-**Track**: KTRL - IDONTLIKEYOU
+**Track**: Magic Conch feat. mxxnwatchers
 
-Last updated at 2/13/2026, 3:16:33 PM
+Last updated at 2/13/2026, 3:16:38 PM
