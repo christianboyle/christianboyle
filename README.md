@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197760911-brh7ha-t500x500.jpg">](https://soundcloud.com/lil_peep/smokepurpp-on-a-bean-prod-willie-g)
 
-**Artist**: crusey 
+**Artist**: Smoke Purpp , Lil Peep 
 
-**Track**: do u care? ft. lynU & trustt
+**Track**: smokepurpp on a bean (prod. willie g)
 
-Last updated at 2/13/2026, 7:34:33 AM
+Last updated at 2/13/2026, 7:34:48 AM
