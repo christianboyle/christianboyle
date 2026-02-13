@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UNQpz6nLysJHeIMH-ny14XQ-t500x500.jpg">](https://soundcloud.com/syndikaet/nora-korra-aamourocean-zorza-worldwyde-2026-premaster-v1-3?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynyYM31vD13thk0z-JgoBTg-t500x500.png">](https://soundcloud.com/2tdmusic/crayzee?in=saxurn/sets/mergency)
 
-**Artist**: SYNDIKÆT 
+**Artist**: 2TD, QL1X 
 
-**Track**: Nora Korra, Aamourocean, Zorza - Worldwyde
+**Track**: CRAYZEE
 
-Last updated at 2/13/2026, 3:38:10 PM
+Last updated at 2/13/2026, 3:41:11 PM
