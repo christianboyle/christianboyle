@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss?in=saxurn/sets/won-love/)
 
-**Artist**: BANkaJI 
+**Artist**: WILLIE G 
 
-**Track**: Moreart - Tom Ford (BANkaJI Flip)
+**Track**: Kiss
 
-Last updated at 2/13/2026, 9:55:01 AM
+Last updated at 2/13/2026, 9:55:12 AM
