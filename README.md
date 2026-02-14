@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2IzDF1THGfBP7ebJ-hfIsug-t500x500.jpg">](https://soundcloud.com/suska-official/suska-back-to-the-roots-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4wqJNFmvIxDzKYJ-4zqT8Q-t500x500.png">](https://soundcloud.com/no-rules-sound-label/free-dl-koda-con-la-mano-en-la-rodilla)
 
-**Artist**: SUSKA 
+**Artist**: NO RULES SOUND , KØDA 
 
-**Track**: SUSKA - BACK TO THE ROOTS (free download)
+**Track**: [FREE DL] KØDA - CON LA MANO EN LA RODILLA
 
-Last updated at 2/14/2026, 7:35:34 AM
+Last updated at 2/14/2026, 7:37:19 AM
