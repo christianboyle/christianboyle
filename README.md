@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tX0Kv66OyrwRFe63-Mq5yeA-t500x500.png">](https://soundcloud.com/mori/ofc?in=saxurn/sets/mergency)
 
-**Artist**: crusey 
+**Artist**: mori 
 
-**Track**: do u care? ft. lynU & trustt
+**Track**: Ofc ✌️ 💯 (@saig23 @gen7i16)
 
-Last updated at 2/14/2026, 8:07:38 AM
+Last updated at 2/14/2026, 8:10:13 AM
