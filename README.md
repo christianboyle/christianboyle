@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yBysKjpNVatBWqRg-fV3Bvw-t500x500.jpg">](https://soundcloud.com/ilovemyvices/cutthroat-x-prod-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fbIytm3eQG5yu6iw-rjhNDw-t500x500.jpg">](https://soundcloud.com/junejunejunejunejune/ch2rms-still-not-feeling-2-okay-cru)
 
-**Artist**: ilovemyvices 
+**Artist**: ch2rms 
 
-**Track**: Cutthroat :x prod me
+**Track**: ch2rms - still not feeling 2 okay (cru)
 
-Last updated at 2/13/2026, 7:13:46 PM
+Last updated at 2/13/2026, 7:16:11 PM
