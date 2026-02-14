@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjvnSIuyZm0f8y5h-SkKzRQ-t500x500.jpg">](https://soundcloud.com/drmcvtchr2613/blingring)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZSz0YHvlMRWi9C4-WzKzOg-t500x500.jpg">](https://soundcloud.com/xosaviour/maison-sinclair-painureyes)
 
-**Artist**: drmcVtchr2613, miles yoko 
+**Artist**: maison sinclair 
 
-**Track**: BLING RING (yurms + odp1me)
+**Track**: maison sinclair - painureyes (gustavio_topman & medicate)
 
-Last updated at 2/13/2026, 6:06:00 PM
+Last updated at 2/13/2026, 6:08:25 PM
