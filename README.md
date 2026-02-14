@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQ8JyTmQa0Gj7fZ6-tQoCrA-t500x500.png">](https://soundcloud.com/affectional/linus-o-x-birthday-prod-mercyyy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-em0UIfOO6tzAW0qC-246DXA-t500x500.png">](https://soundcloud.com/valtica/kuru-dare-prod-kuru-ginseng-2)
 
-**Artist**: kratom chan, birthday, mercyyy 
+**Artist**: kuru 
 
-**Track**: 【l】【i】【n】【u】【s】x birthday ♡ prod mercyyy ♡
+**Track**: kuru – dare prod kuru ginseng
 
-Last updated at 2/13/2026, 6:19:36 PM
+Last updated at 2/13/2026, 6:21:32 PM
