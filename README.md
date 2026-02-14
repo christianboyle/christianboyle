@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pXM8fjYK1HPuL0om-9JYacg-t500x500.png">](https://soundcloud.com/nicekeed/nice-keed-no-beef-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lOzwG9MtjUaWH2f5-ZxCpqQ-t500x500.jpg">](https://soundcloud.com/dnnstechno/dnns-break-the-rules)
 
-**Artist**: NICE KEED 
+**Artist**: DNNS 
 
-**Track**: NICE KEED // NO BEEF [FREE DL EXTENDED]
+**Track**: DNNS - Break The Rules
 
-Last updated at 2/14/2026, 7:38:19 AM
+Last updated at 2/14/2026, 7:38:24 AM
