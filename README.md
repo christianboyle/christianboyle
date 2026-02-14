@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHpz0uGQiQpRMWSK-hurt7A-t500x500.jpg">](https://soundcloud.com/hiddenacademy/funk-it-up-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
 
-**Artist**: HIDDEN ACADEMY 
+**Artist**: Slang Dogs 
 
-**Track**: FUNK IT UP (Original Mix) (FREE DOWNLOAD)
+**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
 
-Last updated at 2/14/2026, 8:57:23 AM
+Last updated at 2/14/2026, 9:03:13 AM
