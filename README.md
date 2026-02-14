@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zWPPCruoBthmlxT9-Q3FuYQ-t500x500.png">](https://soundcloud.com/bo0tyleak/mem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FmId4BRok0pbJzgN-lkzPjw-t500x500.png">](https://soundcloud.com/wakaan/chozen-noetika-def3-tooth-nail-claw)
 
-**Artist**: BOOTY LEAK, Astech, Margad, Zethar 
+**Artist**: Chozen, Noetika, Def3 
 
-**Track**: Booty Leak + Astech & Margad + Zethar - Memories [ FREE DOWNLOAD ]
+**Track**: Chozen, Noetika, Def3 - Tooth, Nail, & Claw
 
-Last updated at 2/14/2026, 7:51:26 AM
+Last updated at 2/14/2026, 7:51:36 AM
