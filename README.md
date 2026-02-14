@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bLiz6ALI0oTGG4m3-FuVJxQ-t500x500.png">](https://soundcloud.com/ezralaeux/will-you-walk-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ASyfZG7Lde8reHN-JUhNsg-t500x500.png">](https://soundcloud.com/slowboyyy/getting-hot)
 
-**Artist**: Ezra Laeux 
+**Artist**: Slowboy, TYPHON 
 
-**Track**: Will you walk with me?
+**Track**: Slowboy & TYPHON - Getting Hot
 
-Last updated at 2/14/2026, 7:50:56 AM
+Last updated at 2/14/2026, 7:51:01 AM
