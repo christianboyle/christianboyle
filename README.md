@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yuRGufpMnFiSEzy0-Tnnl6A-t500x500.jpg">](https://soundcloud.com/summer-graves-270751499/electricholidemo?in=bass-n-babes/sets/fairytale-prod-x-bass-n-babes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vkxqE87XNtLLW8fy-BXuXNQ-t500x500.jpg">](https://soundcloud.com/4urc/blacktruck-wooly)
 
-**Artist**: NANA. 
+**Artist**: xurco 
 
-**Track**: ~ELECTRIC~HOLI~DEMO~
+**Track**: #blackTruck (wooly)
 
-Last updated at 2/14/2026, 7:51:41 AM
+Last updated at 2/14/2026, 7:51:46 AM
