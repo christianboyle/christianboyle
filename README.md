@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K6lt5z3LsifwXyKu-TyRcWQ-t500x500.jpg">](https://soundcloud.com/steff-little/steff-little-holding-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFF46yzjTohHFa27-vqzavQ-t500x500.png">](https://soundcloud.com/dnzrecords/illsley-hate-u-love-u)
 
-**Artist**: Steff Little  
+**Artist**: Illsley 
 
-**Track**: STEFF LITTLE - HOLDING ON
+**Track**: Illsley - Hate U Love U
 
-Last updated at 2/14/2026, 7:28:59 AM
+Last updated at 2/14/2026, 7:29:04 AM
