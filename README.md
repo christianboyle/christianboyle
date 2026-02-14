@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHpz0uGQiQpRMWSK-hurt7A-t500x500.jpg">](https://soundcloud.com/hiddenacademy/funk-it-up-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IqzgROv48GbUve0-fv46Wg-t500x500.jpg">](https://soundcloud.com/perle_techno/perle-no-more-issues-master-3)
 
-**Artist**: HIDDEN ACADEMY 
+**Artist**: PERLE 
 
-**Track**: FUNK IT UP (Original Mix) (FREE DOWNLOAD)
+**Track**: PERLE - NO MORE ISSUES / FREE DL
 
-Last updated at 2/14/2026, 7:46:45 AM
+Last updated at 2/14/2026, 7:47:01 AM
