@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yCoSepGXQdIvscU-mNn1GQ-t500x500.jpg">](https://soundcloud.com/zangellllllll/hate-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dW7bf6deBzTZs2rq-y3Ac7w-t500x500.jpg">](https://soundcloud.com/speaking149_role/imjust-tired-fleafriends)
 
-**Artist**: zangel 
+**Artist**: Fleafriends  (Speaking role)  4, elliebell 
 
-**Track**: hate it prod me
+**Track**: im just tired w/ elliebell
 
-Last updated at 2/13/2026, 7:39:08 PM
+Last updated at 2/13/2026, 7:40:08 PM
