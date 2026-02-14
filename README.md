@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IpXJQ77zGa4viNAu-d8fXyQ-t500x500.jpg">](https://soundcloud.com/cardinalsaflame/frenemies-luc3nt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qWA3R6aETdymXg8i-5Nfmnw-t500x500.png">](https://soundcloud.com/ch2rmslover/ch2rms-toradora-2)
 
-**Artist**: cardinal 
+**Artist**: #ch2rmslover 
 
-**Track**: frenemies (luc3nt)
+**Track**: ch2rms - Toradora 2
 
-Last updated at 2/13/2026, 7:28:17 PM
+Last updated at 2/13/2026, 7:30:12 PM
