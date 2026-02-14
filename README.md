@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1aksvZwsaWTLPcCF-nyuOSA-t500x500.jpg">](https://soundcloud.com/jakazid/j-core-heroez-ii-mogra)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JwGLgsObOfMhforB-wUaMZQ-t500x500.png">](https://soundcloud.com/samwolfemusic/tainted-love)
 
-**Artist**: JAKAZiD 
+**Artist**: SAM WOLFE 
 
-**Track**: JAKAZiD @ J-CORE HEROEZ II, MOGRA 2025-10-24
+**Track**: Soft Cell x Jamie Jones- Tainted Love (Sam WOLFE Remix) [FREE DOWNLOAD]
 
-Last updated at 2/14/2026, 7:27:28 AM
+Last updated at 2/14/2026, 7:27:35 AM
