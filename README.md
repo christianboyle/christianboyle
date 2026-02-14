@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O9oDlLkSrMxOt204-8gYZzg-t500x500.png">](https://soundcloud.com/radiorudina/stinny-stone-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwefMr8141EZCXdM-vlwG3A-t500x500.png">](https://soundcloud.com/the-big-blind/broken-delusion)
 
-**Artist**: Radio Rudina 
+**Artist**: The Big Blind, Fluction 
 
-**Track**: Stinny Stone | Radio Rudina
+**Track**: Broken Delusion W/ Fluction (free dl)
 
-Last updated at 2/14/2026, 7:25:33 AM
+Last updated at 2/14/2026, 7:25:38 AM
