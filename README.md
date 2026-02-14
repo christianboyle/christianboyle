@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xB6sgupj4h0eAOgz-RapZ8w-t500x500.png">](https://soundcloud.com/event-whalien/kyzwall-no-tape-google-rave-wha087)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MadGsGZ0ozysargy-2qj7bg-t500x500.png">](https://soundcloud.com/dnzrecords/dgn-stranger-things)
 
-**Artist**: Kyzwall , No Tape 
+**Artist**: DGN 
 
-**Track**: Kyzwall & No Tape - Google Rave [WHA087]
+**Track**: DGN - Stranger Things
 
-Last updated at 2/14/2026, 7:51:51 AM
+Last updated at 2/14/2026, 7:51:56 AM
