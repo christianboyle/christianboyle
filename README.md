@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fYgKlXrJtivajvs2-GRd9XA-t500x500.png">](https://soundcloud.com/neckt/jequya-pearl-jequya-snippet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RjvnSIuyZm0f8y5h-SkKzRQ-t500x500.jpg">](https://soundcloud.com/drmcvtchr2613/blingring)
 
-**Artist**: break me into pieces 
+**Artist**: drmcVtchr2613, miles yoko 
 
-**Track**: jequya - PEARL (jequya) *snippet*
+**Track**: BLING RING (yurms + odp1me)
 
-Last updated at 2/13/2026, 6:03:05 PM
+Last updated at 2/13/2026, 6:06:00 PM
