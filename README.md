@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2t0ICWFmylAXXv7i-uUHObA-t500x500.jpg">](https://soundcloud.com/xo-devonte/feloni19-get-that-bag-fast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-efIgrxlcnfVXSJXY-9hAxtQ-t500x500.png">](https://soundcloud.com/pawl4k-pawe/thankz-prodpawl4k-prodacu)
 
-**Artist**: 🔥 Xo.Devonte 🌬🔥 
+**Artist**: Pawl2k 
 
-**Track**: Feloni19 - Get That Bag FAST
+**Track**: Thankz @prod.pawl4k @prod.acu
 
-Last updated at 2/13/2026, 7:07:55 PM
+Last updated at 2/13/2026, 7:10:51 PM
