@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tX0Kv66OyrwRFe63-Mq5yeA-t500x500.png">](https://soundcloud.com/mori/ofc?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7zhEyQteQMplE5b-kza6wQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-from-heaven?in=saxurn/sets/mergency)
 
-**Artist**: mori 
+**Artist**: DJ Oskar 
 
-**Track**: Ofc ✌️ 💯 (@saig23 @gen7i16)
+**Track**: DJ Oskar - From Heaven
 
-Last updated at 2/14/2026, 8:10:13 AM
+Last updated at 2/14/2026, 8:12:18 AM
