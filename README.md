@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XMYOfkJrQvzPMgPR-CcpIxQ-t500x500.jpg">](https://soundcloud.com/jdot2flyyxx/let-me-flaunt-my-wrist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss?in=saxurn/sets/mergency)
 
-**Artist**: Lil Jdot Green 
+**Artist**: WILLIE G 
 
-**Track**: 1oneam preset flow 2 (letmeflauntmyemowrist)
+**Track**: Kiss
 
-Last updated at 2/13/2026, 7:50:09 PM
+Last updated at 2/13/2026, 9:28:18 PM
