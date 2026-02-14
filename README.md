@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IBmdyUKnQz3WD1CF-IMZp1Q-t500x500.png">](https://soundcloud.com/bncybncy/josh-francis-dying-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w7lvzAF1jyGisiot-oXJlsg-t500x500.png">](https://soundcloud.com/bncybncy/the-r-y-e-delayed)
 
-**Artist**: Josh Francis 
+**Artist**: THE R.Y.E 
 
-**Track**: Josh Francis - Dying For Affection
+**Track**: THE R.Y.E - Delayed
 
-Last updated at 2/14/2026, 7:49:41 AM
+Last updated at 2/14/2026, 7:49:46 AM
