@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JA5N4l8tobZoyhzB-W69FXQ-t500x500.png">](https://soundcloud.com/stratisbambam/stratisbambams-fury-v7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1JWIQb1fzZI08RG9-Oxh7EA-t500x500.jpg">](https://soundcloud.com/davie-rae-810600984/davie-rae-makina-test-2)
 
-**Artist**: Stratisbambam ( INF3RNUS ) 
+**Artist**: Davie Rae 
 
-**Track**: Stratisbambam's Fury v7
+**Track**: Davie Rae Makina Test 2
 
-Last updated at 2/14/2026, 7:49:21 AM
+Last updated at 2/14/2026, 7:49:26 AM
