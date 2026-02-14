@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qrRUyJhFLS28boSy-yx46eg-t500x500.jpg">](https://soundcloud.com/ryan-vinyard/mtek-always-come-back-to-your-love-hardcore-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-krMFjMgMlykv9vgg-aEpiJw-t500x500.png">](https://soundcloud.com/industrialsounds/tommy-farrow-ross-quinn-inside-my-mind-interstellar-recordings)
 
-**Artist**: MTEK ✅ 
+**Artist**: Tommy Farrow & Ross Quinn 
 
-**Track**: MTEK - Always Come Back To Your Love ( Hardcore Remix )
+**Track**: Tommy Farrow & Ross Quinn - Inside My Mind [Interstellar Recordings]
 
-Last updated at 2/14/2026, 7:27:44 AM
+Last updated at 2/14/2026, 7:27:49 AM
