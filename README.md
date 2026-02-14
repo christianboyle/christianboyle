@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ECM9kLLUCi2Fpsq-Y6uP8w-t500x500.jpg">](https://soundcloud.com/hiddenacademy/acid-bomb-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NWLbMJ24gFEFaGDB-rou4cQ-t500x500.jpg">](https://soundcloud.com/jaaypmusic/boulevard-of-broken-dreams)
 
-**Artist**: HIDDEN ACADEMY 
+**Artist**: JAY P 
 
-**Track**: TIRED OF THIS ACID (Original Mix) (FREE DOWNLOAD)
+**Track**: Green Day - Boulevard of Broken Dreams (JAY P SCHRANZ REMIX) [FREE DOWNLOAD]
 
-Last updated at 2/14/2026, 7:47:06 AM
+Last updated at 2/14/2026, 7:47:11 AM
