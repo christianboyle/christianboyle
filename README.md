@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RPd4fUzb3DgYNqQ9-Px4tYw-t500x500.png">](https://soundcloud.com/user-27589410/jr-one-track-mind-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBm6chetYsLcaMuk-Vr5eFA-t500x500.png">](https://soundcloud.com/stucofficial/i-need-to-know-stu-cukbmix)
 
-**Artist**: JR 
+**Artist**: Stu-c 
 
-**Track**: JR - One Track Mind (Free Download)
+**Track**: I Need To Know _ Stu-CUKBMix
 
-Last updated at 2/14/2026, 7:48:56 AM
+Last updated at 2/14/2026, 7:49:01 AM
