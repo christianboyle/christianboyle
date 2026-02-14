@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WLPu4PVTcWScGLJb-aGYzOg-t500x500.jpg">](https://soundcloud.com/spinrealrecords/beau-james-18hunna-topshelf01-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XD2M32MjzyofkaLU-mJNFPA-t500x500.jpg">](https://soundcloud.com/omgisai/shy-away)
 
-**Artist**: SPINREAL RECORDS 
+**Artist**: isai 
 
-**Track**: Beau James - 18Hunna [TOPSHELF01]
+**Track**: shy away
 
-Last updated at 2/14/2026, 7:50:01 AM
+Last updated at 2/14/2026, 7:50:11 AM
