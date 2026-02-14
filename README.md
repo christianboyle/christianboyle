@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGvm1LMWHyLnaxzu-6CglDA-t500x500.png">](https://soundcloud.com/ltbounceofficial/lt-bounce-forced-to-find-radio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3N8aQIvgO3vZzFc-AuHdFQ-t500x500.png">](https://soundcloud.com/gulligangrecords/sedamnaest-on-my-mind)
 
-**Artist**: LT BOUNCE 
+**Artist**: sedamnaest 
 
-**Track**: LT BOUNCE - Forced To Find (Radio Edit)
+**Track**: sedamnaest - On my Mind
 
-Last updated at 2/14/2026, 7:30:04 AM
+Last updated at 2/14/2026, 7:30:09 AM
