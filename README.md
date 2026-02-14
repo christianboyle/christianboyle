@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpFaok7hmerVRWll-0zMJyw-t500x500.png">](https://soundcloud.com/heavn0nevaeh/kill-a-rat-acyl-dull)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XMYOfkJrQvzPMgPR-CcpIxQ-t500x500.jpg">](https://soundcloud.com/jdot2flyyxx/let-me-flaunt-my-wrist)
 
-**Artist**: heavn0nevaeh 
+**Artist**: Lil Jdot Green 
 
-**Track**: ᓚᘏᕐᐷ to Kill a Rat @acyl
+**Track**: 1oneam preset flow 2 (letmeflauntmyemowrist)
 
-Last updated at 2/13/2026, 7:48:34 PM
+Last updated at 2/13/2026, 7:50:09 PM
