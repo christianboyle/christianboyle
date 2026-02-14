@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwefMr8141EZCXdM-vlwG3A-t500x500.png">](https://soundcloud.com/the-big-blind/broken-delusion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KDT4SpT1tzO0mWSZ-u2y0VA-t500x500.png">](https://soundcloud.com/wormhole-music-group/like-that)
 
-**Artist**: The Big Blind, Fluction 
+**Artist**: LabRat 
 
-**Track**: Broken Delusion W/ Fluction (free dl)
+**Track**: LabRat - LIKE THAT
 
-Last updated at 2/14/2026, 7:25:38 AM
+Last updated at 2/14/2026, 7:25:43 AM
