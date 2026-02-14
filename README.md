@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WeG3qNbnyQWT5PAn-ObLqQA-t500x500.png">](https://soundcloud.com/lynxw/imdfy-vallich)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yW1b90SjyNzKVYkB-emqAHg-t500x500.png">](https://soundcloud.com/wadey676767/ch2rms-you-me-ft-lexycat)
 
-**Artist**: lynxw 
+**Artist**: ch2rms, Lexycat 
 
-**Track**: IMDFY ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ (vallich)
+**Track**: ch2rms - you & me ft lexycat
 
-Last updated at 2/13/2026, 7:22:36 PM
+Last updated at 2/13/2026, 7:24:12 PM
