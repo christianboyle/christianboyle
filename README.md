@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssyQZjyff4yCyhER-WIlXnQ-t500x500.jpg">](https://soundcloud.com/user-681000000/dj_bexx-donked-up-in-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PBu8GFO61geHr9ka-ZHLbdQ-t500x500.png">](https://soundcloud.com/sudbeat/mixologic-002-mike-isai)
 
-**Artist**: DJ_Bexx 🎵 Donked Up 🎵 
+**Artist**: Sudbeat Music 
 
-**Track**: DJ_Bexx - Donked Up In Love
+**Track**: MIXOLOGIC 002  | Mike Isai
 
-Last updated at 2/14/2026, 7:29:14 AM
+Last updated at 2/14/2026, 7:29:19 AM
