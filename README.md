@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lfLOxa9aH32dnOJD-7rX9Ig-t500x500.png">](https://soundcloud.com/prodmakeups/amberful-package)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRbG915NcQuLsZLd-gS0liA-t500x500.jpg">](https://soundcloud.com/ihsage/function)
 
-**Artist**: makeups 
+**Artist**: ihsage 
 
-**Track**: Amberful package @chrnically @1audiodiary @chloe94co @1clappy @tewiq @nxggens @toemuro @evoside
+**Track**: function
 
-Last updated at 2/13/2026, 6:33:12 PM
+Last updated at 2/13/2026, 6:48:29 PM
