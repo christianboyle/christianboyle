@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hRbG915NcQuLsZLd-gS0liA-t500x500.jpg">](https://soundcloud.com/ihsage/function)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yydBCpzExM2oKi1c-XoqnxA-t500x500.jpg">](https://soundcloud.com/fabs4k/pinkpop)
 
-**Artist**: ihsage 
+**Artist**: fabs 
 
-**Track**: function
+**Track**: pinkpop (weslie)
 
-Last updated at 2/13/2026, 6:48:29 PM
+Last updated at 2/13/2026, 6:49:59 PM
