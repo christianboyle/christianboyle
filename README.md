@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YJ42UwzUVczrxzVm-eKyNew-t500x500.png">](https://soundcloud.com/rankzsound/john-summit-lights-go-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
 
-**Artist**: RANKZ 
+**Artist**: Slang Dogs 
 
-**Track**: John Summit - Lights Go Out (RANKZ Remix)
+**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
 
-Last updated at 2/14/2026, 7:44:30 AM
+Last updated at 2/14/2026, 7:44:35 AM
