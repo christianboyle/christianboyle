@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ttCbWpWANwvvZknO-2f8vkA-t500x500.png">](https://soundcloud.com/vizionn_fr/the-funk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AL7DvcOClvEbvLai-lxST5A-t500x500.jpg">](https://soundcloud.com/samuel-moriero/heroine-samuel-moriero-remix-free-dl)
 
-**Artist**: vizionn 
+**Artist**: Samuel Moriero 
 
-**Track**: The Funk
+**Track**: HEROINE - Samuel Moriero Remix (FREE DL)
 
-Last updated at 2/14/2026, 7:38:35 AM
+Last updated at 2/14/2026, 7:43:30 AM
