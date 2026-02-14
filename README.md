@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ASyfZG7Lde8reHN-JUhNsg-t500x500.png">](https://soundcloud.com/slowboyyy/getting-hot)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ErQI2f9gN7ZYKx3-mMCavA-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/jay-phoenix-daevo-crazy-free-download-1)
 
-**Artist**: Slowboy, TYPHON 
+**Artist**: Jay Phoenix & Daevo 
 
-**Track**: Slowboy & TYPHON - Getting Hot
+**Track**: Jay Phoenix & Daevo - Crazy [FREE DOWNLOAD] Supported byTANTRON!
 
-Last updated at 2/14/2026, 7:51:01 AM
+Last updated at 2/14/2026, 7:51:06 AM
