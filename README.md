@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ErQI2f9gN7ZYKx3-mMCavA-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/jay-phoenix-daevo-crazy-free-download-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kGzYSzMyGtEf9xK4-dUthYg-t500x500.png">](https://soundcloud.com/rhythmcityco/lavier-rcc-mix-series-002)
 
-**Artist**: Jay Phoenix & Daevo 
+**Artist**: Rhythm City Collective 
 
-**Track**: Jay Phoenix & Daevo - Crazy [FREE DOWNLOAD] Supported byTANTRON!
+**Track**: Lavier || RCC MIX Series #002
 
-Last updated at 2/14/2026, 7:51:06 AM
+Last updated at 2/14/2026, 7:51:11 AM
