@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yoqj2dKd47j7bEaz-1Xao8A-t500x500.png">](https://soundcloud.com/bo0tyleak/rightr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ib1YkRxGa1hn8ytL-HYYW3Q-t500x500.jpg">](https://soundcloud.com/hector-romero-morte/uptempo-2025-10-11-mp3)
 
-**Artist**: MARE, MAUD, Lawstylez, BOOTY LEAK 
+**Artist**: HEKTOR 
 
-**Track**: MARE + MAUD & Lawstylez + Booty Leak - Right Round  [ FREE DOWNLOAD ]
+**Track**: UPTEMPO (2025-10-11).mp3
 
-Last updated at 2/14/2026, 7:47:36 AM
+Last updated at 2/14/2026, 7:47:41 AM
