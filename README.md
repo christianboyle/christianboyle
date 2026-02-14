@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N1WvBPWJEXU1bTy0-WokTpA-t500x500.jpg">](https://soundcloud.com/foreverskunk/magazine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lj93tLzqzbBvWFB-zNdoKw-t500x500.png">](https://soundcloud.com/flaaare/well-never-part-again-3)
 
-**Artist**: longliveskunk 
+**Artist**: flare 
 
-**Track**: magazine (Prod Me)
+**Track**: we'll never part again
 
-Last updated at 2/13/2026, 6:24:52 PM
+Last updated at 2/13/2026, 6:27:07 PM
