@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y8afKY7FiH32H0n4-EwuOjg-t500x500.png">](https://soundcloud.com/ch2rms-archived/12-ch2rms-leaves-fall-quietly-feat-whyhaze-prod-pr37-mental-heroz-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2yCoSepGXQdIvscU-mNn1GQ-t500x500.jpg">](https://soundcloud.com/zangellllllll/hate-it)
 
-**Artist**: ch2rms 
+**Artist**: zangel 
 
-**Track**: 12. ch2rms - leaves fall quietly feat whyhaze prod pr37, mental, heroz
+**Track**: hate it prod me
 
-Last updated at 2/13/2026, 7:35:58 PM
+Last updated at 2/13/2026, 7:39:08 PM
