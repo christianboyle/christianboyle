@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ilvXcXy8FPZcamrq-NdUMww-t500x500.jpg">](https://soundcloud.com/ihuhalo/ik-it-hurts-u-fit-the-shoe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gpFaok7hmerVRWll-0zMJyw-t500x500.png">](https://soundcloud.com/heavn0nevaeh/kill-a-rat-acyl-dull)
 
-**Artist**: ihuHalo 
+**Artist**: heavn0nevaeh 
 
-**Track**: ik it hurts u fit the shoe, prod mirror massi #life
+**Track**: ᓚᘏᕐᐷ to Kill a Rat @acyl
 
-Last updated at 2/13/2026, 7:46:43 PM
+Last updated at 2/13/2026, 7:48:34 PM
