@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y91wpan2J8XitRNJ-SDFGAA-t500x500.jpg">](https://soundcloud.com/kieyo/figureout)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RUnmQp3jypnRUrN0-c4i6rQ-t500x500.jpg">](https://soundcloud.com/noraware/snapshot)
 
-**Artist**: kieyo 
+**Artist**: noraware 
 
-**Track**: figureout
+**Track**: snapshot @wizardpem @aizeks
 
-Last updated at 2/13/2026, 6:29:22 PM
+Last updated at 2/13/2026, 6:31:37 PM
