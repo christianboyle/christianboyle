@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZjG8LkUE3CCe4zkh-nzjTTw-t500x500.png">](https://soundcloud.com/hugobass303/hugobass303-dumm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1aksvZwsaWTLPcCF-nyuOSA-t500x500.jpg">](https://soundcloud.com/jakazid/j-core-heroez-ii-mogra)
 
-**Artist**: HugoBass303 
+**Artist**: JAKAZiD 
 
-**Track**: DUMM
+**Track**: JAKAZiD @ J-CORE HEROEZ II, MOGRA 2025-10-24
 
-Last updated at 2/14/2026, 7:27:23 AM
+Last updated at 2/14/2026, 7:27:28 AM
