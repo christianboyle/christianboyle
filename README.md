@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hj27SzAmkseXBJBc-9d14XQ-t500x500.png">](https://soundcloud.com/ch2rmslover/ch2rms-worse-than-bad-luck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UbiOc9fUaQFmPwvH-HlyBbg-t500x500.png">](https://soundcloud.com/1bandagez/my-last-diary-whan2k15-meta)
 
-**Artist**: #ch2rmslover 
+**Artist**: bandagez 
 
-**Track**: ch2rms - worse than bad luck (qweshkka)
+**Track**: my last diary 2kqai + han2k15 (meta)
 
-Last updated at 2/13/2026, 7:04:15 PM
+Last updated at 2/13/2026, 7:06:55 PM
