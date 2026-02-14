@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2pNxfWyvxVP46GG8-HoL0lg-t500x500.jpg">](https://soundcloud.com/maxynejournal/wheres-the-matter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-N1WvBPWJEXU1bTy0-WokTpA-t500x500.jpg">](https://soundcloud.com/foreverskunk/magazine)
 
-**Artist**: maxyne 
+**Artist**: longliveskunk 
 
-**Track**: wheres the matter prod 23.558x23.558
+**Track**: magazine (Prod Me)
 
-Last updated at 2/13/2026, 6:22:37 PM
+Last updated at 2/13/2026, 6:24:52 PM
