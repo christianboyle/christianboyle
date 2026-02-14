@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ImT51IEXzS9zXIS0-Xa0oyQ-t500x500.png">](https://soundcloud.com/heartstopmiami/twentyfourteen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GYhQsevEqJhNnerH-hVxitA-t500x500.png">](https://soundcloud.com/emma-ashley-285759292/my-problem)
 
-**Artist**: heartstopmiami & feardorian 
+**Artist**: Emma & Ashley 
 
-**Track**: 2014 [VIDEO IN DESC]
+**Track**: My Problem
 
-Last updated at 2/13/2026, 6:58:59 PM
+Last updated at 2/13/2026, 7:01:25 PM
