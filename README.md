@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vkxqE87XNtLLW8fy-BXuXNQ-t500x500.jpg">](https://soundcloud.com/4urc/blacktruck-wooly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xB6sgupj4h0eAOgz-RapZ8w-t500x500.png">](https://soundcloud.com/event-whalien/kyzwall-no-tape-google-rave-wha087)
 
-**Artist**: xurco 
+**Artist**: Kyzwall , No Tape 
 
-**Track**: #blackTruck (wooly)
+**Track**: Kyzwall & No Tape - Google Rave [WHA087]
 
-Last updated at 2/14/2026, 7:51:46 AM
+Last updated at 2/14/2026, 7:51:51 AM
