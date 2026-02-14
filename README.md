@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYdbtGazX0Br1Mzw-zyyyvQ-t500x500.jpg">](https://soundcloud.com/wtchmesuffer/urnotmyfriend)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63f3cd14zh6FthQK-C4Relw-t500x500.png">](https://soundcloud.com/kyur0/pavement)
 
-**Artist**: 私を見てsuffer 
+**Artist**: kyuro 
 
-**Track**: Ur not my friend prod r000
+**Track**: kuru - pavement (kyuro mh)
 
-Last updated at 2/13/2026, 5:59:50 PM
+Last updated at 2/13/2026, 6:01:20 PM
