@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q20M5v14S8AbcxkY-ezza9A-t500x500.jpg">](https://soundcloud.com/fovosmusic/fovos-work-edit-extended)
 
-**Artist**: Slang Dogs 
+**Artist**: FOVOS 
 
-**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
+**Track**: Masters at Work - Work (FOVOS Edit)
 
-Last updated at 2/14/2026, 7:43:55 AM
+Last updated at 2/14/2026, 7:44:03 AM
