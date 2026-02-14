@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000223101602-worozr-t500x500.jpg">](https://soundcloud.com/mackned/lil-peep-x-mackned-x-sneakguapo-sad-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000197760911-brh7ha-t500x500.jpg">](https://soundcloud.com/lil_peep/smokepurpp-on-a-bean-prod-willie-g)
 
-**Artist**: Mackned 
+**Artist**: Smoke Purpp , Lil Peep 
 
-**Track**: Lil Peep X Mackned X Sneakguapo - Going Through My Cellphone (Fish Narc And Charlie Shuffler)
+**Track**: smokepurpp on a bean (prod. willie g)
 
-Last updated at 2/14/2026, 10:29:42 AM
+Last updated at 2/14/2026, 10:30:02 AM
