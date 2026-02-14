@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O1yFpTthTYJyJlfP-j12WaQ-t500x500.jpg">](https://soundcloud.com/16method/glo-prod-p-a-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ImT51IEXzS9zXIS0-Xa0oyQ-t500x500.png">](https://soundcloud.com/heartstopmiami/twentyfourteen)
 
-**Artist**: bboy-usg 
+**Artist**: heartstopmiami & feardorian 
 
-**Track**: glo [prod.P.A].mp3
+**Track**: 2014 [VIDEO IN DESC]
 
-Last updated at 2/13/2026, 6:57:24 PM
+Last updated at 2/13/2026, 6:58:59 PM
