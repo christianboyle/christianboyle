@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MadGsGZ0ozysargy-2qj7bg-t500x500.png">](https://soundcloud.com/dnzrecords/dgn-stranger-things)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss?in=saxurn/sets/mergency)
 
-**Artist**: DGN 
+**Artist**: WILLIE G 
 
-**Track**: DGN - Stranger Things
+**Track**: Kiss
 
-Last updated at 2/14/2026, 7:51:56 AM
+Last updated at 2/14/2026, 7:52:01 AM
