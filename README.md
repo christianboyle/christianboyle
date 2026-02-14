@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RVzRKpNXgthphprl-KIs9og-t500x500.png">](https://soundcloud.com/eta45mins/missed-conceptions-4eternity-dub-final-master-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-STBwNY3hlkraQo4O-bd2JDg-t500x500.png">](https://soundcloud.com/iamsalay/kill-em)
 
-**Artist**: CHILD OF GOD. 
+**Artist**: Salay 
 
-**Track**: CHILD OF GOD. - Missed Conceptions (4Eternity Dub)
+**Track**: KILL EM
 
-Last updated at 2/14/2026, 7:50:16 AM
+Last updated at 2/14/2026, 7:50:26 AM
