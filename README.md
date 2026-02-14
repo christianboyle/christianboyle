@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uexPTRLbkg6odysw-AO9sJQ-t500x500.png">](https://soundcloud.com/flaaare/something-about-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hXCwC42HQQMrlTEm-KSBl5A-t500x500.png">](https://soundcloud.com/nubielovesme/it-makes-me-uncomfortable-when-youre-nice-to-me-asperr)
 
-**Artist**: flare 
+**Artist**: Nubie 
 
-**Track**: something about it
+**Track**: It Makes Me Uncomfortable When You’re Nice To Me  [+Asperr]
 
-Last updated at 2/13/2026, 6:51:39 PM
+Last updated at 2/13/2026, 6:52:54 PM
