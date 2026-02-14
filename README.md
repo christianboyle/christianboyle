@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zFF46yzjTohHFa27-vqzavQ-t500x500.png">](https://soundcloud.com/dnzrecords/illsley-hate-u-love-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ssyQZjyff4yCyhER-WIlXnQ-t500x500.jpg">](https://soundcloud.com/user-681000000/dj_bexx-donked-up-in-love)
 
-**Artist**: Illsley 
+**Artist**: DJ_Bexx 🎵 Donked Up 🎵 
 
-**Track**: Illsley - Hate U Love U
+**Track**: DJ_Bexx - Donked Up In Love
 
-Last updated at 2/14/2026, 7:29:04 AM
+Last updated at 2/14/2026, 7:29:14 AM
