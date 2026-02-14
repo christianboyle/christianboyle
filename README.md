@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2Zow90iknc50Ce8-3nGAjQ-t500x500.png">](https://soundcloud.com/lowerzonetechno/b-day-free-download-lowerzone-pump-house-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHpz0uGQiQpRMWSK-hurt7A-t500x500.jpg">](https://soundcloud.com/hiddenacademy/funk-it-up-original-mix)
 
-**Artist**: Lowerzone 
+**Artist**: HIDDEN ACADEMY 
 
-**Track**: B-DAY FREE DOWNLOAD | Lowerzone - Pump House (Original Mix)
+**Track**: FUNK IT UP (Original Mix) (FREE DOWNLOAD)
 
-Last updated at 2/14/2026, 7:46:35 AM
+Last updated at 2/14/2026, 7:46:45 AM
