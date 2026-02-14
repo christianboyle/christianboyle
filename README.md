@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xcdv2R6bUPPGR3Dt-q3KgFQ-t500x500.png">](https://soundcloud.com/dnzrecords/crazyhutz-move-any-mountain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UiiqDFfBZm0hiynI-6wwT8g-t500x500.jpg">](https://soundcloud.com/migueldebois/if-you-like-tech-home-mix)
 
-**Artist**: CrazyHutz 
+**Artist**: Miguel de Bois 
 
-**Track**: CrazyHutz - Move Any Mountain
+**Track**: If You Like [tech-home mix]
 
-Last updated at 2/14/2026, 7:26:48 AM
+Last updated at 2/14/2026, 7:26:53 AM
