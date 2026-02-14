@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l4zEpmyZCYDCPKGk-z1ly8A-t500x500.jpg">](https://soundcloud.com/dros909/dros-atlantis-edit-mstr-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QOCweK5u0cE6CTyl-uB6Fxw-t500x500.jpg">](https://soundcloud.com/fennxmusic/legends-never-die-techno)
 
-**Artist**: DROS 
+**Artist**: FennX 
 
-**Track**: DROS - ATLANTIS HARD EDIT [FREE DL]
+**Track**: FennX - Legends Never Die (Chaos Mix)
 
-Last updated at 2/14/2026, 7:44:50 AM
+Last updated at 2/14/2026, 7:44:55 AM
