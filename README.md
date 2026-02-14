@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iJzOfGIPetJOK61-Clkmsw-t500x500.png">](https://soundcloud.com/2tdmusic/chompa?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHpz0uGQiQpRMWSK-hurt7A-t500x500.jpg">](https://soundcloud.com/hiddenacademy/funk-it-up-original-mix)
 
-**Artist**: 2TD 
+**Artist**: HIDDEN ACADEMY 
 
-**Track**: CHOMPA
+**Track**: FUNK IT UP (Original Mix) (FREE DOWNLOAD)
 
-Last updated at 2/14/2026, 8:57:18 AM
+Last updated at 2/14/2026, 8:57:23 AM
