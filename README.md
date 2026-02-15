@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gTnELywZ2ygC9eyb-foyNLA-t500x500.png">](https://soundcloud.com/kilianmusicofficial/kilian-next-level)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
 
-**Artist**: KILIÅN 
+**Artist**: Slang Dogs 
 
-**Track**: NEXT LEVEL
+**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
 
-Last updated at 2/14/2026, 6:38:09 PM
+Last updated at 2/14/2026, 6:41:44 PM
