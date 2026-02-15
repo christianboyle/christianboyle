@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6moyKZISlSLb4hXR-fWQDCw-t500x500.png">](https://soundcloud.com/ricochetmovement/machromel-baila-rchva001)
 
-**Artist**: Slang Dogs 
+**Artist**: RICOCHET, Machromel 
 
-**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
+**Track**: Machromel - B.A.I.L.A [RCHVA001]
 
-Last updated at 2/14/2026, 6:41:44 PM
+Last updated at 2/14/2026, 6:45:30 PM
