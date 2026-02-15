@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tX0Kv66OyrwRFe63-Mq5yeA-t500x500.png">](https://soundcloud.com/mori/ofc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
 
-**Artist**: mori 
+**Artist**: Slang Dogs 
 
-**Track**: Ofc ✌️ 💯 (@saig23 @gen7i16)
+**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
 
-Last updated at 2/15/2026, 8:09:49 AM
+Last updated at 2/15/2026, 9:25:42 AM
