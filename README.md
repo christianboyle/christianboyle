@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yDGMVG9zh5c6SLMw-Ch07iQ-t500x500.jpg">](https://soundcloud.com/krenonmusic/krenon-inner-scream)
 
-**Artist**: crusey 
+**Artist**: KRENON 
 
-**Track**: do u care? ft. lynU & trustt
+**Track**: KRENON - INNER SCREAM
 
-Last updated at 2/15/2026, 10:49:07 AM
+Last updated at 2/15/2026, 2:33:30 PM
