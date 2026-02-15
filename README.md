@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EdzoA84VSkL9VTzZ-8aLCEw-t500x500.jpg">](https://soundcloud.com/sopranosbounce/scott-f-wildstyle-in-amsterdam-sopranos-sounds-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4X0h43TyibJhgs2-oewOHQ-t500x500.png">](https://soundcloud.com/bankaji/tomfordflip)
 
-**Artist**: Scott F 
+**Artist**: BANkaJI 
 
-**Track**: Scott F - Wildstyle In Amsterdam | Sopranos Sounds **FREE DOWNLOAD**
+**Track**: Moreart - Tom Ford (BANkaJI Flip)
 
-Last updated at 2/14/2026, 11:03:01 AM
+Last updated at 2/14/2026, 6:35:44 PM
