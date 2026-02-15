@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnLRTgNFFEbabhR6-JkUH5Q-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-eyes-closed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c7zhEyQteQMplE5b-kza6wQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-from-heaven)
 
-**Artist**: DJ Oggy 
+**Artist**: DJ Oskar 
 
-**Track**: DJ Oggy - Eyes Closed
+**Track**: DJ Oskar - From Heaven
 
-Last updated at 2/15/2026, 4:01:41 PM
+Last updated at 2/15/2026, 4:03:50 PM
