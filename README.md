@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bU9s4g8HfhTLjiJD-hYL3Ig-t500x500.jpg">](https://soundcloud.com/hgods/gibson-girl-hgods-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nw1sjaoeWvgx74Gq-Te3s6w-t500x500.jpg">](https://soundcloud.com/mac-soundz/mac-soundz-valentines-vibez)
 
-**Artist**: HGods 
+**Artist**: 𝐌𝐀𝐂 𝐒𝐎𝐔𝐍𝐃’𝐙 
 
-**Track**: Ethel Cain - Gibson Girl (HGods Remix)
+**Track**: Mac Sound'z Valentines Vibez
 
-Last updated at 2/15/2026, 8:53:28 PM
+Last updated at 2/15/2026, 8:57:09 PM
