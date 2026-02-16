@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O3a8LgTqkkvejmGR-JZXuUw-t500x500.jpg">](https://soundcloud.com/biff-jones-0/bounce-fresh-165)
 
-**Artist**: Gallium, Buzz Junior 
+**Artist**: F.E.A.R.™ - K4Y0 - PROJECT HAVOC - PARAGON - S.B.L 
 
-**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
+**Track**: Bounce Fresh 165
 
-Last updated at 2/16/2026, 8:00:37 AM
+Last updated at 2/16/2026, 9:28:50 AM
