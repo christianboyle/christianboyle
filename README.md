@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m6kvOlBo9dxB9d79-mE2jGQ-t500x500.jpg">](https://soundcloud.com/frogchaser/americanodrift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l8e53wLF7hCozO82-BAqkGg-t500x500.png">](https://soundcloud.com/mart-x-dj/mysoulmylove)
 
-**Artist**: frog chaser 
+**Artist**: Mart!x 
 
-**Track**: frog chaser & MESSIE - Americano Drift
+**Track**: MySoulMyLove
 
-Last updated at 2/16/2026, 4:15:38 PM
+Last updated at 2/16/2026, 4:17:08 PM
