@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvVAeW4szcZBwEIP-wUjydQ-t500x500.jpg">](https://soundcloud.com/furtha-dubs/furtha-water-flip-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6moyKZISlSLb4hXR-fWQDCw-t500x500.png">](https://soundcloud.com/ricochetmovement/imminent-delusion-rchva001?in=imminentau/sets/releases)
 
-**Artist**: FURTHA 
+**Artist**: RICOCHET, IMMINENT 
 
-**Track**: Young Dolph, Key Glock - Water on Water on Water (FURTHA Flip)
+**Track**: IMMINENT - DELUSION [RCHVA001]
 
-Last updated at 2/15/2026, 9:06:19 PM
+Last updated at 2/15/2026, 9:09:13 PM
