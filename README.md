@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-82KBXKyrvIt0vlkR-SnHiPQ-t500x500.png">](https://soundcloud.com/felmax/k5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyU3zZ4uyI3rSy3A-GY4yQg-t500x500.jpg">](https://soundcloud.com/richard-illsley/go-donkers-2-dj-rich-get-up-mix)
 
-**Artist**: FELMAX 
+**Artist**: Dj ILLSLEY (GO DONKER'S) 
 
-**Track**: FELMAX : KAIOKEN V : FINAL BOUT (2026 SHOWCASE MIX)
+**Track**: GO DONKERS 2 - DJ ILLSLEY  - GET UP MIX
 
-Last updated at 2/16/2026, 9:40:41 AM
+Last updated at 2/16/2026, 9:42:21 AM
