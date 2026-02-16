@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000167752666-l85dbf-t500x500.jpg">](https://soundcloud.com/alexomfg/omfg-hello)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6ASyfZG7Lde8reHN-JUhNsg-t500x500.png">](https://soundcloud.com/slowboyyy/getting-hot)
 
-**Artist**: OMFG 
+**Artist**: Slowboy, TYPHON 
 
-**Track**: OMFG - Hello
+**Track**: Slowboy & TYPHON - Getting Hot
 
-Last updated at 2/15/2026, 6:37:27 PM
+Last updated at 2/15/2026, 6:38:57 PM
