@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k1KrxzdAqPsbOi2f-5WAXyw-t500x500.jpg">](https://soundcloud.com/kkoosk/endroll-hatha-pokkun-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIQqFtKpGQbBsYc3-Hsu1Gg-t500x500.jpg">](https://soundcloud.com/gzmo-productions/wildfire-gzmo-remix-sc-clip-1)
 
-**Artist**: Sawano Hiroyuki 
+**Artist**: GZMO 
 
-**Track**: ENDROLL -HaThA- (Pokkun Remix)
+**Track**: Subfocus - Wildfire (GZMO Remix) Clip
 
-Last updated at 2/15/2026, 8:47:23 PM
+Last updated at 2/15/2026, 8:48:23 PM
