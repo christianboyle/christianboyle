@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWe6Y4Yiy08MDvAK-sddvsQ-t500x500.jpg">](https://soundcloud.com/emmrsn/emmrsn-feel-the-panic-vocal-flip-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsFcQyky5fo9cem8-vimQ2Q-t500x500.jpg">](https://soundcloud.com/bncybncy/kwex-backyard-session)
 
-**Artist**: EMMRSN 
+**Artist**: Kwex 
 
-**Track**: Feel the Panic
+**Track**: Kwex - Backyard Session
 
-Last updated at 2/15/2026, 8:43:47 PM
+Last updated at 2/15/2026, 8:44:47 PM
