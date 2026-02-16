@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oGa0APuWeh7LwWda-wz3r7w-t500x500.jpg">](https://soundcloud.com/johnathon-o-regan/reegz-put-ya-hands-up?in=saxurn/sets/1a1/)
 
-**Artist**: Gallium, Buzz Junior 
+**Artist**: REEGZ 
 
-**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
+**Track**: Put Ya Hands Up
 
-Last updated at 2/15/2026, 9:11:25 PM
+Last updated at 2/15/2026, 9:13:25 PM
