@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9BtzKG9elZ5zt0Vc-ovrAxg-t500x500.png">](https://soundcloud.com/industrialsounds/amanda-baron-freedom-perspectives-digital)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IBRJ0p0jsZryMcTJ-YJV0IQ-t500x500.png">](https://soundcloud.com/vlacemusic/marcel-woods-cherry-blossom)
 
-**Artist**: Amanda Baron 
+**Artist**: VLACE 
 
-**Track**: Amanda Baron - Freedom [Perspectives Digital]
+**Track**: Marcel Woods - Cherry Blossom (Vlace Schranz Rework)
 
-Last updated at 2/16/2026, 4:07:40 PM
+Last updated at 2/16/2026, 4:10:00 PM
