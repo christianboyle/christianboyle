@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhEibMIzS42GrLsH-exJpiQ-t500x500.png">](https://soundcloud.com/dj_miggyt/complicated-miggyt-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4aEA6qJ7lF9cybtG-M0iYyA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/know-nothing)
 
-**Artist**: MIGGY T 
+**Artist**: Fika x Dozen Matter x Lucid Slip 
 
-**Track**: Avril Lavigne - Complicated Miggy T & løvkëy Remix
+**Track**: Know Nothing
 
-Last updated at 2/15/2026, 8:51:28 PM
+Last updated at 2/15/2026, 8:52:28 PM
