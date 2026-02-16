@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-isAbfyzvph5myk5C-yyyvRg-t500x500.png">](https://soundcloud.com/wearestudio/tntklz-horizons-premiere)
 
-**Artist**: sunsuu, minok0 
+**Artist**: STUDIO, TNTKLZ 
 
-**Track**: idgaf w/ @minok0 (min cr1sis)
+**Track**: TNTKLZ - Horizons [Premiere]
 
-Last updated at 2/16/2026, 3:52:33 PM
+Last updated at 2/16/2026, 3:55:53 PM
