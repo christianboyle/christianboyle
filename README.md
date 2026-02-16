@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVy78OyUrOmi85ED-Y0RHlA-t500x500.png">](https://soundcloud.com/icqbaby/icq-baby-hardly-ever-smile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UToabWWYDyWFduKD-HYEetw-t500x500.png">](https://soundcloud.com/lucuna-dubstep/2026-showcase)
 
-**Artist**: ICQ BABY 
+**Artist**: LUCUNA 
 
-**Track**: ICQ BABY - HARDLY EVER SMILE VOLT MIXX (FREE DL)
+**Track**: LUCUNA 2026 SHOWCASE
 
-Last updated at 2/16/2026, 4:00:54 PM
+Last updated at 2/16/2026, 4:06:29 PM
