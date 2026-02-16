@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l8e53wLF7hCozO82-BAqkGg-t500x500.png">](https://soundcloud.com/mart-x-dj/mysoulmylove)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Qg443x9pvHEspbN-csur7Q-t500x500.png">](https://soundcloud.com/itsdvnk/stole-ya-flow-flip)
 
-**Artist**: Mart!x 
+**Artist**: DVNK 
 
-**Track**: MySoulMyLove
+**Track**: STOLE YA FLOW FLIP
 
-Last updated at 2/16/2026, 4:17:08 PM
+Last updated at 2/16/2026, 4:20:33 PM
