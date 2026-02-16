@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nw1sjaoeWvgx74Gq-Te3s6w-t500x500.jpg">](https://soundcloud.com/mac-soundz/mac-soundz-valentines-vibez)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TBzHIjO2y0miGEF-akHUSg-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-furtha-speed-it-up)
 
-**Artist**: 𝐌𝐀𝐂 𝐒𝐎𝐔𝐍𝐃’𝐙 
+**Artist**: Gallium, FURTHA 
 
-**Track**: Mac Sound'z Valentines Vibez
+**Track**: Speed It Up!
 
-Last updated at 2/15/2026, 8:57:09 PM
+Last updated at 2/15/2026, 8:59:06 PM
