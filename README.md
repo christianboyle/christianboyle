@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXjaHeVsLl3eOBGN-TXioLg-t500x500.png">](https://soundcloud.com/paul-gannon-2nd-account/paul-gannon-wings-feat-aylin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5muiPGvH9ebcwFY-gkASJA-t500x500.png">](https://soundcloud.com/user-690273969/hungry)
 
-**Artist**: Paul Gannon 
+**Artist**: DJ BuddyHolly 
 
-**Track**: Paul Gannon - Wings feat. Aylin
+**Track**: DJ BuddyHolly - 💖"Hungry Eye's"💖
 
-Last updated at 2/16/2026, 10:05:24 AM
+Last updated at 2/16/2026, 10:06:23 AM
