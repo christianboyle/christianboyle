@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIQqFtKpGQbBsYc3-Hsu1Gg-t500x500.jpg">](https://soundcloud.com/gzmo-productions/wildfire-gzmo-remix-sc-clip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Qxk5otmNeB70STT-0lfClw-t500x500.png">](https://soundcloud.com/noizecomplaintlive/1a688638-8bda-458c-aac0-5723693673df)
 
-**Artist**: GZMO 
+**Artist**: Noize Complaint 
 
-**Track**: Subfocus - Wildfire (GZMO Remix) Clip
+**Track**: John Summit - LIGHTS GO OUT [ Noize Complaint Remix ]
 
-Last updated at 2/15/2026, 8:48:23 PM
+Last updated at 2/15/2026, 8:49:23 PM
