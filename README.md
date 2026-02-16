@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhEibMIzS42GrLsH-exJpiQ-t500x500.png">](https://soundcloud.com/dj_miggyt/complicated-miggyt-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x?in=saxurn/sets/1a1/)
 
-**Artist**: MIGGY T 
+**Artist**: Gallium, Buzz Junior 
 
-**Track**: Avril Lavigne - Complicated Miggy T & løvkëy Remix
+**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
 
-Last updated at 2/16/2026, 7:27:23 AM
+Last updated at 2/16/2026, 8:00:37 AM
