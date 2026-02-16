@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XISAz0CrPrwB6zl8-d3ULDQ-t500x500.jpg">](https://soundcloud.com/user-560250574/jgs-intent-dj-eden-because-you-loved-me-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qN3fo5aMh8vqyDQY-mFiq8A-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-summer-is-calling)
 
-**Artist**: EDEN FAYE MUSIC ✅ 
+**Artist**: DJ MOFF-EL MOFF-M DEE 21 
 
-**Track**: JGS, INTENT & DJ EDEN - Because You Loved Me (Sample)
+**Track**: EL MOFF - Summer Is Calling [sample]
 
-Last updated at 2/16/2026, 3:48:42 PM
+Last updated at 2/16/2026, 3:50:22 PM
