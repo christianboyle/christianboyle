@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXkz85uUyV77TVK9-jKfSTA-t500x500.png">](https://soundcloud.com/gravitas-recordings/furtha-twopercent-retrospect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CvVAeW4szcZBwEIP-wUjydQ-t500x500.jpg">](https://soundcloud.com/furtha-dubs/furtha-water-flip-master)
 
-**Artist**: FURTHA & Twopercent 
+**Artist**: FURTHA 
 
-**Track**: FURTHA & Twopercent - Retrospect
+**Track**: Young Dolph, Key Glock - Water on Water on Water (FURTHA Flip)
 
-Last updated at 2/15/2026, 9:02:33 PM
+Last updated at 2/15/2026, 9:06:19 PM
