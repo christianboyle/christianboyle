@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6moyKZISlSLb4hXR-fWQDCw-t500x500.png">](https://soundcloud.com/ricochetmovement/imminent-delusion-rchva001?in=imminentau/sets/releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x?in=saxurn/sets/1a1/)
 
-**Artist**: RICOCHET, IMMINENT 
+**Artist**: Gallium, Buzz Junior 
 
-**Track**: IMMINENT - DELUSION [RCHVA001]
+**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
 
-Last updated at 2/15/2026, 9:09:13 PM
+Last updated at 2/15/2026, 9:11:25 PM
