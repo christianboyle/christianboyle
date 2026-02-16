@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qN3fo5aMh8vqyDQY-mFiq8A-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-summer-is-calling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: sunsuu, minok0 
 
-**Track**: EL MOFF - Summer Is Calling [sample]
+**Track**: idgaf w/ @minok0 (min cr1sis)
 
-Last updated at 2/16/2026, 3:50:22 PM
+Last updated at 2/16/2026, 3:52:33 PM
