@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9TBzHIjO2y0miGEF-akHUSg-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-furtha-speed-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yXkz85uUyV77TVK9-jKfSTA-t500x500.png">](https://soundcloud.com/gravitas-recordings/furtha-twopercent-retrospect)
 
-**Artist**: Gallium, FURTHA 
+**Artist**: FURTHA & Twopercent 
 
-**Track**: Speed It Up!
+**Track**: FURTHA & Twopercent - Retrospect
 
-Last updated at 2/15/2026, 8:59:06 PM
+Last updated at 2/15/2026, 9:02:33 PM
