@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IBRJ0p0jsZryMcTJ-YJV0IQ-t500x500.png">](https://soundcloud.com/vlacemusic/marcel-woods-cherry-blossom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-msnEOGBBNOCRybxS-VaCbeg-t500x500.jpg">](https://soundcloud.com/davie-rae-810600984/davie-rae-makina-test-4)
 
-**Artist**: VLACE 
+**Artist**: Davie Rae 
 
-**Track**: Marcel Woods - Cherry Blossom (Vlace Schranz Rework)
+**Track**: Davie Rae Makina Test 4
 
-Last updated at 2/16/2026, 4:10:00 PM
+Last updated at 2/16/2026, 4:10:59 PM
