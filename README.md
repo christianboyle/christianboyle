@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCsxVsCoGdn35jCb-Mnj2xw-t500x500.png">](https://soundcloud.com/djcra1gmcl/sparkos-craig-mclelland-what)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip)
 
-**Artist**: DJ Craig Mclelland  / Black Cap 
+**Artist**: Slang Dogs 
 
-**Track**: Sparkos & Craig Mclelland - What Hurts The Most FREE DOWNLOAD FROM  20-02-2026
+**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
 
-Last updated at 2/17/2026, 9:05:06 AM
+Last updated at 2/17/2026, 9:10:51 AM
