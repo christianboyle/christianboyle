@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BPcjaeHOvWjKof7d-KizGpg-t500x500.png">](https://soundcloud.com/hanzommusic/highthere-o-p-sindicate-ad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ichvcH3jjXx2CKQ2-2rKmLg-t500x500.jpg">](https://soundcloud.com/vyharamusic/e388f1ba-cc22-4443-bf72-4e4569999ef2)
 
-**Artist**: HighThere, O&P, Sindicate 
+**Artist**: Vyhara 
 
-**Track**: HighThere, O&P & Sindicate - Ad Victoriam (Free Download)
+**Track**: RL Grime - Core (Vyhara flip)
 
-Last updated at 2/17/2026, 8:13:50 AM
+Last updated at 2/17/2026, 8:15:15 AM
