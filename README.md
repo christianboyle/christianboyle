@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JmppdHqf7IRbsna6-NjU7Xg-t500x500.jpg">](https://soundcloud.com/hibiki-rokutanda/iii_my-favorite-hyper-flip-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m4gp8PyeMKg4xE3z-Xl9PYQ-t500x500.png">](https://soundcloud.com/fail-chan/ae66d4e9-965e-4565-9784-d3ef8195370c)
 
-**Artist**: 6Tan / Sixstylez 
+**Artist**: ︵‿୨𝑭𝑨𝑰𝑳 ✛ 𝒄𝒉𝒂𝒏୧‿︵ 
 
-**Track**: 𝑰𝑰𝑰_𝑴𝒀 𝑭𝑨𝑽𝑶𝑹𝑰𝑻𝑬 𝑯𝒀𝑷𝑬𝑹 𝑭𝑳𝑰𝑷 𝑴𝑰𝑿 𝟒_𝑰𝑰𝑰
+**Track**: 𝐓𝐇𝐈𝐒 𝐓𝐈𝐌𝐄 𝐑𝐄𝐏𝐄𝐀𝐓𝐒 𝐈𝐓𝐒𝐄𝐋𝐅 𝐅𝐎𝐑𝐄𝐕𝐄𝐑
 
-Last updated at 2/17/2026, 8:17:15 AM
+Last updated at 2/17/2026, 8:18:15 AM
