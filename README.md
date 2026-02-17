@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xkd5z1rfD87yllXp-FlyJUQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-save-me-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BD9M5oWVeYyWkWOv-LxB3aQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
 
-**Artist**: DRIFT 
+**Artist**: Big Ric DJ 
 
-**Track**: DRIFT - SAVE ME (RADIO EDIT)
+**Track**: Big Ric - Not Touching The Ground
 
-Last updated at 2/17/2026, 9:46:59 AM
+Last updated at 2/17/2026, 9:50:45 AM
