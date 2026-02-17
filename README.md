@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLX1vNgioskBWGfP-2jrswQ-t500x500.png">](https://soundcloud.com/paul-gannon-2nd-account/paul-gannon-every-breath-you)
 
-**Artist**: :Bx: 
+**Artist**: Paul Gannon 
 
-**Track**: Take My :Heart: Away (:Bx: Hard Edit)
+**Track**: Paul Gannon - Every Breath You Take
 
-Last updated at 2/17/2026, 8:57:45 AM
+Last updated at 2/17/2026, 9:01:50 AM
