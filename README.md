@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m4gp8PyeMKg4xE3z-Xl9PYQ-t500x500.png">](https://soundcloud.com/fail-chan/ae66d4e9-965e-4565-9784-d3ef8195370c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wgq9HlnIHqToyVOY-vXHpSw-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-audio-nitrate)
 
-**Artist**: ︵‿୨𝑭𝑨𝑰𝑳 ✛ 𝒄𝒉𝒂𝒏୧‿︵ 
+**Artist**: Yannis G 
 
-**Track**: 𝐓𝐇𝐈𝐒 𝐓𝐈𝐌𝐄 𝐑𝐄𝐏𝐄𝐀𝐓𝐒 𝐈𝐓𝐒𝐄𝐋𝐅 𝐅𝐎𝐑𝐄𝐕𝐄𝐑
+**Track**: Yannis G & Audio Nitrate - Indestructible SAMPLE.mp3
 
-Last updated at 2/17/2026, 8:22:48 AM
+Last updated at 2/17/2026, 8:24:45 AM
