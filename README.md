@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGbHPFfhudD9S04D-LCWSTA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/trippie-redd-dark-knight-dummo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dtgakD7Clzusw7y-fypgNw-t500x500.png">](https://soundcloud.com/ae-ae-42108902/ae-ae-staek)
 
-**Artist**: M?STIC, PIERCE 
+**Artist**: Æ.Æ 
 
-**Track**: TRIPPIE REDD - DARK KNIGHT DUMMO (M?STIC & PIERCE REMIX)
+**Track**: Æ.Æ - STÆK
 
-Last updated at 2/17/2026, 8:04:49 AM
+Last updated at 2/17/2026, 8:07:24 AM
