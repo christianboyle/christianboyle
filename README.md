@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rGfGTmB1VAia7Jnx-bKziNg-t500x500.png">](https://soundcloud.com/deanleepalfreman/dean-lee-will-i-radio-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVL1N3G2ARiaL69Q-JNBHnQ-t500x500.jpg">](https://soundcloud.com/xox-scruz/paramore-still-into-u-scruz-remix)
 
-**Artist**: Dean Lee 
+**Artist**: scruz 
 
-**Track**: DEAN LEE - WILL I
+**Track**: paramore - still into you (scruz remix)
 
-Last updated at 2/17/2026, 10:02:36 AM
+Last updated at 2/17/2026, 10:06:51 AM
