@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhEibMIzS42GrLsH-exJpiQ-t500x500.png">](https://soundcloud.com/dj_miggyt/complicated-miggyt-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UZS4qL8yYte5vYr-CbMAlQ-t500x500.png">](https://soundcloud.com/dnzrecords/jamie-b-this-is-the-night)
 
-**Artist**: MIGGY T 
+**Artist**: Jamie B 
 
-**Track**: Avril Lavigne - Complicated Miggy T & løvkëy Remix
+**Track**: Jamie B - This Is The Night
 
-Last updated at 2/17/2026, 5:34:51 AM
+Last updated at 2/17/2026, 5:38:41 AM
