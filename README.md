@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrH745t58kJTIBOG-odVaCw-t500x500.png">](https://soundcloud.com/v_o/pathetic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KMQwgpbjuUKMdknv-YZ01xQ-t500x500.png">](https://soundcloud.com/beetlejuke/thiefbeetle)
 
-**Artist**: jirachi, tera 
+**Artist**: Beetlejuke 
 
-**Track**: pathetic ft. tera
+**Track**: OOKAY - Thief (Beetlejuke & Lahri Remix) FREE DOWNLOAD
 
-Last updated at 2/17/2026, 8:44:44 AM
+Last updated at 2/17/2026, 8:46:54 AM
