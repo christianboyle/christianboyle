@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UZS4qL8yYte5vYr-CbMAlQ-t500x500.png">](https://soundcloud.com/dnzrecords/jamie-b-this-is-the-night)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhuM6JcPmsWUi3OC-yvf4GQ-t500x500.jpg">](https://soundcloud.com/user-372178750/initialize-valentines-3)
 
-**Artist**: Jamie B 
+**Artist**: Dj Culture 
 
-**Track**: Jamie B - This Is The Night
+**Track**: INITIALIZE - VALENTINES SPECIAL - Dj Browny - Mc Ace - Mc impulse - Lethal Injection - The Empire
 
-Last updated at 2/17/2026, 5:38:41 AM
+Last updated at 2/17/2026, 7:34:06 AM
