@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BD9M5oWVeYyWkWOv-LxB3aQ-t500x500.jpg">](https://soundcloud.com/ric-lynsky/big-ric-not-touching-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EdzoA84VSkL9VTzZ-8aLCEw-t500x500.jpg">](https://soundcloud.com/sopranosbounce/scott-f-wildstyle-in-amsterdam-sopranos-sounds-free-download)
 
-**Artist**: Big Ric DJ 
+**Artist**: Scott F 
 
-**Track**: Big Ric - Not Touching The Ground
+**Track**: Scott F - Wildstyle In Amsterdam | Sopranos Sounds **FREE DOWNLOAD**
 
-Last updated at 2/17/2026, 9:50:45 AM
+Last updated at 2/17/2026, 9:53:10 AM
