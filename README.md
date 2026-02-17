@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zyQoY2glfbzIHl4-EVfeSQ-t500x500.png">](https://soundcloud.com/actuation/sofi-a-cristo-tars-another)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wY2tJctG8PZKj5HE-yYQTog-t500x500.png">](https://soundcloud.com/fazz_mp3/fazz-drop-yo-glasses)
 
-**Artist**: Actuation 
+**Artist**: Fazz 
 
-**Track**: Sofía Cristo, TARS. - Another Night
+**Track**: Fazz - Drop Yo Glasses
 
-Last updated at 2/17/2026, 7:41:17 AM
+Last updated at 2/17/2026, 7:44:02 AM
