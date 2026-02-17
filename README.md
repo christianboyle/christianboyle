@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-i-dont-wanna-lose)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qu8hBtQ7GsoP4Yu-bOmnWQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-indifference-repitchdamn)
 
-**Artist**: JGS, INTENT 
+**Artist**: SUS1ER 
 
-**Track**: JGS & INTENT - I Dont Wanna Lose Your Love Tonight (Sample)
+**Track**: SUS1ER - Indifference repitch/Damn:(
 
-Last updated at 2/17/2026, 7:36:51 AM
+Last updated at 2/17/2026, 7:37:51 AM
