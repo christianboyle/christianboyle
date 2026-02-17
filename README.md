@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNmV132UvCnwgbAC-gIk9zQ-t500x500.png">](https://soundcloud.com/queenadriann/mrs-walkemdown-prod-mobilet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Qg443x9pvHEspbN-csur7Q-t500x500.png">](https://soundcloud.com/itsdvnk/stole-ya-flow-flip)
 
-**Artist**: ‍queenadriann 
+**Artist**: DVNK 
 
-**Track**: mrs walkemdown prod mobilet
+**Track**: STOLE YA FLOW FLIP
 
-Last updated at 2/17/2026, 8:35:08 AM
+Last updated at 2/17/2026, 8:36:33 AM
