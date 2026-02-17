@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6qu8hBtQ7GsoP4Yu-bOmnWQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-indifference-repitchdamn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zyQoY2glfbzIHl4-EVfeSQ-t500x500.png">](https://soundcloud.com/actuation/sofi-a-cristo-tars-another)
 
-**Artist**: SUS1ER 
+**Artist**: Actuation 
 
-**Track**: SUS1ER - Indifference repitch/Damn:(
+**Track**: Sofía Cristo, TARS. - Another Night
 
-Last updated at 2/17/2026, 7:37:51 AM
+Last updated at 2/17/2026, 7:41:17 AM
