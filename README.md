@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhEibMIzS42GrLsH-exJpiQ-t500x500.png">](https://soundcloud.com/dj_miggyt/complicated-miggyt-remix?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhEibMIzS42GrLsH-exJpiQ-t500x500.png">](https://soundcloud.com/dj_miggyt/complicated-miggyt-remix)
 
 **Artist**: MIGGY T 
 
 **Track**: Avril Lavigne - Complicated Miggy T & løvkëy Remix
 
-Last updated at 2/16/2026, 8:12:39 PM
+Last updated at 2/17/2026, 5:34:51 AM
