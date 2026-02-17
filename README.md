@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dtgakD7Clzusw7y-fypgNw-t500x500.png">](https://soundcloud.com/ae-ae-42108902/ae-ae-staek)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-66zTuZ2hDFMwVGlT-Z14L5A-t500x500.png">](https://soundcloud.com/simonjayofficial/simon-jay-i-belong-to-me-1)
 
-**Artist**: Æ.Æ 
+**Artist**: Simon Jay 
 
-**Track**: Æ.Æ - STÆK
+**Track**: Simon Jay - I belong to me (Free DL)
 
-Last updated at 2/17/2026, 8:07:24 AM
+Last updated at 2/17/2026, 8:10:20 AM
