@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TjkiyVew3CA2Enk6-EtQvMA-t500x500.jpg">](https://soundcloud.com/darn84/sy-unknown-ft-grant-paterson)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HjHNqdz8vxv74bNB-Ityzmw-t500x500.jpg">](https://soundcloud.com/taiki-nulight-uk/disclosure-tenderly-taiki)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Disclosure, Taiki Nulight 
 
-**Track**: Sy & Unknown ft. Grant Paterson - Only For You - Quosh Records (2008)
+**Track**: Disclosure - Tenderly (Taiki Nulight Edit) | Free Download
 
-Last updated at 2/17/2026, 8:17:09 PM
+Last updated at 2/17/2026, 8:24:51 PM
