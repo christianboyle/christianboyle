@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAxeBvyqJPGl-0-t500x500.jpg">](https://soundcloud.com/2pac/ambitionz-az-a-ridah-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-foz9WuBOlLEW9ovF-yZqqmw-t500x500.jpg">](https://soundcloud.com/gary-oi-oi-jones/ikon-kitchen-sessions-vol-11)
 
-**Artist**: 2Pac 
+**Artist**: DJ JONES-A 
 
-**Track**: Ambitionz Az A Ridah
+**Track**: Ikon Kitchen Sessions Vol 11
 
-Last updated at 2/17/2026, 8:25:16 PM
+Last updated at 2/17/2026, 8:25:42 PM
