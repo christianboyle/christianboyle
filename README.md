@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15DNAeBydPUXnjXN-jOyy5A-t500x500.png">](https://soundcloud.com/bo0tyleak/deathb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss)
 
-**Artist**: MXRT CXN, BOOTY LEAK, HOMINID, Garage Band 
+**Artist**: WILLIE G 
 
-**Track**: MXRT CXN + Booty Leak & HOMINID + Garage King - Death Bed [ FREE DOWNLOAD ]
+**Track**: Kiss
 
-Last updated at 2/18/2026, 9:48:56 AM
+Last updated at 2/18/2026, 9:50:12 AM
