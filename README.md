@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qN3fo5aMh8vqyDQY-mFiq8A-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/el-moff-summer-is-calling)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7iyH586zXRFfO19-74TVxw-t500x500.jpg">](https://soundcloud.com/undehfined/4-da-top)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: Undehfined 
 
-**Track**: EL MOFF - Summer Is Calling [sample]
+**Track**: 4 Da Top
 
-Last updated at 2/17/2026, 8:24:56 PM
+Last updated at 2/17/2026, 8:25:06 PM
