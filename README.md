@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DNmV132UvCnwgbAC-gIk9zQ-t500x500.png">](https://soundcloud.com/queenadriann/mrs-walkemdown-prod-mobilet)
 
-**Artist**: SUS1ER 
+**Artist**: ‍queenadriann 
 
-**Track**: SUS1ER - Envy
+**Track**: mrs. walkemdown (prod mobilet)
 
-Last updated at 2/18/2026, 10:46:52 AM
+Last updated at 2/18/2026, 10:49:37 AM
