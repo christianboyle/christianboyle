@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrH745t58kJTIBOG-odVaCw-t500x500.png">](https://soundcloud.com/v_o/pathetic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpvMyMDcA1lQWi6k-We4lAw-t500x500.jpg">](https://soundcloud.com/stylusdamage/one-more-time)
 
-**Artist**: jirachi, tera 
+**Artist**: Stylus Damage 
 
-**Track**: pathetic ft. tera
+**Track**: One More Time
 
-Last updated at 2/18/2026, 11:02:20 AM
+Last updated at 2/18/2026, 3:40:33 PM
