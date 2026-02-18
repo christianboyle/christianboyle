@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SGYTdmNPU26CR34b-5b1exw-t500x500.png">](https://soundcloud.com/909worldwide/one-last-breath-nightcore-42?in=99jakes/sets/trax-from-the-3rd-909-comp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FaCyuxe720Ye8jcR-1biTcQ-t500x500.png">](https://soundcloud.com/official_mr_o/mr-o-x-rated-well-be-friends)
 
-**Artist**: 99jakes 
+**Artist**: Mr.O 
 
-**Track**: 99jakes - one last breath (nightcore)
+**Track**: Mr.O & X-Rated - We'll Be Friends
 
-Last updated at 2/18/2026, 3:41:48 PM
+Last updated at 2/18/2026, 3:42:58 PM
