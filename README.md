@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YGd71yOtFZhpQxA-khiy1w-t500x500.jpg">](https://soundcloud.com/grabthegroove/gtg-premiere-decoder-in-an)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf)
 
-**Artist**: Grab The Groove 
+**Artist**: sunsuu, minok0 
 
-**Track**: GTG Premiere | Decoder - In An Instant [PLANETX]
+**Track**: idgaf w/ @minok0 (min cr1sis)
 
-Last updated at 2/18/2026, 8:40:30 AM
+Last updated at 2/18/2026, 8:46:40 AM
