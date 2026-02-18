@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TdA44Cvf6zHsgCvU-9FagkQ-t500x500.jpg">](https://soundcloud.com/sevsky/synchronize-original-showcase)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tPMXV6mOZNU1nmi-xHdVtw-t500x500.png">](https://soundcloud.com/socialkidmusic/esper)
 
-**Artist**: SEVSKY 
+**Artist**: SOCIAL KID 
 
-**Track**: SYNCHRONIZE Original Showcase Mix
+**Track**: ESPER
 
-Last updated at 2/17/2026, 8:10:49 PM
+Last updated at 2/17/2026, 8:12:39 PM
