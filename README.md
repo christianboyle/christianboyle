@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OnLRTgNFFEbabhR6-JkUH5Q-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-eyes-closed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOPmkz7SQmfEGo9K-EgBklA-t500x500.png">](https://soundcloud.com/deckheadzuk/bcxd-dancing-in-the-dark-dj)
 
-**Artist**: DJ Oggy 
+**Artist**: DeckHead 
 
-**Track**: DJ Oggy - Eyes Closed
+**Track**: BCXD (Ben Critic X Deckhead) - Dancing In The Dark - DJ Edit
 
-Last updated at 2/18/2026, 10:01:48 AM
+Last updated at 2/18/2026, 10:03:48 AM
