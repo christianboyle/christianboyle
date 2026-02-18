@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x)
 
-**Artist**: sunsuu, minok0 
+**Artist**: Gallium, Buzz Junior 
 
-**Track**: idgaf w/ @minok0 (min cr1sis)
+**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
 
-Last updated at 2/18/2026, 8:46:40 AM
+Last updated at 2/18/2026, 8:48:46 AM
