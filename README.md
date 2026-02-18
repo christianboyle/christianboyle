@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YGd71yOtFZhpQxA-khiy1w-t500x500.jpg">](https://soundcloud.com/grabthegroove/gtg-premiere-decoder-in-an)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NrH745t58kJTIBOG-odVaCw-t500x500.png">](https://soundcloud.com/v_o/pathetic)
 
-**Artist**: Grab The Groove 
+**Artist**: jirachi, tera 
 
-**Track**: GTG Premiere | Decoder - In An Instant [PLANETX]
+**Track**: pathetic ft. tera
 
-Last updated at 2/18/2026, 10:57:03 AM
+Last updated at 2/18/2026, 11:02:20 AM
