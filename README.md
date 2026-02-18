@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOPmkz7SQmfEGo9K-EgBklA-t500x500.png">](https://soundcloud.com/deckheadzuk/bcxd-dancing-in-the-dark-dj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jlAnYVKY0ylxSeWG-Q1Ubhw-t500x500.jpg">](https://soundcloud.com/geomcd/dax-dear-alcohol-geo-mcd-remix)
 
-**Artist**: DeckHead 
+**Artist**: geo mcd 
 
-**Track**: BCXD (Ben Critic X Deckhead) - Dancing In The Dark - DJ Edit
+**Track**: DAX - Dear Alcohol - Geo Mcd Remix
 
-Last updated at 2/18/2026, 8:27:14 AM
+Last updated at 2/18/2026, 8:27:24 AM
