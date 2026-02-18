@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2tPMXV6mOZNU1nmi-xHdVtw-t500x500.png">](https://soundcloud.com/socialkidmusic/esper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-35rpIWEepd7MzMVJ-m6nueg-t500x500.jpg">](https://soundcloud.com/paul-dickinson-449980311/hard-house-v-spanish-volume-2)
 
-**Artist**: SOCIAL KID 
+**Artist**: Dicky 
 
-**Track**: ESPER
+**Track**: Hard House v. Spanish Volume 2
 
-Last updated at 2/17/2026, 8:12:39 PM
+Last updated at 2/17/2026, 8:12:44 PM
