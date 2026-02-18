@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pCabGawnuyT7wPo5-OZvmUg-t500x500.png">](https://soundcloud.com/si-thompson/si-thompson-journey-from-jungle-to-happy-hardcore-18-1-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ichvcH3jjXx2CKQ2-2rKmLg-t500x500.jpg">](https://soundcloud.com/vyharamusic/e388f1ba-cc22-4443-bf72-4e4569999ef2)
 
-**Artist**: Si Thompson 
+**Artist**: Vyhara 
 
-**Track**: Si Thompson - Journey From Jungle To Happy Hardcore (18-1-2026)
+**Track**: RL Grime - Core (Vyhara flip)
 
-Last updated at 2/18/2026, 5:44:18 AM
+Last updated at 2/18/2026, 8:03:01 AM
