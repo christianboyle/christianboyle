@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-WXaHnNN679MW5RGN-xQC7aQ-t500x500.jpg">](https://soundcloud.com/djjoetaylor/joe-tay-or-in-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8UZS4qL8yYte5vYr-CbMAlQ-t500x500.png">](https://soundcloud.com/dnzrecords/jamie-b-this-is-the-night)
 
-**Artist**: DJ JoE TaY!oR 
+**Artist**: Jamie B 
 
-**Track**: JoE TaY!oR - In Love
+**Track**: Jamie B - This Is The Night
 
-Last updated at 2/17/2026, 8:16:19 PM
+Last updated at 2/17/2026, 8:16:24 PM
