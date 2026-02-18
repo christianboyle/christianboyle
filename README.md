@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-foz9WuBOlLEW9ovF-yZqqmw-t500x500.jpg">](https://soundcloud.com/gary-oi-oi-jones/ikon-kitchen-sessions-vol-11)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1crUhoegpKLG0eN9-386gpA-t500x500.jpg">](https://soundcloud.com/officialjustg/2pac-ambitionz-az-a-ridah-justg-remix)
 
-**Artist**: DJ JONES-A 
+**Artist**: JustG 
 
-**Track**: Ikon Kitchen Sessions Vol 11
+**Track**: 2Pac - Ambitionz Az A Ridah (JustG Remix)
 
-Last updated at 2/17/2026, 8:25:42 PM
+Last updated at 2/17/2026, 8:27:05 PM
