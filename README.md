@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9mADyrnz8tQrD4WL-7K0XUg-t500x500.jpg">](https://soundcloud.com/onnelly2014/dmb-donnelly-heaven-is-a-place)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LeuyXDaoKycd44D2-vZpheg-t500x500.jpg">](https://soundcloud.com/freddy-opheim/my-deep-melodic-techno-groove-mix-122-125bpm)
 
-**Artist**: 🎶🏴󠁧󠁢󠁳󠁣󠁴󠁿DONNELLY🏴󠁧󠁢󠁳󠁣󠁴󠁿🎶 
+**Artist**: DJ Froppy  
 
-**Track**: DMB & DONNELLY - heaven is a place on earth
+**Track**: My Deep Melodic Techno Banger Mix 122-125bpm V33
 
-Last updated at 2/17/2026, 8:34:01 PM
+Last updated at 2/17/2026, 8:36:42 PM
