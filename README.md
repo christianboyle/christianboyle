@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jlAnYVKY0ylxSeWG-Q1Ubhw-t500x500.jpg">](https://soundcloud.com/geomcd/dax-dear-alcohol-geo-mcd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cxOoh22gqGvyU0km-cflBvg-t500x500.png">](https://soundcloud.com/whoiscpark/lost-and-found-cpark)
 
-**Artist**: geo mcd 
+**Artist**: CPARK 
 
-**Track**: DAX - Dear Alcohol - Geo Mcd Remix
+**Track**: LOST AND FOUND [ELECTRIC HAWK PREMIERE]
 
-Last updated at 2/17/2026, 8:13:59 PM
+Last updated at 2/17/2026, 8:14:19 PM
