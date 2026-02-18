@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jlAnYVKY0ylxSeWG-Q1Ubhw-t500x500.jpg">](https://soundcloud.com/geomcd/dax-dear-alcohol-geo-mcd-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ichvcH3jjXx2CKQ2-2rKmLg-t500x500.jpg">](https://soundcloud.com/vyharamusic/e388f1ba-cc22-4443-bf72-4e4569999ef2)
 
-**Artist**: geo mcd 
+**Artist**: Vyhara 
 
-**Track**: DAX - Dear Alcohol - Geo Mcd Remix
+**Track**: RL Grime - Core (Vyhara flip)
 
-Last updated at 2/18/2026, 10:07:39 AM
+Last updated at 2/18/2026, 10:11:09 AM
