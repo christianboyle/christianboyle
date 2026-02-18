@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ycrXrZMGkenldH6Y-fFHyRw-t500x500.png">](https://soundcloud.com/jessejaymusic/sticky-fingers-how-to-fly-jj-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oAxeBvyqJPGl-0-t500x500.jpg">](https://soundcloud.com/2pac/ambitionz-az-a-ridah-4)
 
-**Artist**: Jesse Jay, Sticky Fingers 
+**Artist**: 2Pac 
 
-**Track**: Sticky Fingers - How To Fly (JJ Remix) [FREE DL]
+**Track**: Ambitionz Az A Ridah
 
-Last updated at 2/17/2026, 8:25:11 PM
+Last updated at 2/17/2026, 8:25:16 PM
