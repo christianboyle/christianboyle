@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGbHPFfhudD9S04D-LCWSTA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/trippie-redd-dark-knight-dummo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wgq9HlnIHqToyVOY-vXHpSw-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-audio-nitrate)
 
-**Artist**: M?STIC, PIERCE 
+**Artist**: Yannis G 
 
-**Track**: TRIPPIE REDD - DARK KNIGHT DUMMO (M?STIC & PIERCE REMIX)
+**Track**: Yannis G & Audio Nitrate - Indestructible SAMPLE.mp3
 
-Last updated at 2/18/2026, 10:14:34 AM
+Last updated at 2/18/2026, 10:17:04 AM
