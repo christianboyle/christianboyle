@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-L2kk6bsNpNkvmc9T-9q2JOg-t500x500.jpg">](https://soundcloud.com/aylen/aylen-laser-experiment)
 
-**Artist**: sunsuu, minok0 
+**Artist**: Aylen 
 
-**Track**: idgaf w/ @minok0 (min cr1sis)
+**Track**: Aylen - Laser Experiment
 
-Last updated at 2/17/2026, 2:50:35 PM
+Last updated at 2/17/2026, 8:10:24 PM
