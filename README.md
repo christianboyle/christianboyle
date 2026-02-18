@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YzsVKrLi3IvuyuPE-X4ScWA-t500x500.png">](https://soundcloud.com/dj-ste-willo/one-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wX2fT7u0zuDhUnj3-Si97Cg-t500x500.png">](https://soundcloud.com/chromebodies/outofmymind)
 
-**Artist**: Ste Willo 
+**Artist**: CHROMEBODIES 
 
-**Track**: One More
+**Track**: JOSHWA - OUT OF MY MIND (CHROMEBODIED)
 
-Last updated at 2/17/2026, 8:16:59 PM
+Last updated at 2/17/2026, 8:17:04 PM
