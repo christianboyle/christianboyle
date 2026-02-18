@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-35rpIWEepd7MzMVJ-m6nueg-t500x500.jpg">](https://soundcloud.com/paul-dickinson-449980311/hard-house-v-spanish-volume-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XU2TtM1cfiSgnKKE-KB5UJQ-t500x500.png">](https://soundcloud.com/dj-gary-ward/bounce-minis-vol-4)
 
-**Artist**: Dicky 
+**Artist**: DJ Gary Ward 
 
-**Track**: Hard House v. Spanish Volume 2
+**Track**: Bounce Minis VOL.4
 
-Last updated at 2/17/2026, 8:12:44 PM
+Last updated at 2/17/2026, 8:12:49 PM
