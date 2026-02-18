@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HWlz4zwyqxFI5FCU-ieiCKA-t500x500.png">](https://soundcloud.com/nivlemmusic/huntr-x-golden-nivlem-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W6eSySjJwWaZEDCJ-KEXSjQ-t500x500.png">](https://soundcloud.com/ninajirachi/itsyouunderscores)
 
-**Artist**: Nivlem 
+**Artist**: Ninajirachi, daine 
 
-**Track**: HUNTR/X - Golden (Nivlem Remix)
+**Track**: It's You (underscores' "It's U" Remix)
 
-Last updated at 2/18/2026, 3:53:34 PM
+Last updated at 2/18/2026, 3:54:34 PM
