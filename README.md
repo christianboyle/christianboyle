@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JpIoAto27wyHEHRa-NaGEoQ-t500x500.jpg">](https://soundcloud.com/sus1er/sus1er-envy)
 
-**Artist**: Gallium, Buzz Junior 
+**Artist**: SUS1ER 
 
-**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
+**Track**: SUS1ER - Envy
 
-Last updated at 2/18/2026, 10:44:57 AM
+Last updated at 2/18/2026, 10:46:52 AM
