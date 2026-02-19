@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hu910f0lrpCrp0UD-6FBBjw-t500x500.png">](https://soundcloud.com/aftrnoondlite/stileto-feat-kendyle-paige)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izcO5mp1wPX2zl8A-z3QzrQ-t500x500.png">](https://soundcloud.com/zaiyajin/phompy-thirtysixty-zaiyajin)
 
-**Artist**: Aftrnoondlite 
+**Artist**: ZAIYA-JIN, PHOMPY 
 
-**Track**: Stileto (feat. Kendyle Paige) - Cravin' (Aftrnoondlite FLIP)
+**Track**: PHOMPY - THIRTY6IX (ZAIYA-JIN REMIX)[FREE DL]
 
-Last updated at 2/19/2026, 7:52:51 AM
+Last updated at 2/19/2026, 7:52:56 AM
