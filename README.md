@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UtrxE4j0c7G6W5r9-yMnNUQ-t500x500.png">](https://soundcloud.com/scissors-music/markus-martinez-scissors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41BpxcpLx3oM96kt-RyDkBQ-t500x500.png">](https://soundcloud.com/djdougster-gibson/devils-funfair)
 
-**Artist**: Scissors Music ✂️, Markus Martinez 
+**Artist**: djdougster gibson 
 
-**Track**: Markus Martinez & Scissors - Dimelo
+**Track**: DEVILS FUNFAIR
 
-Last updated at 2/19/2026, 7:51:40 AM
+Last updated at 2/19/2026, 7:52:46 AM
