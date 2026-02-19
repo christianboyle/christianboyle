@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EV9nPmllLdVr5Vq7-JeKiPA-t500x500.png">](https://soundcloud.com/tratratrax/lws-gubbins-tra029)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/hevynfire-rosey-written-in-the)
 
-**Artist**: TraTraTrax 
+**Artist**: Revolution-Records UK 
 
-**Track**: LWS — Gubbins — TRA029
+**Track**: HEVYNFIRE & ROSEY - WRITTEN UP IN THE STARS - OUT NOW
 
-Last updated at 2/18/2026, 7:17:39 PM
+Last updated at 2/18/2026, 7:18:48 PM
