@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtmmoejvUEzzYujS-yGvZgg-t500x500.jpg">](https://soundcloud.com/industrialsounds/bittermind-shiverrrrr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J7pX4yWOzjg4mLfY-tzh1GQ-t500x500.jpg">](https://soundcloud.com/euroclubmusic/alarma)
 
-**Artist**: Bittermind 
+**Artist**: EUROCLUB 
 
-**Track**: John Summit & Hayla - Shiver (Bittermind Edit)
+**Track**: ALARMA
 
-Last updated at 2/19/2026, 8:05:42 AM
+Last updated at 2/19/2026, 8:05:47 AM
