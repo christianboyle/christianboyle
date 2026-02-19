@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8KDAgIXvLwAhUNWu-lsEo1A-t500x500.png">](https://soundcloud.com/circusrecords/heaters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf)
 
-**Artist**: Conrank x BLAOW! 
+**Artist**: sunsuu, minok0 
 
-**Track**: Heaters
+**Track**: idgaf w/ @minok0 (min cr1sis)
 
-Last updated at 2/19/2026, 7:40:31 AM
+Last updated at 2/19/2026, 7:40:35 AM
