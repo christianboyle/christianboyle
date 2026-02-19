@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7MEMtaA6K1qJm7MQ-XqSd6w-t500x500.jpg">](https://soundcloud.com/planet_wiz4rd/tabs-ft-mig)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EV9nPmllLdVr5Vq7-JeKiPA-t500x500.png">](https://soundcloud.com/tratratrax/lws-gubbins-tra029)
 
-**Artist**: sayin(@ohzotic) 
+**Artist**: TraTraTrax 
 
-**Track**: Tabs {ft.mig
+**Track**: LWS — Gubbins — TRA029
 
-Last updated at 2/18/2026, 5:53:43 PM
+Last updated at 2/18/2026, 7:17:39 PM
