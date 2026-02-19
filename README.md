@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3krn2gpM47M9dyD8-vWRVxA-t500x500.png">](https://soundcloud.com/djactiv8/bounce9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbMsduNHzxgED1Sp-KCF4Ow-t500x500.png">](https://soundcloud.com/slothmuzik/walkin-on-the-sun-sloth-remix)
 
-**Artist**: DJ ACTiV8 
+**Artist**: SMASH MOUTH, SLOTH 
 
-**Track**: BOUNCE ENERGY 9
+**Track**: SMASH MOUTH - WALKIN ON THE SUN (SLOTH REMIX)
 
-Last updated at 2/18/2026, 7:23:43 PM
+Last updated at 2/19/2026, 5:55:28 AM
