@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSQvYEKkBxgly1vn-gY2H4Q-t500x500.png">](https://soundcloud.com/ashleymcgowan/higher-wip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8nt8GIojehuw-0-t500x500.jpg">](https://soundcloud.com/mackeeper-music/centralia)
 
-**Artist**: Ashley McGowan 
+**Artist**: Mackeeper 
 
-**Track**: Higher (WIP)
+**Track**: Centralia
 
-Last updated at 2/19/2026, 7:53:46 AM
+Last updated at 2/19/2026, 7:53:51 AM
