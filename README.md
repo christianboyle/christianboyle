@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HrtE3WQljV6mkzdd-5nghCQ-t500x500.jpg">](https://soundcloud.com/lesskol/lesskol-love-is-the-answer-but)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o05tItWHmAFYK3tA-c0OHqg-t500x500.png">](https://soundcloud.com/sachsentrance/premiere-majestic-x-paolo)
 
-**Artist**: LESSKOL 
+**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: LESSKOL - Love Is The Answer | But Make it Schranz
+**Track**: [PREMIERE] MAJESTIC x Paolo Doldo - Afraid To Die
 
-Last updated at 2/19/2026, 7:53:21 AM
+Last updated at 2/19/2026, 7:53:26 AM
