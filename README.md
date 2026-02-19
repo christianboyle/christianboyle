@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TWiPZ7140HCmcn8D-QEEZ9A-t500x500.png">](https://soundcloud.com/wearestudio/misanthrop-brainwashed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bzx9pCmO22Skn74v-DTKHow-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-diego-straube-aender-relaxation-method-original-mix-kosmos)
 
-**Artist**: STUDIO, Misanthrop 
+**Artist**: Raven Musik 
 
-**Track**: Misanthrop - Brainwashed [Premiere]
+**Track**: PREMIERE: Diego Straube, Aender - Relaxation Method (Original Mix) [KOSMOS]
 
-Last updated at 2/19/2026, 7:54:06 AM
+Last updated at 2/19/2026, 7:54:11 AM
