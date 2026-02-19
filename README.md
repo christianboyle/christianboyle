@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sj7BuKr4lwvP-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/ashes-in-my-veins-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UItD7fETrT6nX6vo-XuLWgw-t500x500.png">](https://soundcloud.com/slickk2/makemefeel-burial-vip)
 
-**Artist**: BIXNT 
+**Artist**: SLICK² 
 
-**Track**: ASHES IN MY VEINS
+**Track**: makemefeel (burial vip)
 
-Last updated at 2/19/2026, 8:05:07 AM
+Last updated at 2/19/2026, 8:05:17 AM
