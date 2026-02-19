@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CkmgzPUSYSyoekIN-y3SNUg-t500x500.jpg">](https://soundcloud.com/1sunsuu/idgaf?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhEibMIzS42GrLsH-exJpiQ-t500x500.png">](https://soundcloud.com/dj_miggyt/complicated-miggyt-remix?in=saxurn/sets/1a1/)
 
-**Artist**: sunsuu, minok0 
+**Artist**: MIGGY T 
 
-**Track**: idgaf w/ @minok0 (min cr1sis)
+**Track**: Avril Lavigne - Complicated Miggy T & løvkëy Remix
 
-Last updated at 2/19/2026, 8:58:17 AM
+Last updated at 2/19/2026, 1:58:24 PM
