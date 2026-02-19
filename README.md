@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PyWM6vHeM7WC6RtP-E8BHsw-t500x500.png">](https://soundcloud.com/itsgypsyy/forever-sweet-disposition)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4FCog0hlrroV58aK-7g8zCg-t500x500.png">](https://soundcloud.com/simonjayofficial/simon-jay-dream-alone-free-download)
 
-**Artist**: Gypsy 
+**Artist**: Simon Jay 
 
-**Track**: Forever [Sweet Disposition] [FREE DOWNLOAD <3]
+**Track**: Simon Jay - Dream alone
 
-Last updated at 2/19/2026, 7:54:16 AM
+Last updated at 2/19/2026, 7:54:21 AM
