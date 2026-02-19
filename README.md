@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-12IZaFF3cWIzDpg1-1qmtyw-t500x500.jpg">](https://soundcloud.com/itzkeylo614/boom-boom-boomwav-15wav-v2-18)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6QHhJVuSDsrj7a2w-4EZzVA-t500x500.png">](https://soundcloud.com/bangerangelectro/bngelc034)
 
-**Artist**: Keylo 
+**Artist**: Erick Palacios 
 
-**Track**: BOOM BOOM BOOM - KEYLO
+**Track**: Erick Palacios - Ravers
 
-Last updated at 2/19/2026, 7:54:36 AM
+Last updated at 2/19/2026, 7:54:41 AM
