@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GfbAL7fxT5K1ilrm-Pa078g-t500x500.png">](https://soundcloud.com/spaceyetimusic/youmakemefeelremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gp0YJiYWyYOdT2vX-tquRxA-t500x500.jpg">](https://soundcloud.com/crankdatmusic/spitfire-crankdat-remix)
 
-**Artist**: SpaceYeti 
+**Artist**: Crankdat 
 
-**Track**: Cobra Starship - You Make Me Feel... ft. Sabi (SpaceYeti Remix)
+**Track**: SPITFIRE (CRANKDAT REMIX)
 
-Last updated at 2/19/2026, 7:55:06 AM
+Last updated at 2/19/2026, 7:55:11 AM
