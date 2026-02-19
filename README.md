@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6UsCp74VgdNyGlmC-qReiDg-t500x500.png">](https://soundcloud.com/bassurgence/daydream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j8qSv67vSPrCOU0t-tjpXsw-t500x500.png">](https://soundcloud.com/charrawhyte/sister-supreama)
 
-**Artist**: Bassurgence 
+**Artist**: CHARRA 
 
-**Track**: DAYDREAM
+**Track**: Sister Supreama
 
-Last updated at 2/19/2026, 7:55:36 AM
+Last updated at 2/19/2026, 8:02:02 AM
