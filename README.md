@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-41BpxcpLx3oM96kt-RyDkBQ-t500x500.png">](https://soundcloud.com/djdougster-gibson/devils-funfair)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hu910f0lrpCrp0UD-6FBBjw-t500x500.png">](https://soundcloud.com/aftrnoondlite/stileto-feat-kendyle-paige)
 
-**Artist**: djdougster gibson 
+**Artist**: Aftrnoondlite 
 
-**Track**: DEVILS FUNFAIR
+**Track**: Stileto (feat. Kendyle Paige) - Cravin' (Aftrnoondlite FLIP)
 
-Last updated at 2/19/2026, 7:52:46 AM
+Last updated at 2/19/2026, 7:52:51 AM
