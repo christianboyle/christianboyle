@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I2rMnUrSbGqaEYTi-UoQwIA-t500x500.png">](https://soundcloud.com/espforever/esp-roxy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iJzOfGIPetJOK61-Clkmsw-t500x500.png">](https://soundcloud.com/2tdmusic/chompa)
 
-**Artist**: ESP 
+**Artist**: 2TD 
 
-**Track**: ESP - Roxy
+**Track**: CHOMPA
 
-Last updated at 2/19/2026, 5:49:02 PM
+Last updated at 2/19/2026, 5:49:05 PM
