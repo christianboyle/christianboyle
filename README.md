@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-WXaHnNN679MW5RGN-xQC7aQ-t500x500.jpg">](https://soundcloud.com/djjoetaylor/joe-tay-or-in-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHR3n8RyHMiw50iz-WZzBQQ-t500x500.jpg">](https://soundcloud.com/decky-scott/hate-about-you)
 
-**Artist**: DJ JoE TaY!oR 
+**Artist**: Decky Scott 
 
-**Track**: JoE TaY!oR - In Love
+**Track**: Hate About You
 
-Last updated at 2/18/2026, 7:19:48 PM
+Last updated at 2/18/2026, 7:21:14 PM
