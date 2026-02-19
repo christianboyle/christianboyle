@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KFFDsjmnYwsS8RWA-ocxsWg-t500x500.jpg">](https://soundcloud.com/sourdieseldubs/sour-diesel-keti-the-yeti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxYgK4WAnGqyOmsy-7AA0og-t500x500.png">](https://soundcloud.com/wormhole-music-group/phydra-floret-loret-caelid)
 
-**Artist**: Sour Diesel 
+**Artist**: Phydra & Floret Loret 
 
-**Track**: Sour Diesel - Keti the Yeti (Cancelled Digital - 009)
+**Track**: Phydra & Floret Loret - Caelid
 
-Last updated at 2/19/2026, 8:05:27 AM
+Last updated at 2/19/2026, 8:05:32 AM
