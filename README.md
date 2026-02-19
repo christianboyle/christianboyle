@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQZmiCFyuRxqzyY8-zdflVQ-t500x500.jpg">](https://soundcloud.com/41rossco/bonkers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3krn2gpM47M9dyD8-vWRVxA-t500x500.png">](https://soundcloud.com/djactiv8/bounce9)
 
-**Artist**: DJ.Rossco 
+**Artist**: DJ ACTiV8 
 
-**Track**: Bonkers26Mix
+**Track**: BOUNCE ENERGY 9
 
-Last updated at 2/18/2026, 7:22:54 PM
+Last updated at 2/18/2026, 7:23:13 PM
