@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxYgK4WAnGqyOmsy-7AA0og-t500x500.png">](https://soundcloud.com/wormhole-music-group/phydra-floret-loret-caelid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4lZ5kE48XsR7EyTP-XZflmg-t500x500.png">](https://soundcloud.com/dirtysnatcha/psfd01)
 
-**Artist**: Phydra & Floret Loret 
+**Artist**: DirtySnatcha 
 
-**Track**: Phydra & Floret Loret - Caelid
+**Track**: PLAY SOME FUCKING DUBSTEP VOL.1
 
-Last updated at 2/19/2026, 8:05:32 AM
+Last updated at 2/19/2026, 8:05:37 AM
