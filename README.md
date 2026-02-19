@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hSm31LY9gK7jPXMv-5bhtbQ-t500x500.jpg">](https://soundcloud.com/tuckerdoubt/monday-night-yearning)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XtcjpLZnWLWCLTa3-9JfDKQ-t500x500.jpg">](https://soundcloud.com/purityleech/needu2bclose)
 
-**Artist**: Tucker Doubt 
+**Artist**: purityleech, Hannah Fortvne 
 
-**Track**: Monday night yearning
+**Track**: Need U 2 B Close (Feat. Hannah Fortvne)
 
-Last updated at 2/19/2026, 7:50:56 AM
+Last updated at 2/19/2026, 7:51:00 AM
