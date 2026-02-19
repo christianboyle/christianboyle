@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2iJzOfGIPetJOK61-Clkmsw-t500x500.png">](https://soundcloud.com/2tdmusic/chompa)
 
-**Artist**: :Bx: 
+**Artist**: 2TD 
 
-**Track**: Take My :Heart: Away (:Bx: Hard Edit)
+**Track**: CHOMPA
 
-Last updated at 2/19/2026, 2:01:14 PM
+Last updated at 2/19/2026, 5:45:08 PM
