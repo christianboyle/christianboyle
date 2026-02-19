@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J7pX4yWOzjg4mLfY-tzh1GQ-t500x500.jpg">](https://soundcloud.com/euroclubmusic/alarma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mftx6b6OkH8zl28z-B5nUwA-t500x500.png">](https://soundcloud.com/honeycomb/spicy-w-hershe-15)
 
-**Artist**: EUROCLUB 
+**Artist**: Honeycomb 
 
-**Track**: ALARMA
+**Track**: Spicy w/ HerShe
 
-Last updated at 2/19/2026, 8:05:47 AM
+Last updated at 2/19/2026, 8:07:32 AM
