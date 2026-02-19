@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BsZCZojME1aeb2L3-lQQcAg-t500x500.jpg">](https://soundcloud.com/brainwavedubs/onthefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sj7BuKr4lwvP-0-t500x500.jpg">](https://soundcloud.com/gearbox-digital/ashes-in-my-veins-extended-mix)
 
-**Artist**: BRNWVE 
+**Artist**: BIXNT 
 
-**Track**: ON THE FLOOR
+**Track**: ASHES IN MY VEINS
 
-Last updated at 2/19/2026, 8:05:02 AM
+Last updated at 2/19/2026, 8:05:07 AM
