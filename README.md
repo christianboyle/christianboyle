@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kHR3n8RyHMiw50iz-WZzBQQ-t500x500.jpg">](https://soundcloud.com/decky-scott/hate-about-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQZmiCFyuRxqzyY8-zdflVQ-t500x500.jpg">](https://soundcloud.com/41rossco/bonkers)
 
-**Artist**: Decky Scott 
+**Artist**: DJ.Rossco 
 
-**Track**: Hate About You
+**Track**: Bonkers26Mix
 
-Last updated at 2/18/2026, 7:21:14 PM
+Last updated at 2/18/2026, 7:22:54 PM
