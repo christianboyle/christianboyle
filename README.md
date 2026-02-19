@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edjk0yrzE6O4YDfz-qkvOHA-t500x500.png">](https://soundcloud.com/industrialsounds/berkay-deniz-x-roelbeat-x-cruze-hungry-for-love-exx-muzik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klg61l33azOqwN3Z-o8VppQ-t500x500.png">](https://soundcloud.com/wabdubs/waka-flocka-hard-in-the-paint-wab-x-topaz-flip)
 
-**Artist**: Roelbeat 
+**Artist**: WAB, TOPAZ 
 
-**Track**: Berkay Deniz x Roelbeat x Cruze - Hungry For Love [Exx Muzik]
+**Track**: Waka Flocka - Hard In The Paint (WAB x TOPAZ Flip)
 
-Last updated at 2/19/2026, 8:02:07 AM
+Last updated at 2/19/2026, 8:02:17 AM
