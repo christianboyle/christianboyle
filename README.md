@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-the-jfmc-lets-get)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n7HfJZhwRsgVs0gW-TmKcGA-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-fading-out)
 
-**Artist**: V-Bounce The JFMC 
+**Artist**: DJ Oggy 
 
-**Track**: V-Bounce & The JFMC - Lets Get Down (Test) 2
+**Track**: DJ Oggy - Fading Out
 
-Last updated at 2/19/2026, 7:53:36 AM
+Last updated at 2/19/2026, 7:53:41 AM
