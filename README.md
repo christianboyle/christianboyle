@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4lZ5kE48XsR7EyTP-XZflmg-t500x500.png">](https://soundcloud.com/dirtysnatcha/psfd01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xtmmoejvUEzzYujS-yGvZgg-t500x500.jpg">](https://soundcloud.com/industrialsounds/bittermind-shiverrrrr)
 
-**Artist**: DirtySnatcha 
+**Artist**: Bittermind 
 
-**Track**: PLAY SOME FUCKING DUBSTEP VOL.1
+**Track**: John Summit & Hayla - Shiver (Bittermind Edit)
 
-Last updated at 2/19/2026, 8:05:37 AM
+Last updated at 2/19/2026, 8:05:42 AM
