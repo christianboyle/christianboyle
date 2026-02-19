@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-acDAV4DSwP9bsXTL-NdQ0Gg-t500x500.png">](https://soundcloud.com/derumusic/charli-xcx-party-4-u-kavoi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UT603HHX0t3N-0-t500x500.jpg">](https://soundcloud.com/dr-dre-music/whats-the-difference-1)
 
-**Artist**: KAVOI 
+**Artist**: Dr. Dre 
 
-**Track**: Charli XCX - party 4 u (KAVOI remix)
+**Track**: What's The Difference (feat. Eminem & Xzibit)
 
-Last updated at 2/19/2026, 8:11:46 AM
+Last updated at 2/19/2026, 8:11:55 AM
