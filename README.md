@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbMsduNHzxgED1Sp-KCF4Ow-t500x500.png">](https://soundcloud.com/slothmuzik/walkin-on-the-sun-sloth-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpvMyMDcA1lQWi6k-We4lAw-t500x500.jpg">](https://soundcloud.com/stylusdamage/one-more-time)
 
-**Artist**: SMASH MOUTH, SLOTH 
+**Artist**: Stylus Damage 
 
-**Track**: SMASH MOUTH - WALKIN ON THE SUN (SLOTH REMIX)
+**Track**: One More Time
 
-Last updated at 2/20/2026, 8:44:48 AM
+Last updated at 2/20/2026, 8:46:58 AM
