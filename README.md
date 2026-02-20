@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ie95dzvFiKslufVs-0huUTQ-t500x500.jpg">](https://soundcloud.com/astroeric/bassline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vj9yuEEOOPlCyvRv-tqjzBQ-t500x500.png">](https://soundcloud.com/jadudala/iseeu-checks-up)
 
-**Artist**: Astro Eric 
+**Artist**: ISEEU 
 
-**Track**: BASSLINE
+**Track**: ISEEU - CHECKS UP (JADŪ276) - FREE DL
 
-Last updated at 2/20/2026, 5:42:41 PM
+Last updated at 2/20/2026, 5:42:46 PM
