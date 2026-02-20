@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I2rMnUrSbGqaEYTi-UoQwIA-t500x500.png">](https://soundcloud.com/espforever/esp-roxy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbMsduNHzxgED1Sp-KCF4Ow-t500x500.png">](https://soundcloud.com/slothmuzik/walkin-on-the-sun-sloth-remix)
 
-**Artist**: ESP 
+**Artist**: SMASH MOUTH, SLOTH 
 
-**Track**: ESP - Roxy
+**Track**: SMASH MOUTH - WALKIN ON THE SUN (SLOTH REMIX)
 
-Last updated at 2/20/2026, 7:37:35 AM
+Last updated at 2/20/2026, 8:44:48 AM
