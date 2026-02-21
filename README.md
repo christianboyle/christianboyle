@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-saNKz7arwqyYkuxw-iNnlIQ-t500x500.jpg">](https://soundcloud.com/tomschnie/kizu-x-tom-gasoline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZKg3UdYUDINoczpS-YZq3nw-t500x500.png">](https://soundcloud.com/radiorudina/monka-radio-rudina)
 
-**Artist**: TØM, KIZU 
+**Artist**: Radio Rudina 
 
-**Track**: KIZU x TØM - Gasoline Edit (FREE DL)
+**Track**: monka | Radio Rudina
 
-Last updated at 2/20/2026, 7:18:36 PM
+Last updated at 2/20/2026, 7:18:42 PM
