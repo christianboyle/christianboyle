@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afeFYsgWfBzWiTFN-PtA2pg-t500x500.png">](https://soundcloud.com/onyxberlin/argot-bag-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cEe8n2s9TP5AiVq6-BmB9BQ-t500x500.png">](https://soundcloud.com/diegointhedark/work-prod-me)
 
-**Artist**: Onyx Records 
+**Artist**: diegointhedark 
 
-**Track**: ARGOT - BAG IT UP
+**Track**: work prod me
 
-Last updated at 2/20/2026, 7:16:36 PM
+Last updated at 2/20/2026, 7:16:46 PM
