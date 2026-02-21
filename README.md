@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HbG4u9GdzS4Tdoyz-mGkwSw-t500x500.png">](https://soundcloud.com/imfarrellb/thirsty-bring-it-over-ft-tjayy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4IFrqqRryLWXKW4u-WWVF5A-t500x500.png">](https://soundcloud.com/gawmmusic/don-toliver-ft-rema-secondhand)
 
-**Artist**: FarrellB,TJAYY 
+**Artist**: Don Toliver,GAWM 
 
-**Track**: thirsty / bring it over ft tjayy (prod farrellb)
+**Track**: Don Toliver - Secondhand ft Rema (GAWM FLIP)
 
-Last updated at 2/20/2026, 7:19:42 PM
+Last updated at 2/20/2026, 7:19:52 PM
