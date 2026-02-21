@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gN7Z0SZ4N5RakmJv-t0FWFg-t500x500.jpg">](https://soundcloud.com/angelloz-music/spice-girls-wannabe-angelloz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LlVxG8HGoeSW83k-y8bWdA-t500x500.png">](https://soundcloud.com/dnzrecords/jo-e-dex-good-life)
 
-**Artist**: ANGELLOZ MUSIC 
+**Artist**: Jo E Dex 
 
-**Track**: Spice Girls - Wannabe ( ANGELLOZ REMIX )
+**Track**: Jo E Dex - Good Life
 
-Last updated at 2/20/2026, 7:17:36 PM
+Last updated at 2/20/2026, 7:18:16 PM
