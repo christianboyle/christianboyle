@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9MwTmdTDhqLYTr8-zO4G7g-t500x500.png">](https://soundcloud.com/murder-we-wrote/luan-lag-speak-of-the-devil)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aYUM0NKzOuUl5Hb5-wCJscQ-t500x500.jpg">](https://soundcloud.com/initi8uk/stuart-g-locks-and-chains-2)
 
-**Artist**: Murder We Wrote 
+**Artist**: Initi8 
 
-**Track**: Luan Lag - Speak of the Devil
+**Track**: Stuart G Locks And Chains - Initi8 remix
 
-Last updated at 2/20/2026, 7:16:16 PM
+Last updated at 2/20/2026, 7:16:21 PM
