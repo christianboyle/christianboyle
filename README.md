@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cEe8n2s9TP5AiVq6-BmB9BQ-t500x500.png">](https://soundcloud.com/diegointhedark/work-prod-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aJodrBETbkqXr74V-d0lRNw-t500x500.png">](https://soundcloud.com/theonlyyoungwolf/youngwolf-knock-ya-head)
 
-**Artist**: diegointhedark 
+**Artist**: YøungWolf 
 
-**Track**: work prod me
+**Track**: YoungWolf - KNOCK YA HEAD!
 
-Last updated at 2/20/2026, 7:16:46 PM
+Last updated at 2/20/2026, 7:17:01 PM
