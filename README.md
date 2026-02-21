@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyr6bmavFHGuiOwi-7VXTqQ-t500x500.png">](https://soundcloud.com/rave_alert/chrs-eyes-on-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gN7Z0SZ4N5RakmJv-t0FWFg-t500x500.jpg">](https://soundcloud.com/angelloz-music/spice-girls-wannabe-angelloz)
 
-**Artist**: Rave Alert 
+**Artist**: ANGELLOZ MUSIC 
 
-**Track**: CHRS - Eyes On Me
+**Track**: Spice Girls - Wannabe ( ANGELLOZ REMIX )
 
-Last updated at 2/20/2026, 7:17:31 PM
+Last updated at 2/20/2026, 7:17:36 PM
