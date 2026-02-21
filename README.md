@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-that-dont-impress)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-1Yafpvszu2a3ZAz4-XKcnzA-t500x500.jpg">](https://soundcloud.com/area51-musicproducer/area51-ronnie-c-bang-your-head)
 
-**Artist**: JGS, DJ INTENT 
+**Artist**: Area51  Ronnie C 
 
-**Track**: JGS & INTENT - That Don't Impress Me Much (Sample)
+**Track**: Area51 & Ronnie C - Bang Your Head Off (preview)
 
-Last updated at 2/20/2026, 7:19:07 PM
+Last updated at 2/20/2026, 7:19:22 PM
