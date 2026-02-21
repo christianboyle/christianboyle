@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvrXkJko16cBkI00-lIHPlg-t500x500.png">](https://soundcloud.com/highsynth1/drift-keep-climbing-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i7rqUjEOGAtJ8u7I-kUsNWA-t500x500.png">](https://soundcloud.com/djride/mxgpu-ease-djride-remix)
 
-**Artist**: DRIFT 
+**Artist**: DJ RIDE 
 
-**Track**: DRIFT - KEEP CLIMBING (OUT NOW)
+**Track**: MXGPU EASE DJRIDE REMIX
 
-Last updated at 2/20/2026, 7:15:51 PM
+Last updated at 2/20/2026, 7:16:01 PM
