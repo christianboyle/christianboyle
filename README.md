@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHPz8n8MZDHmDSJ7-UwfaVg-t500x500.jpg">](https://soundcloud.com/wkd-sounds/vennootschap-crazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-axHynFgzoYNZ-0-t500x500.jpg">](https://soundcloud.com/simplehumansound/organic-machines)
 
-**Artist**: WkdSounds™ - Vennootschap 
+**Artist**: Simple Human Sound 
 
-**Track**: VENNOOTSCHAP - CRAZY
+**Track**: Organic Machines
 
-Last updated at 2/20/2026, 7:18:52 PM
+Last updated at 2/20/2026, 7:19:02 PM
