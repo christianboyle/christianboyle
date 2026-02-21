@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zl4scXlZPvPsf6RY-zfdkUA-t500x500.png">](https://soundcloud.com/therealnaste/trippin-like-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-saNKz7arwqyYkuxw-iNnlIQ-t500x500.jpg">](https://soundcloud.com/tomschnie/kizu-x-tom-gasoline)
 
-**Artist**: Nāstë 
+**Artist**: TØM, KIZU 
 
-**Track**: TRIPPIN LIKE
+**Track**: KIZU x TØM - Gasoline Edit (FREE DL)
 
-Last updated at 2/20/2026, 7:32:35 PM
+Last updated at 2/20/2026, 7:34:40 PM
