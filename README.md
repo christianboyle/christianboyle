@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWyC55RtHBum6Evh-EQyimQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/fiji)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x?in=saxurn/sets/1a1/)
 
-**Artist**: Bounce Jackerz 
+**Artist**: Gallium, Buzz Junior 
 
-**Track**: Fiji
+**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
 
-Last updated at 2/21/2026, 4:30:37 PM
+Last updated at 2/21/2026, 4:31:39 PM
