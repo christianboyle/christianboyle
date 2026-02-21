@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZKg3UdYUDINoczpS-YZq3nw-t500x500.png">](https://soundcloud.com/radiorudina/monka-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWyC55RtHBum6Evh-EQyimQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/fiji)
 
-**Artist**: Radio Rudina 
+**Artist**: Bounce Jackerz 
 
-**Track**: monka | Radio Rudina
+**Track**: Fiji
 
-Last updated at 2/21/2026, 2:30:00 PM
+Last updated at 2/21/2026, 4:30:37 PM
