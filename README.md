@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fA70Wc95yyyUqlYA-AyzoRQ-t500x500.jpg">](https://soundcloud.com/tesstunes/shooting-stars-edit-tess)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afeFYsgWfBzWiTFN-PtA2pg-t500x500.png">](https://soundcloud.com/onyxberlin/argot-bag-it-up)
 
-**Artist**: TESS 
+**Artist**: Onyx Records 
 
-**Track**: TESS - SHOOTING STARS
+**Track**: ARGOT - BAG IT UP
 
-Last updated at 2/20/2026, 7:16:31 PM
+Last updated at 2/20/2026, 7:16:36 PM
