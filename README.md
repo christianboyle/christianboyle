@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-LNsroeSwDwljyZtI-lnj7VQ-t500x500.jpg">](https://soundcloud.com/1rynn/sweet-nothings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fA70Wc95yyyUqlYA-AyzoRQ-t500x500.jpg">](https://soundcloud.com/tesstunes/shooting-stars-edit-tess)
 
-**Artist**: ryn, cluu 
+**Artist**: TESS 
 
-**Track**: sweet nothings
+**Track**: TESS - SHOOTING STARS
 
-Last updated at 2/20/2026, 7:16:26 PM
+Last updated at 2/20/2026, 7:16:31 PM
