@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OApHC3SsxEBgIJtV-fSMqTg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-x-steven-straub-leaving)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9MwTmdTDhqLYTr8-zO4G7g-t500x500.png">](https://soundcloud.com/murder-we-wrote/luan-lag-speak-of-the-devil)
 
-**Artist**: DRIFT & STEVEN STRAUB 
+**Artist**: Murder We Wrote 
 
-**Track**: DRIFT X STEVEN STRAUB - LEAVING ME LEAVING YOU (RADIO EDIT)
+**Track**: Luan Lag - Speak of the Devil
 
-Last updated at 2/20/2026, 7:16:11 PM
+Last updated at 2/20/2026, 7:16:16 PM
