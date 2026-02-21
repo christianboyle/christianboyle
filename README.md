@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4IFrqqRryLWXKW4u-WWVF5A-t500x500.png">](https://soundcloud.com/gawmmusic/don-toliver-ft-rema-secondhand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WqRKQmpcHZzwVGtk-zPI6yQ-t500x500.png">](https://soundcloud.com/zacharystime/straight-up-radio-zachary-insomniac-radio-impact)
 
-**Artist**: Don Toliver,GAWM 
+**Artist**: Zachary, Straight Edge Group 
 
-**Track**: Don Toliver - Secondhand ft Rema (GAWM FLIP)
+**Track**: STRAIGHT UP RADIO - ZACHARY [INSOMNIAC RADIO IMPACT]
 
-Last updated at 2/20/2026, 7:19:52 PM
+Last updated at 2/20/2026, 7:20:02 PM
