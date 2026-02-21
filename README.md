@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/wont-fade-thanks-for-14k-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PzzN9RSYzgh9yQqD-APM8yw-t500x500.png">](https://soundcloud.com/devinkroesmusic/mystic-grizzly-devin-kroes-cycles)
 
-**Artist**: Smokestax 
+**Artist**: Devin Kroes, Mystic Grizzly 
 
-**Track**: Won't Fade (Thanks for 14k Free DL)
+**Track**: Mystic Grizzly x Devin Kroes - Cycles [Free Download]
 
-Last updated at 2/20/2026, 7:20:52 PM
+Last updated at 2/20/2026, 7:21:27 PM
