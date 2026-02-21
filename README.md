@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6OMianWgXGNPqYVB-LLWouA-t500x500.jpg">](https://soundcloud.com/renexy/sumo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfmerX6tjxMXyvIy-Gnxujw-t500x500.png">](https://soundcloud.com/musicbyryn/slander-nghtmre-free-ft-zohara)
 
-**Artist**: renexy 
+**Artist**: RYN 
 
-**Track**: sumo prod me
+**Track**: SLANDER & NGHTMRE - Free ft. Zohara (RYN Remix)
 
-Last updated at 2/20/2026, 7:17:21 PM
+Last updated at 2/20/2026, 7:17:26 PM
