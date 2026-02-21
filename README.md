@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/wont-fade-thanks-for-14k-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zl4scXlZPvPsf6RY-zfdkUA-t500x500.png">](https://soundcloud.com/therealnaste/trippin-like-final)
 
-**Artist**: Smokestax 
+**Artist**: Nāstë 
 
-**Track**: Won't Fade (Thanks for 14k Free DL)
+**Track**: TRIPPIN LIKE
 
-Last updated at 2/20/2026, 7:28:21 PM
+Last updated at 2/20/2026, 7:32:35 PM
