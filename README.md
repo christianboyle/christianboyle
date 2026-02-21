@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ebd9LewH8ykO4yz7-pu4HsA-t500x500.jpg">](https://soundcloud.com/sachsentrance/ammara-sachsentrance-podcast-150)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZKg3UdYUDINoczpS-YZq3nw-t500x500.png">](https://soundcloud.com/radiorudina/monka-radio-rudina)
 
-**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: Radio Rudina 
 
-**Track**: AMMARA - SACHSENTRANCE PODCAST #150
+**Track**: monka | Radio Rudina
 
-Last updated at 2/21/2026, 12:34:25 PM
+Last updated at 2/21/2026, 2:09:43 PM
