@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7LlVxG8HGoeSW83k-y8bWdA-t500x500.png">](https://soundcloud.com/dnzrecords/jo-e-dex-good-life)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000547893708-r7s43g-t500x500.jpg">](https://soundcloud.com/initi8uk/looking-for-love)
 
-**Artist**: Jo E Dex 
+**Artist**: initi8 
 
-**Track**: Jo E Dex - Good Life
+**Track**: Initi8 - Looking For Love
 
-Last updated at 2/20/2026, 7:18:16 PM
+Last updated at 2/20/2026, 7:18:21 PM
