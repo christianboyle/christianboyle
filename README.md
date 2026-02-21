@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QjCnJ7P9F7Y2ybFG-X7AJLg-t500x500.jpg">](https://soundcloud.com/deletetheinternet/prima-materia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1cusZn7SbRAJHZ9T-5uMTxA-t500x500.jpg">](https://soundcloud.com/fifthdensity/hudson-freeman-i-y-k-m)
 
-**Artist**: deletetheinternet 
+**Artist**: FifthDensity 
 
-**Track**: prima materia
+**Track**: Hudson Freeman - If You Know Me - (FifthDensity Flip)
 
-Last updated at 2/20/2026, 7:17:11 PM
+Last updated at 2/20/2026, 7:17:16 PM
