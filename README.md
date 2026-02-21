@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aYUM0NKzOuUl5Hb5-wCJscQ-t500x500.jpg">](https://soundcloud.com/initi8uk/stuart-g-locks-and-chains-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-LNsroeSwDwljyZtI-lnj7VQ-t500x500.jpg">](https://soundcloud.com/1rynn/sweet-nothings)
 
-**Artist**: Initi8 
+**Artist**: ryn, cluu 
 
-**Track**: Stuart G Locks And Chains - Initi8 remix
+**Track**: sweet nothings
 
-Last updated at 2/20/2026, 7:16:21 PM
+Last updated at 2/20/2026, 7:16:26 PM
