@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SnalfXHMeulXz70S-DNUl9Q-t500x500.jpg">](https://soundcloud.com/dysphemic0/shadow-walker)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/wont-fade-thanks-for-14k-free-dl)
 
-**Artist**: Dysphemic 
+**Artist**: Smokestax 
 
-**Track**: SHADOW WALKER - Jungle/Dnb/Dark - FREE DL
+**Track**: Won't Fade (Thanks for 14k Free DL)
 
-Last updated at 2/20/2026, 7:21:32 PM
+Last updated at 2/20/2026, 7:28:21 PM
