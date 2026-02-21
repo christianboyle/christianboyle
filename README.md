@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBztmTa5tD07bByL-Kjv2zA-t500x500.png">](https://soundcloud.com/radiorudina/sohoe-radio-rudina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-duxzIM1jHTvylsKl-HyApZQ-t500x500.jpg">](https://soundcloud.com/radiorudina/vatozz-locozz-radio-rudina)
 
 **Artist**: Radio Rudina 
 
-**Track**: SOHOE | Radio Rudina
+**Track**: Vatozz Locozz | Radio Rudina
 
-Last updated at 2/21/2026, 9:41:19 AM
+Last updated at 2/21/2026, 10:40:09 AM
