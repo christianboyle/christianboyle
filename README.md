@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l93K9ak6XiacnZq3-lqLllA-t500x500.png">](https://soundcloud.com/djtrixyofficial/trixy-dmb-asking-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMlxItP9rxjSaOlC-lbK0mg-t500x500.png">](https://soundcloud.com/djjayg-1/jay-g-hard-techno-love-free-dl)
 
-**Artist**: TRIXY 
+**Artist**: Jay G 
 
-**Track**: Trixy & DMB - Asking
+**Track**: Jay G - Hard Techno love (Free DL )
 
-Last updated at 2/22/2026, 5:40:59 PM
+Last updated at 2/22/2026, 5:42:29 PM
