@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jM9ro7YBzF4Lto4c-78sr7w-t500x500.jpg">](https://soundcloud.com/v_o/ig-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YHu8KGRtD8IiKbew-LWrziQ-t500x500.png">](https://soundcloud.com/cuovai/vibrations)
 
-**Artist**: jirachi 
+**Artist**: CUOVAI 
 
-**Track**: ig live
+**Track**: Vibrations [BUY = FREE]
 
-Last updated at 2/22/2026, 6:38:32 AM
+Last updated at 2/22/2026, 8:18:19 AM
