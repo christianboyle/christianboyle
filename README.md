@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i9zJfqfwy58Qqoxz-ztK5XA-t500x500.jpg">](https://soundcloud.com/slangdogs/blaseflip?in=saxurn/sets/sorbularity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IoMcvrYWWPehici8-TUycPA-t500x500.png">](https://soundcloud.com/djkyleharrison/cortisgokyleharrisonremix?in=saxurn/sets/sorbularity)
 
-**Artist**: Slang Dogs 
+**Artist**: DJ Kyle Harrison 
 
-**Track**: Ty Dolla Sign, Future, Rae Sremmurd - Blase (Slang Dogs Remix)
+**Track**: CORTIS - GO! (Kyle Harrison Remix) [free extended download]
 
-Last updated at 2/22/2026, 2:48:52 PM
+Last updated at 2/22/2026, 2:52:37 PM
