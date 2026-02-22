@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31tE5Hgb8MSMgLZ2-QVBr8w-t500x500.jpg">](https://soundcloud.com/hardsokmusic/universal-nation-just-a-dream)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9OUCyvtLIdZzLso-2vbsvA-t500x500.png">](https://soundcloud.com/hardsokmusic/breakstuff)
 
 **Artist**: Hardsok 
 
-**Track**: UNIVERSAL NATION (JUST A DREAM) [FREE DL]
+**Track**: Limp Bizkit - Break Stuff (Hardsok Remix)
 
-Last updated at 2/22/2026, 3:11:34 PM
+Last updated at 2/22/2026, 3:12:54 PM
