@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edlVmE7Hzwl9fqa4-eXlBJQ-t500x500.jpg">](https://soundcloud.com/officialflozone/gogogo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jM9ro7YBzF4Lto4c-78sr7w-t500x500.jpg">](https://soundcloud.com/v_o/ig-live)
 
-**Artist**: Flozone 
+**Artist**: jirachi 
 
-**Track**: GO!
+**Track**: ig live
 
-Last updated at 2/22/2026, 6:37:17 AM
+Last updated at 2/22/2026, 6:38:32 AM
