@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha?in=saxurn/sets/sorbularity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-that-dont-impress?in=saxurn/sets/sorbularity)
 
-**Artist**: :Bx: 
+**Artist**: JGS, DJ INTENT 
 
-**Track**: Take My :Heart: Away (:Bx: Hard Edit)
+**Track**: JGS & INTENT - That Don't Impress Me Much (Sample)
 
-Last updated at 2/22/2026, 11:01:58 AM
+Last updated at 2/22/2026, 11:06:09 AM
