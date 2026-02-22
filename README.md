@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t4lugvuixuMa4bjY-TqRz5A-t500x500.jpg">](https://soundcloud.com/ocityhardcorebeatz/stompthefloor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1SJLJsbxzDvHmjvw-200syA-t500x500.png">](https://soundcloud.com/heresystechno/we-light-up)
 
-**Artist**: Mr. Edgar Estrada 
+**Artist**: HERESYS 
 
-**Track**: Mr. Edgar Estrada - Stomp The Floor
+**Track**: We Light Up (FREE DL)
 
-Last updated at 2/22/2026, 3:04:19 PM
+Last updated at 2/22/2026, 3:06:44 PM
