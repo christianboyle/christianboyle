@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQZmiCFyuRxqzyY8-zdflVQ-t500x500.jpg">](https://soundcloud.com/41rossco/bonkers)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YANMImtEpOqacN3x-ofVzSg-t500x500.jpg">](https://soundcloud.com/bondzeye/bondzeye-freak-of-nature-3)
 
-**Artist**: DJ.Rossco 
+**Artist**: Bondzeye 
 
-**Track**: Bonkers26Mix
+**Track**: Freak of nature
 
-Last updated at 2/22/2026, 5:48:05 PM
+Last updated at 2/22/2026, 5:51:10 PM
