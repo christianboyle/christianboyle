@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EndCzYj11g2UZFbQ-cRqLZQ-t500x500.jpg">](https://soundcloud.com/oozik/electricity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWyC55RtHBum6Evh-EQyimQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/fiji?in=saxurn/sets/1a1/)
 
-**Artist**: OOZIK 
+**Artist**: Bounce Jackerz 
 
-**Track**: Electricity
+**Track**: Fiji
 
-Last updated at 2/22/2026, 8:19:19 AM
+Last updated at 2/22/2026, 8:21:30 AM
