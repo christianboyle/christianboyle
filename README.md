@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5dCTI6xAfbPkzEFU-8FcMIg-t500x500.png">](https://soundcloud.com/monta-musica/assault-cosmo-club-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edlVmE7Hzwl9fqa4-eXlBJQ-t500x500.jpg">](https://soundcloud.com/officialflozone/gogogo)
 
-**Artist**: Monta Musica 
+**Artist**: Flozone 
 
-**Track**: Assault - Cosmo Club
+**Track**: GO!
 
-Last updated at 2/22/2026, 6:34:57 AM
+Last updated at 2/22/2026, 6:37:17 AM
