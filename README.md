@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4n6cSvH9eezTearL-qYIdkA-t500x500.png">](https://soundcloud.com/blakeskinz/the-minute-hour-shoebody-bop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IF1iSxYotkyPIJ0-zlcFjQ-t500x500.jpg">](https://soundcloud.com/shokuofficial/knock2-rock-ur-world-feat-fussy-shoku-edit-2-drops)
 
-**Artist**: SkInZ 
+**Artist**: Shoku 
 
-**Track**: The Minute Hour - Shoebody Bop (SkInZ Remix) [FREE DOWNLOAD]
+**Track**: Knock2 - Rock Ur World (feat. Fussy) [Shoku Edit]
 
-Last updated at 2/22/2026, 6:32:37 AM
+Last updated at 2/22/2026, 6:33:37 AM
