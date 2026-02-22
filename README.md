@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0XGslaPpzRdCjyv-HhyBTg-t500x500.png">](https://soundcloud.com/pegazus_musicc/pegazus-your-soul-is-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t4lugvuixuMa4bjY-TqRz5A-t500x500.jpg">](https://soundcloud.com/ocityhardcorebeatz/stompthefloor)
 
-**Artist**: Pegazus_Musicc 
+**Artist**: Mr. Edgar Estrada 
 
-**Track**: Pegazus - Your Soul Is Mine
+**Track**: Mr. Edgar Estrada - Stomp The Floor
 
-Last updated at 2/22/2026, 2:58:48 PM
+Last updated at 2/22/2026, 3:04:19 PM
