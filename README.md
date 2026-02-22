@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scUeWFYyrTSp1Zf5-az7eDg-t500x500.png">](https://soundcloud.com/oddlanguage/detonate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQZmiCFyuRxqzyY8-zdflVQ-t500x500.jpg">](https://soundcloud.com/41rossco/bonkers)
 
-**Artist**: odd language 
+**Artist**: DJ.Rossco 
 
-**Track**: DETONATE
+**Track**: Bonkers26Mix
 
-Last updated at 2/22/2026, 5:45:49 PM
+Last updated at 2/22/2026, 5:48:05 PM
