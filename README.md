@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qu7e1NOCY9F1G34z-4USUDg-t500x500.png">](https://soundcloud.com/scarreddigital-com/sd252-floydy-all-or-nothing)
 
-**Artist**: :Bx: 
+**Artist**: scarreddigital 
 
-**Track**: Take My :Heart: Away (:Bx: Hard Edit)
+**Track**: SD252 Floydy - All Or Nothing.  Release 19.2.2026
 
-Last updated at 2/22/2026, 6:24:26 AM
+Last updated at 2/22/2026, 6:27:41 AM
