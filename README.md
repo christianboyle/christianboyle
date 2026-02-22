@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7IF1iSxYotkyPIJ0-zlcFjQ-t500x500.jpg">](https://soundcloud.com/shokuofficial/knock2-rock-ur-world-feat-fussy-shoku-edit-2-drops)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5dCTI6xAfbPkzEFU-8FcMIg-t500x500.png">](https://soundcloud.com/monta-musica/assault-cosmo-club-1)
 
-**Artist**: Shoku 
+**Artist**: Monta Musica 
 
-**Track**: Knock2 - Rock Ur World (feat. Fussy) [Shoku Edit]
+**Track**: Assault - Cosmo Club
 
-Last updated at 2/22/2026, 6:33:37 AM
+Last updated at 2/22/2026, 6:34:57 AM
