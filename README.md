@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0XGslaPpzRdCjyv-HhyBTg-t500x500.png">](https://soundcloud.com/pegazus_musicc/pegazus-your-soul-is-mine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bWyC55RtHBum6Evh-EQyimQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/fiji?in=saxurn/sets/sorbularity)
 
-**Artist**: Pegazus_Musicc 
+**Artist**: Bounce Jackerz 
 
-**Track**: Pegazus - Your Soul Is Mine
+**Track**: Fiji
 
-Last updated at 2/22/2026, 9:21:24 AM
+Last updated at 2/22/2026, 9:23:29 AM
