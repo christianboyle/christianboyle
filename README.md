@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YHu8KGRtD8IiKbew-LWrziQ-t500x500.png">](https://soundcloud.com/cuovai/vibrations)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EndCzYj11g2UZFbQ-cRqLZQ-t500x500.jpg">](https://soundcloud.com/oozik/electricity)
 
-**Artist**: CUOVAI 
+**Artist**: OOZIK 
 
-**Track**: Vibrations [BUY = FREE]
+**Track**: Electricity
 
-Last updated at 2/22/2026, 8:18:19 AM
+Last updated at 2/22/2026, 8:19:19 AM
