@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gN7Z0SZ4N5RakmJv-t0FWFg-t500x500.jpg">](https://soundcloud.com/angelloz-music/spice-girls-wannabe-angelloz?in=saxurn/sets/sorbularity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha?in=saxurn/sets/sorbularity)
 
-**Artist**: ANGELLOZ MUSIC 
+**Artist**: :Bx: 
 
-**Track**: Spice Girls - Wannabe ( ANGELLOZ REMIX ) [Free DL]
+**Track**: Take My :Heart: Away (:Bx: Hard Edit)
 
-Last updated at 2/22/2026, 8:28:20 AM
+Last updated at 2/22/2026, 8:31:30 AM
