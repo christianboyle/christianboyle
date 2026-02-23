@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FDx8gLJyKQtE0GXn-bqjTdg-t500x500.png">](https://soundcloud.com/pitchinvaderuk/pitch-invader-lets-do-crazy-love-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHXPMBWGVtasqZv1-JD1Tqg-t500x500.jpg">](https://soundcloud.com/user743518617/djs-factory-live-23-8-25)
 
-**Artist**: Pitch Invader 
+**Artist**: dj moca 
 
-**Track**: Pitch Invader - Let's Do Crazy Love  (Number 1) [Radio Edit]
+**Track**: Dj's factory live 23.8.25
 
-Last updated at 2/22/2026, 7:55:28 PM
+Last updated at 2/23/2026, 6:33:24 AM
