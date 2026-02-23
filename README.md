@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JadV4qpnbzeilog2-FpCBZA-t500x500.png">](https://soundcloud.com/fellsofficial/modern-art-feat-struan)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Psgsybm0BxyCQrVW-x36lxg-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/not-my-problem)
 
-**Artist**: Fells 
+**Artist**: Bounce Jackerz 
 
-**Track**: Modern Art (feat. STRUAN)
+**Track**: Not my problem
 
-Last updated at 2/23/2026, 7:02:10 AM
+Last updated at 2/23/2026, 7:05:15 AM
