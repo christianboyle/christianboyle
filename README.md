@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QGVz9MnLCKe9-0-t500x500.png">](https://soundcloud.com/maddixmusic/transmission)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xrAfE7q5H8XFjg8r-GtgsVg-t500x500.jpg">](https://soundcloud.com/djliamwilson89/liam-wilson-old-skool-retro)
 
-**Artist**: Maddix, Olly James, Hannah Laing 
+**Artist**: Liam Wilson 
 
-**Track**: Transmission
+**Track**: LIAM WILSON - OLD SKOOL - RETRO HOUSE
 
-Last updated at 2/22/2026, 7:26:33 PM
+Last updated at 2/22/2026, 7:27:53 PM
