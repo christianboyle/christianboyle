@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RJye2EaiL0w5Eu0q-7YlP1Q-t500x500.png">](https://soundcloud.com/brainrackofficial/excision-space-laces-throwin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scUeWFYyrTSp1Zf5-az7eDg-t500x500.png">](https://soundcloud.com/oddlanguage/detonate)
 
-**Artist**: BRAINRACK 
+**Artist**: odd language 
 
-**Track**: Excision & Space Laces - Throwin' Elbows (Brainrack Remix)
+**Track**: DETONATE
 
-Last updated at 2/23/2026, 6:57:34 AM
+Last updated at 2/23/2026, 6:58:34 AM
