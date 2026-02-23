@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iq9O7lB7w8fsBFz7-9ErzKg-t500x500.jpg">](https://soundcloud.com/jeonghyeonmusic/avicii-fade-into-darkness-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QGVz9MnLCKe9-0-t500x500.png">](https://soundcloud.com/maddixmusic/transmission)
 
-**Artist**: jeonghyeon 
+**Artist**: Maddix, Olly James, Hannah Laing 
 
-**Track**: Avicii - Fade Into Darkness (jeonghyeon Remix)
+**Track**: Transmission
 
-Last updated at 2/22/2026, 7:24:53 PM
+Last updated at 2/22/2026, 7:26:33 PM
