@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3hnbi4wqAaiZCSV-0mCpwQ-t500x500.png">](https://soundcloud.com/eklypseofficialmusic/boogie-t-x-izzy-vadim-psych)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ichvcH3jjXx2CKQ2-2rKmLg-t500x500.jpg">](https://soundcloud.com/vyharamusic/e388f1ba-cc22-4443-bf72-4e4569999ef2)
 
-**Artist**: EKLYPSE 
+**Artist**: Vyhara 
 
-**Track**: Boogie T x Izzy Vadim - Psych (EKLYPSE x Zouth Remix)
+**Track**: RL Grime - Core (Vyhara flip)
 
-Last updated at 2/22/2026, 6:17:07 PM
+Last updated at 2/22/2026, 6:18:28 PM
