@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ibjTfJyX4k5bMwAN-fKJoNQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/sunshine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9hjU0zBlyWIH8cHM-cZIOtA-t500x500.jpg">](https://soundcloud.com/yaibadubs/yaibasleepdemon)
 
-**Artist**: Bounce Jackerz 
+**Artist**: YAIBA 
 
-**Track**: Sunshine
+**Track**: YAIBA - SLEEP DEMON
 
-Last updated at 2/22/2026, 7:36:19 PM
+Last updated at 2/22/2026, 7:38:19 PM
