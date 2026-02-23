@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ichvcH3jjXx2CKQ2-2rKmLg-t500x500.jpg">](https://soundcloud.com/vyharamusic/e388f1ba-cc22-4443-bf72-4e4569999ef2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zCCFcAHSMHz0TaxL-pexZ8g-t500x500.png">](https://soundcloud.com/rxoxs/nitrogen)
 
-**Artist**: Vyhara 
+**Artist**: RØS 
 
-**Track**: RL Grime - Core (Vyhara flip)
+**Track**: NITROGEN
 
-Last updated at 2/22/2026, 6:18:28 PM
+Last updated at 2/22/2026, 6:25:18 PM
