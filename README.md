@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EugBSAxSM1lnYL3l-rJo72A-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-oldschoolroka-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FDx8gLJyKQtE0GXn-bqjTdg-t500x500.png">](https://soundcloud.com/pitchinvaderuk/pitch-invader-lets-do-crazy-love-radio-edit)
 
-**Artist**: YEAH MAN 
+**Artist**: Pitch Invader 
 
-**Track**: YEAH MAN - Old School Mix 🔥
+**Track**: Pitch Invader - Let's Do Crazy Love  (Number 1) [Radio Edit]
 
-Last updated at 2/22/2026, 7:44:55 PM
+Last updated at 2/22/2026, 7:55:28 PM
