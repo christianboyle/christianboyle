@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7iJzwTFA5gGp7auF-EmdXig-t500x500.jpg">](https://soundcloud.com/dodgeyboy85/glowstick-heaven)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fu8QLxFsMw63yvYy-uyzGmw-t500x500.jpg">](https://soundcloud.com/user-578406259/smokey-mike-charnock-insanity)
 
-**Artist**: Dodge 
+**Artist**: Smokey 
 
-**Track**: Glowstick Heaven
+**Track**: Smokey & Mike Charnock - Insanity [sample]
 
-Last updated at 2/22/2026, 6:08:32 PM
+Last updated at 2/22/2026, 6:09:57 PM
