@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zHXPMBWGVtasqZv1-JD1Tqg-t500x500.jpg">](https://soundcloud.com/user743518617/djs-factory-live-23-8-25)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-20rNE2vHPQfAV6FN-V1WpDw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-addo-shout)
 
-**Artist**: dj moca 
+**Artist**: DJ Addo 
 
-**Track**: Dj's factory live 23.8.25
+**Track**: DJ Addo - Shout
 
-Last updated at 2/23/2026, 6:33:24 AM
+Last updated at 2/23/2026, 6:49:39 AM
