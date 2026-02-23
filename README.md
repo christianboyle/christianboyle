@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xrAfE7q5H8XFjg8r-GtgsVg-t500x500.jpg">](https://soundcloud.com/djliamwilson89/liam-wilson-old-skool-retro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2tXXO5Z8k97UW6Z-TmNKXA-t500x500.png">](https://soundcloud.com/kevumusic/pitbull-ft-t-pain-hey-baby)
 
-**Artist**: Liam Wilson 
+**Artist**: KEVU 
 
-**Track**: LIAM WILSON - OLD SKOOL - RETRO HOUSE
+**Track**: Pitbull ft T-Pain - Hey Baby (KEVU & Marcella Remix)
 
-Last updated at 2/22/2026, 7:27:53 PM
+Last updated at 2/22/2026, 7:30:38 PM
