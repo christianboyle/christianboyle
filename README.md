@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U2tXXO5Z8k97UW6Z-TmNKXA-t500x500.png">](https://soundcloud.com/kevumusic/pitbull-ft-t-pain-hey-baby)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OFj6ZRZYo8Zs9tun-yu8I8Q-t500x500.jpg">](https://soundcloud.com/gingerninja2022/stranger-things-dgn-rosey)
 
-**Artist**: KEVU 
+**Artist**: Dj DGN (joe johnstone), Bounce, Btid, Clubland, Let’s av it, 150bpm, Hard dance, This is bounce uk, Bounce2thebass, Corruption Bounce, Sidefx, Bouncefx, Rebellion bounce, Only bounce, Elation, Nuclear bounce 
 
-**Track**: Pitbull ft T-Pain - Hey Baby (KEVU & Marcella Remix)
+**Track**: Stranger Things - DGN - Rosey - (Unmastered).wav
 
-Last updated at 2/22/2026, 7:30:38 PM
+Last updated at 2/22/2026, 7:32:54 PM
