@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgoULjPEJqzoorDF-HZrbag-t500x500.png">](https://soundcloud.com/haadi-abu-isnineh/hixxy-b2b-dougal-full-set-htid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uvrXkJko16cBkI00-lIHPlg-t500x500.png">](https://soundcloud.com/highsynth1/drift-keep-climbing-out-now)
 
-**Artist**: HSU OFFICIAL 
+**Artist**: DRIFT 
 
-**Track**: HIXXY B2B DOUGAL FULL SET | HTID 2026 HSU OFFICIAL
+**Track**: DRIFT - KEEP CLIMBING (OUT NOW)
 
-Last updated at 2/23/2026, 6:55:18 AM
+Last updated at 2/23/2026, 6:56:19 AM
