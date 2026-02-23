@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qMlxItP9rxjSaOlC-lbK0mg-t500x500.png">](https://soundcloud.com/djjayg-1/jay-g-hard-techno-love-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bgoULjPEJqzoorDF-HZrbag-t500x500.png">](https://soundcloud.com/haadi-abu-isnineh/hixxy-b2b-dougal-full-set-htid)
 
-**Artist**: Jay G 
+**Artist**: HSU OFFICIAL 
 
-**Track**: Jay G - Hard Techno love (Free DL )
+**Track**: HIXXY B2B DOUGAL FULL SET | HTID 2026 HSU OFFICIAL
 
-Last updated at 2/23/2026, 6:52:04 AM
+Last updated at 2/23/2026, 6:54:14 AM
