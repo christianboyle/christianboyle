@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OFj6ZRZYo8Zs9tun-yu8I8Q-t500x500.jpg">](https://soundcloud.com/gingerninja2022/stranger-things-dgn-rosey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ibjTfJyX4k5bMwAN-fKJoNQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/sunshine)
 
-**Artist**: Dj DGN (joe johnstone), Bounce, Btid, Clubland, Let’s av it, 150bpm, Hard dance, This is bounce uk, Bounce2thebass, Corruption Bounce, Sidefx, Bouncefx, Rebellion bounce, Only bounce, Elation, Nuclear bounce 
+**Artist**: Bounce Jackerz 
 
-**Track**: Stranger Things - DGN - Rosey - (Unmastered).wav
+**Track**: Sunshine
 
-Last updated at 2/22/2026, 7:32:54 PM
+Last updated at 2/22/2026, 7:36:19 PM
