@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAPDGUxpySkqV5gk-vGojQg-t500x500.jpg">](https://soundcloud.com/patfromlastyear/running-back-to-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFJXfWlD508yNP0t-CInG9g-t500x500.png">](https://soundcloud.com/patfromlastyear/two-friends-waiting-4-u-feat-natalie-jane-patfromlastyear-remix)
 
 **Artist**: PatFromLastYear 
 
-**Track**: Running Back To You
+**Track**: Two Friends - Waiting 4 U (feat. Natalie Jane) [PatFromLastYear Remix]
 
-Last updated at 2/23/2026, 8:17:58 PM
+Last updated at 2/23/2026, 8:20:48 PM
