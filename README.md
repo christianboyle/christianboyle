@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/lift-off)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EpvMyMDcA1lQWi6k-We4lAw-t500x500.jpg">](https://soundcloud.com/stylusdamage/one-more-time?in=saxurn/sets/roomy)
 
-**Artist**: Smokestax 
+**Artist**: Stylus Damage 
 
-**Track**: Lift Off
+**Track**: One More Time
 
-Last updated at 2/24/2026, 7:14:28 AM
+Last updated at 2/24/2026, 7:17:44 AM
