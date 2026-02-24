@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GFJXfWlD508yNP0t-CInG9g-t500x500.png">](https://soundcloud.com/patfromlastyear/two-friends-waiting-4-u-feat-natalie-jane-patfromlastyear-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zvuWDBNdDfOhH2P-ohoOow-t500x500.jpg">](https://soundcloud.com/medzofficial/save-my-medz-remix)
 
-**Artist**: PatFromLastYear 
+**Artist**: MEDZ 
 
-**Track**: Two Friends - Waiting 4 U (feat. Natalie Jane) [PatFromLastYear Remix]
+**Track**: Marshmello , Elli Goulding, AVAION - Save My Love (MEDZ remix)
 
-Last updated at 2/23/2026, 8:20:48 PM
+Last updated at 2/23/2026, 8:23:58 PM
