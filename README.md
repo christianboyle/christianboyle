@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9zvuWDBNdDfOhH2P-ohoOow-t500x500.jpg">](https://soundcloud.com/medzofficial/save-my-medz-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dZ8utglbgQN52u53-ntyQBA-t500x500.png">](https://soundcloud.com/medzofficial/only-you)
 
-**Artist**: MEDZ 
+**Artist**: MEDZ, RUNN 
 
-**Track**: Marshmello , Elli Goulding, AVAION - Save My Love (MEDZ remix)
+**Track**: ONLY YOU
 
-Last updated at 2/23/2026, 8:23:58 PM
+Last updated at 2/23/2026, 8:29:39 PM
