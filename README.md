@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXSLXjQz8gA9n790-bEwN3A-t500x500.jpg">](https://soundcloud.com/sandra-albert-432870294/top-of-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GXJpZC8bS3clxBA2-3FbbeA-t500x500.jpg">](https://soundcloud.com/renexy/envyme)
 
-**Artist**: katie sings 
+**Artist**: renexy 
 
-**Track**: Top of the World
+**Track**: envy me prod me
 
-Last updated at 2/24/2026, 6:55:57 AM
+Last updated at 2/24/2026, 6:58:31 AM
