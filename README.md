@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ibjTfJyX4k5bMwAN-fKJoNQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/sunshine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/1a1/)
 
-**Artist**: Bounce Jackerz 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Sunshine
+**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
 
-Last updated at 2/23/2026, 8:18:21 AM
+Last updated at 2/23/2026, 6:39:23 PM
