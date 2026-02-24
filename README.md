@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dZ8utglbgQN52u53-ntyQBA-t500x500.png">](https://soundcloud.com/medzofficial/only-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TKh2zczaY0wi8Hfv-QuoAAw-t500x500.png">](https://soundcloud.com/medzofficial/8346ad5b-3877-4857-b26e-f462f1dcf4de)
 
-**Artist**: MEDZ, RUNN 
+**Artist**: MEDZ 
 
-**Track**: ONLY YOU
+**Track**: Wait For You
 
-Last updated at 2/23/2026, 8:29:39 PM
+Last updated at 2/23/2026, 8:32:19 PM
