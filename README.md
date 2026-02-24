@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voOEcyLBDdZtW1ZG-hbVfQg-t500x500.png">](https://soundcloud.com/medzofficial/medz-soundr-wish-i-knew)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DivwzsvmynIK41vx-QcKdPQ-t500x500.png">](https://soundcloud.com/djactiv8/bbbounce78)
 
-**Artist**: MEDZ , SOUNDR 
+**Artist**: DJ ACTiV8 
 
-**Track**: Wish I Knew
+**Track**: Activate the Bounce 78
 
-Last updated at 2/23/2026, 8:38:34 PM
+Last updated at 2/23/2026, 8:45:57 PM
