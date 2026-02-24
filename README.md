@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I2rMnUrSbGqaEYTi-UoQwIA-t500x500.png">](https://soundcloud.com/espforever/esp-roxy-1?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
 
-**Artist**: ESP 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: ESP - Roxy
+**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
 
-Last updated at 2/24/2026, 7:42:00 AM
+Last updated at 2/24/2026, 5:05:12 PM
