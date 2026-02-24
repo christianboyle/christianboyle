@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JadV4qpnbzeilog2-FpCBZA-t500x500.png">](https://soundcloud.com/fellsofficial/modern-art-feat-struan?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qAPDGUxpySkqV5gk-vGojQg-t500x500.jpg">](https://soundcloud.com/patfromlastyear/running-back-to-you)
 
-**Artist**: Fells 
+**Artist**: PatFromLastYear 
 
-**Track**: Modern Art (feat. STRUAN)
+**Track**: Running Back To You
 
-Last updated at 2/23/2026, 6:47:54 PM
+Last updated at 2/23/2026, 8:17:58 PM
