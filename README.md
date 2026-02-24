@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpxTfNVM8gchP8dF-kyUAig-t500x500.png">](https://soundcloud.com/medzofficial/love-aint-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-voOEcyLBDdZtW1ZG-hbVfQg-t500x500.png">](https://soundcloud.com/medzofficial/medz-soundr-wish-i-knew)
 
-**Artist**: MEDZ, Loro 
+**Artist**: MEDZ , SOUNDR 
 
-**Track**: Love Ain't Enough
+**Track**: Wish I Knew
 
-Last updated at 2/23/2026, 8:37:24 PM
+Last updated at 2/23/2026, 8:38:34 PM
