@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TKh2zczaY0wi8Hfv-QuoAAw-t500x500.png">](https://soundcloud.com/medzofficial/8346ad5b-3877-4857-b26e-f462f1dcf4de)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mi65MsvrR6kip2uM-3lR3eQ-t500x500.png">](https://soundcloud.com/medzofficial/subway-line)
 
-**Artist**: MEDZ 
+**Artist**: MEDZ , John White 
 
-**Track**: Wait For You
+**Track**: Subway Line
 
-Last updated at 2/23/2026, 8:32:19 PM
+Last updated at 2/23/2026, 8:35:44 PM
