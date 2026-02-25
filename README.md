@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JadV4qpnbzeilog2-FpCBZA-t500x500.png">](https://soundcloud.com/fellsofficial/modern-art-feat-struan?in=saxurn/sets/roomy)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Fells 
 
-**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
+**Track**: Modern Art (feat. STRUAN)
 
-Last updated at 2/25/2026, 7:02:29 AM
+Last updated at 2/25/2026, 7:23:32 AM
