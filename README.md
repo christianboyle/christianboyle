@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iq9O7lB7w8fsBFz7-9ErzKg-t500x500.jpg">](https://soundcloud.com/jeonghyeonmusic/avicii-fade-into-darkness-3?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OApHC3SsxEBgIJtV-fSMqTg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-x-steven-straub-leaving?in=saxurn/sets/roomy)
 
-**Artist**: jeonghyeon 
+**Artist**: DRIFT 
 
-**Track**: Avicii - Fade Into Darkness (jeonghyeon Remix)
+**Track**: DRIFT X STEVEN STRAUB - LEAVING ME LEAVING YOU (RADIO EDIT)
 
-Last updated at 2/24/2026, 6:09:42 PM
+Last updated at 2/24/2026, 6:42:10 PM
