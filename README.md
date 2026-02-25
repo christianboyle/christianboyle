@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OApHC3SsxEBgIJtV-fSMqTg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-x-steven-straub-leaving?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qz5f4v9Xwa8q8cSQ-CpvCLQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/el-moff-sweet-but-psycho?in=saxurn/sets/roomy)
 
-**Artist**: DRIFT 
+**Artist**: Revolution-Records UK 
 
-**Track**: DRIFT X STEVEN STRAUB - LEAVING ME LEAVING YOU (RADIO EDIT)
+**Track**: EL MOFF - SWEET BUT PSYCHO
 
-Last updated at 2/25/2026, 4:14:22 PM
+Last updated at 2/25/2026, 4:22:01 PM
