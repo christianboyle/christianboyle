@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iq9O7lB7w8fsBFz7-9ErzKg-t500x500.jpg">](https://soundcloud.com/jeonghyeonmusic/avicii-fade-into-darkness-3?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
 
-**Artist**: jeonghyeon 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Avicii - Fade Into Darkness (jeonghyeon Remix)
+**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
 
-Last updated at 2/25/2026, 7:33:23 AM
+Last updated at 2/25/2026, 4:11:52 PM
