@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-t9VR7DEKtuxzvSfJ-Y6N8Mw-t500x500.jpg">](https://soundcloud.com/hypno_groove/premiere-seimei-lurking-intention-sorry-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon)
 
-**Artist**: Hypnotic Groove 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: PREMIERE: Seimei - Lurking Intention (Sorry Records)
+**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
 
-Last updated at 2/25/2026, 5:02:53 PM
+Last updated at 2/25/2026, 5:21:43 PM
