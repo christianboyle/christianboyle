@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ibjTfJyX4k5bMwAN-fKJoNQ-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/sunshine?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Iq9O7lB7w8fsBFz7-9ErzKg-t500x500.jpg">](https://soundcloud.com/jeonghyeonmusic/avicii-fade-into-darkness-3?in=saxurn/sets/roomy)
 
-**Artist**: Bounce Jackerz 
+**Artist**: jeonghyeon 
 
-**Track**: Sunshine
+**Track**: Avicii - Fade Into Darkness (jeonghyeon Remix)
 
-Last updated at 2/24/2026, 6:03:37 PM
+Last updated at 2/24/2026, 6:09:42 PM
