@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qz5f4v9Xwa8q8cSQ-CpvCLQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/el-moff-sweet-but-psycho?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9OUCyvtLIdZzLso-2vbsvA-t500x500.png">](https://soundcloud.com/hardsokmusic/breakstuff?in=saxurn/sets/roomy)
 
-**Artist**: Revolution-Records UK 
+**Artist**: Hardsok 
 
-**Track**: EL MOFF - SWEET BUT PSYCHO
+**Track**: Limp Bizkit - Break Stuff (Hardsok Remix)
 
-Last updated at 2/24/2026, 7:16:11 PM
+Last updated at 2/24/2026, 7:19:27 PM
