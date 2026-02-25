@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-68xbfAdfdHKfiiBg-H9UuXQ-t500x500.jpg">](https://soundcloud.com/room303radio/seimei-w-manao-2026-2-4-2026-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
 
-**Artist**: Room 303 Radio 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Seimei w∕ manao｜2026年2月4日｜2026年2月4日
+**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
 
-Last updated at 2/25/2026, 6:58:53 AM
+Last updated at 2/25/2026, 7:02:29 AM
