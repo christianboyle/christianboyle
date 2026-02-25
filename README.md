@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9OUCyvtLIdZzLso-2vbsvA-t500x500.png">](https://soundcloud.com/hardsokmusic/breakstuff?in=saxurn/sets/roomy)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Hardsok 
 
-**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
+**Track**: Limp Bizkit - Break Stuff (Hardsok Remix)
 
-Last updated at 2/25/2026, 5:21:43 PM
+Last updated at 2/25/2026, 5:23:38 PM
