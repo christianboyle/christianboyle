@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scUeWFYyrTSp1Zf5-az7eDg-t500x500.png">](https://soundcloud.com/oddlanguage/detonate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1E1fSaW4LJcZLOjw-nFx4Hw-t500x500.jpg">](https://soundcloud.com/lostageless/eon-echoes)
 
-**Artist**: odd language 
+**Artist**: lostageless 
 
-**Track**: DETONATE
+**Track**: eon echoes
 
-Last updated at 2/26/2026, 7:35:45 AM
+Last updated at 2/26/2026, 7:36:45 AM
