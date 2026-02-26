@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sQX6XWorW5gqlNx8-PWf23A-t500x500.jpg">](https://soundcloud.com/listentotwentythree/biteme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQsgPynSYLc7xWT4-lSbcVw-t500x500.png">](https://soundcloud.com/starseedsound/crystaleyes)
 
-**Artist**: twentythree 
+**Artist**: STAR SEED 
 
-**Track**: bite me (oliviajones)
+**Track**: CRYSTAL EYES
 
-Last updated at 2/26/2026, 7:08:42 AM
+Last updated at 2/26/2026, 7:11:03 AM
