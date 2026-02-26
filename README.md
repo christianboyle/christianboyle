@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kNrpYCoyYuQy5iCp-hnX0sQ-t500x500.png">](https://soundcloud.com/midnightclubworldwide/89-9-midnight-club-fm-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5wvIzObdwIHb84f-DJZLCg-t500x500.png">](https://soundcloud.com/sickish/letitbang)
 
-**Artist**: Midnight Club 
+**Artist**: SICKISH 
 
-**Track**: 89.9 MIDNIGHT CLUB FM (Original Showcase Mix)
+**Track**: LETITBANG
 
-Last updated at 2/26/2026, 3:43:32 PM
+Last updated at 2/26/2026, 3:50:37 PM
