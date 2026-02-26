@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVetF4c4GQzyZAaV-WTVv4A-t500x500.jpg">](https://soundcloud.com/donflockmusic/donflock-dawg-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-scUeWFYyrTSp1Zf5-az7eDg-t500x500.png">](https://soundcloud.com/oddlanguage/detonate)
 
-**Artist**: Donflock 
+**Artist**: odd language 
 
-**Track**: Donflock - DAWG
+**Track**: DETONATE
 
-Last updated at 2/26/2026, 7:34:35 AM
+Last updated at 2/26/2026, 7:35:45 AM
