@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1E1fSaW4LJcZLOjw-nFx4Hw-t500x500.jpg">](https://soundcloud.com/lostageless/eon-echoes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLSWEhVNHtrj-0-t500x500.jpg">](https://soundcloud.com/mokumrecords/why-do-we-exist?in=mokumrecords/sets/why-do-we-exist-1)
 
-**Artist**: lostageless 
+**Artist**: Los Muñaños, DJ Dano 
 
-**Track**: eon echoes
+**Track**: Why Do We Exist
 
-Last updated at 2/26/2026, 7:36:45 AM
+Last updated at 2/26/2026, 7:37:45 AM
