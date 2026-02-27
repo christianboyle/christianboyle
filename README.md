@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CFIUlcSCV2iSXENC-56z6eg-t500x500.png">](https://soundcloud.com/bentechy/fullclip-never-wanted-it-to-end-ben-techy-hard-technoschranz-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3qNsAqOoljrhHtE7-pW2YiA-t500x500.jpg">](https://soundcloud.com/ttheftt/yosemite-theft-schranz-remix)
 
-**Artist**: Ben Techy 
+**Artist**: THËFT 
 
-**Track**: FULLCLIP - NEVER WANTED IT TO END (Ben Techy Hard Techno/Schranz Edit) [FREE DL]
+**Track**: KETTAMA - YOSEMITE || THËFT SCHRANZ REMIX || FREE DOWNLOAD
 
-Last updated at 2/27/2026, 6:02:59 AM
+Last updated at 2/27/2026, 6:56:12 AM
