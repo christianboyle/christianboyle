@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ph0jz3GDNL6ctJFs-iPVLwQ-t500x500.jpg">](https://soundcloud.com/2summusic/2sum-x-phat-loud-oxygen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vS2pN9988cSPQSVS-UbXZuQ-t500x500.png">](https://soundcloud.com/geckonl/blessingcurse)
 
-**Artist**: 2SUM, Phatloud 
+**Artist**: Geck-o 
 
-**Track**: 2SUM & Phat Loud - OXYGEN
+**Track**: Geck-o - The Blessing & The Curse
 
-Last updated at 2/27/2026, 4:08:01 PM
+Last updated at 2/27/2026, 4:10:41 PM
