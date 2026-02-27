@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W9i7zbQadLKPg6lb-yoO6yw-t500x500.jpg">](https://soundcloud.com/inductordx/gib-mir-die-bass-inductor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWmqvAitLSB0gBQG-COfL3g-t500x500.png">](https://soundcloud.com/inductordx/la-vie-cest-fantastique)
 
 **Artist**: Inductor 
 
-**Track**: Tschabos - Gib Mir Die Bass (Inductor Schranz Remix) (FREEDL)
+**Track**: La Vie C'est Fantastique (Inductor Schranz Edit) (FREEDL)
 
-Last updated at 2/27/2026, 7:13:07 AM
+Last updated at 2/27/2026, 7:16:57 AM
