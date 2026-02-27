@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lWmqvAitLSB0gBQG-COfL3g-t500x500.png">](https://soundcloud.com/inductordx/la-vie-cest-fantastique)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xJztnLkVxDgSgyGM-iohwtQ-t500x500.jpg">](https://soundcloud.com/iamschaar/derb-derb-schaar-schranzformation)
 
-**Artist**: Inductor 
+**Artist**: SCHAAR 
 
-**Track**: La Vie C'est Fantastique (Inductor Schranz Edit) (FREEDL)
+**Track**: Derb - Derb (SCHAAR Schranz Edit)
 
-Last updated at 2/27/2026, 7:16:57 AM
+Last updated at 2/27/2026, 7:22:38 AM
