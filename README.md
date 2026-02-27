@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vS2pN9988cSPQSVS-UbXZuQ-t500x500.png">](https://soundcloud.com/geckonl/blessingcurse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhR7w2GwVK0seMdp-frzIRg-t500x500.jpg">](https://soundcloud.com/pitchblackdub/dawpitchblackflip)
 
-**Artist**: Geck-o 
+**Artist**: PITCH BLACK 
 
-**Track**: Geck-o - The Blessing & The Curse
+**Track**: D.A.W (PITCH BLACK FLIP)
 
-Last updated at 2/27/2026, 7:29:04 AM
+Last updated at 2/27/2026, 3:50:49 PM
