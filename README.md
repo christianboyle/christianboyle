@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra5JrS5mLxBCRzTH-DmUkFw-t500x500.png">](https://soundcloud.com/slowboyyy/back2u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkBigvTWNXTHeW9s-ZnlJIw-t500x500.png">](https://soundcloud.com/itsilladelph/rip-granny-illadelph)
 
-**Artist**: Slowboy, Sam Day 
+**Artist**: illadelph 
 
-**Track**: Slowboy & Sam Day - BACK2U
+**Track**: RIP GRANNY - illadelph (FREE DOWNLOAD)
 
-Last updated at 2/27/2026, 5:52:32 AM
+Last updated at 2/27/2026, 5:53:32 AM
