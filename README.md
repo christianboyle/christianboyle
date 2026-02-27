@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkBigvTWNXTHeW9s-ZnlJIw-t500x500.png">](https://soundcloud.com/itsilladelph/rip-granny-illadelph)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGpK4pm9igjEcQIQ-VKOL0g-t500x500.jpg">](https://soundcloud.com/darn84/re-con-b2b-squad-e-mc-storm-mc)
 
-**Artist**: illadelph 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: RIP GRANNY - illadelph (FREE DOWNLOAD)
+**Track**: Re-Con B2B Squad-E MC Storm MC Whizzkid @ SV - Sanctuary Outdoor Festival 2010 (August 2010)
 
-Last updated at 2/27/2026, 5:53:32 AM
+Last updated at 2/27/2026, 5:55:57 AM
