@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhR7w2GwVK0seMdp-frzIRg-t500x500.jpg">](https://soundcloud.com/pitchblackdub/dawpitchblackflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ph0jz3GDNL6ctJFs-iPVLwQ-t500x500.jpg">](https://soundcloud.com/2summusic/2sum-x-phat-loud-oxygen)
 
-**Artist**: PITCH BLACK 
+**Artist**: 2SUM, Phatloud 
 
-**Track**: D.A.W (PITCH BLACK FLIP)
+**Track**: 2SUM & Phat Loud - OXYGEN
 
-Last updated at 2/27/2026, 3:56:13 PM
+Last updated at 2/27/2026, 4:08:01 PM
