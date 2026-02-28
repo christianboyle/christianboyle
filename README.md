@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CVS2g3UAgtSA0m6o-DX3rbA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/go-fast)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U0yO8D6ktmFmXamN-7Klsow-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-presents-the-bounce-9)
 
-**Artist**: Luhv 
+**Artist**: Yes ii , Dj Ash Lee 
 
-**Track**: Go Fast
+**Track**: Yes ii presents The Bounce Generation vol 78 feat Ash-Lee 💥💥🔥
 
-Last updated at 2/28/2026, 8:37:49 AM
+Last updated at 2/28/2026, 8:41:44 AM
