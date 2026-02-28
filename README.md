@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U0yO8D6ktmFmXamN-7Klsow-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-presents-the-bounce-9)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUXZL4ekYKOWGGmM-oLtKKg-t500x500.png">](https://soundcloud.com/darbysounds/whatineedxintoyou)
 
-**Artist**: Yes ii , Dj Ash Lee 
+**Artist**: Darby, Atura 
 
-**Track**: Yes ii presents The Bounce Generation vol 78 feat Ash-Lee 💥💥🔥
+**Track**: WHAT I NEED (w/ Ariana Grande - Into You)
 
-Last updated at 2/28/2026, 8:41:44 AM
+Last updated at 2/28/2026, 9:59:23 AM
