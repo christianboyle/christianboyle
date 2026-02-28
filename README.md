@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nhR7w2GwVK0seMdp-frzIRg-t500x500.jpg">](https://soundcloud.com/pitchblackdub/dawpitchblackflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nkp9zrrTEo6EaskL-WgvPCQ-t500x500.png">](https://soundcloud.com/initi8uk/ineedyounow)
 
-**Artist**: PITCH BLACK 
+**Artist**: Initi8 
 
-**Track**: D.A.W (PITCH BLACK FLIP)
+**Track**: Initi8 - I Need You Now
 
-Last updated at 2/28/2026, 6:10:07 AM
+Last updated at 2/28/2026, 6:20:37 AM
