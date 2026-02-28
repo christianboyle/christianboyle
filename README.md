@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkPOHFomR27c0vVV-18Pgkw-t500x500.jpg">](https://soundcloud.com/cidmusic/the-weeknd-the-hills-cid-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5bgWuwQWOAuotFKt-daqSaQ-t500x500.png">](https://soundcloud.com/sonnyfodera/myloving)
 
-**Artist**: CID Music 
+**Artist**: Sonny Fodera 
 
-**Track**: The Weeknd - The Hills  (CID Edit)
+**Track**: Sonny Fodera & Chrystal - My Loving (Snippet)
 
-Last updated at 2/28/2026, 6:21:57 AM
+Last updated at 2/28/2026, 6:24:13 AM
