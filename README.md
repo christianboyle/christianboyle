@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5bgWuwQWOAuotFKt-daqSaQ-t500x500.png">](https://soundcloud.com/sonnyfodera/myloving)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ra5JrS5mLxBCRzTH-DmUkFw-t500x500.png">](https://soundcloud.com/slowboyyy/back2u)
 
-**Artist**: Sonny Fodera 
+**Artist**: Slowboy, Sam Day 
 
-**Track**: Sonny Fodera & Chrystal - My Loving (Snippet)
+**Track**: Slowboy & Sam Day - BACK2U
 
-Last updated at 2/28/2026, 6:24:13 AM
+Last updated at 2/28/2026, 6:25:13 AM
