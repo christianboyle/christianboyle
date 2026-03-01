@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-dont-stop-believin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MJZhecbynn8e1LwZ-IY851g-t500x500.jpg">](https://soundcloud.com/jordangeorgedj/break-free-free-dl)
 
-**Artist**: JGS, INTENT 
+**Artist**: Jordan George 
 
-**Track**: JGS & INTENT - Dont Stop Believin (Sample)
+**Track**: Break Free [Free DL]
 
-Last updated at 3/1/2026, 8:18:50 AM
+Last updated at 3/1/2026, 8:22:46 AM
