@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Eiv1vdmnelYw3Gbf-JN0UCw-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-do-you-want-it-right)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1UmPrSuBlyJf-0-t500x500.jpg">](https://soundcloud.com/kineticnrg/pull-up-radio-edit)
 
-**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
+**Artist**: Danny Gibson 
 
-**Track**: MIZZDEE- DO YOU WANT IT RIGHT NOW- Cover 🔥
+**Track**: Pull Up (Radio Edit)
 
-Last updated at 3/1/2026, 8:27:50 AM
+Last updated at 3/1/2026, 9:12:18 AM
