@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUXZL4ekYKOWGGmM-oLtKKg-t500x500.png">](https://soundcloud.com/darbysounds/whatineedxintoyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E76eNbWWrA5jNUyC-1Fqz2g-t500x500.png">](https://soundcloud.com/digitalraveboy/acidrainbowangel)
 
-**Artist**: Darby, Atura 
+**Artist**: DIGITAL RAVE BOY 
 
-**Track**: WHAT I NEED (w/ Ariana Grande - Into You)
+**Track**: acidrainbowangel
 
-Last updated at 2/28/2026, 9:59:23 AM
+Last updated at 2/28/2026, 8:15:36 PM
