@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7UBjByaFdB0uqr2-KTPnDA-t500x500.png">](https://soundcloud.com/tyler-dyas/morgan-seatree-carly-monroe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zfkIFHRaCqnprnrk-PlkKaQ-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/boston-bounce-sessions-2026-3)
 
-**Artist**: D-VIBE / BASSRIDERZ  
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: Morgan Seatree & Carly Monroe - Beat Is Jumping  ( D-Vibe Remix )
+**Track**: Boston bounce sessions 2026 AUDIOBOYZ
 
-Last updated at 2/28/2026, 8:51:26 PM
+Last updated at 2/28/2026, 8:52:37 PM
