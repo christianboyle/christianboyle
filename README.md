@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SlAmbLyzVuYdJWAC-GIhVUw-t500x500.png">](https://soundcloud.com/highsynth1/lost-in-a-haze-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c38cryFIg9h8TDyI-w7ymLA-t500x500.jpg">](https://soundcloud.com/ozztinmusic/dead-prez-hip-hop-ozztin-pastnoon)
 
-**Artist**: DRIFT 
+**Artist**: OZZTIN,  past noon 
 
-**Track**: LOST IN A HAZE (OUT NOW)
+**Track**: DEAD PREZ - HIP HOP (OZZTIN X PAST NOON FLIP)
 
-Last updated at 2/28/2026, 8:22:33 PM
+Last updated at 2/28/2026, 8:47:51 PM
