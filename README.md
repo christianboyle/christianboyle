@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckLyvRN54vVKHm49-csXjKQ-t500x500.png">](https://soundcloud.com/dj-dangerous-dave/bx-2026-v-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-dont-stop-believin)
 
-**Artist**: dangerous dave 
+**Artist**: JGS, INTENT 
 
-**Track**: BX 2026 v 1
+**Track**: JGS & INTENT - Dont Stop Believin (Sample)
 
-Last updated at 3/1/2026, 7:17:37 AM
+Last updated at 3/1/2026, 8:18:50 AM
