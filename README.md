@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7D76CwIpOtzS3mqJ-zPsRgQ-t500x500.jpg">](https://soundcloud.com/sus1er/homerun-act-polite-slow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q74IzHcpSgALEoaK-lR6IfA-t500x500.jpg">](https://soundcloud.com/kkula-label/beat-fckr-drakk-remix-6)
 
-**Artist**: SUS1ER, Homerun 
+**Artist**: Resheto 
 
-**Track**: Homerun - act polite (slow)
+**Track**: Beat Fckr - DRAKK REMIX
 
-Last updated at 3/1/2026, 9:26:49 AM
+Last updated at 3/1/2026, 1:20:09 PM
