@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1UmPrSuBlyJf-0-t500x500.jpg">](https://soundcloud.com/kineticnrg/pull-up-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kQnUGsOkVdoDYkDl-M5lV9w-t500x500.jpg">](https://soundcloud.com/dvbproductionz/dvb-productionz-lies-free)
 
-**Artist**: Danny Gibson 
+**Artist**: DvB Productionz 
 
-**Track**: Pull Up (Radio Edit)
+**Track**: DvB Productionz - Lies (FREE DOWNLOAD)
 
-Last updated at 3/1/2026, 9:12:18 AM
+Last updated at 3/1/2026, 9:13:18 AM
