@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E76eNbWWrA5jNUyC-1Fqz2g-t500x500.png">](https://soundcloud.com/digitalraveboy/acidrainbowangel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oTz9b8DdpmuzcdpA-pBzkJw-t500x500.png">](https://soundcloud.com/glover01/intergrated)
 
-**Artist**: DIGITAL RAVE BOY 
+**Artist**: glover, xurco 
 
-**Track**: acidrainbowangel
+**Track**: intergrated
 
-Last updated at 2/28/2026, 8:15:36 PM
+Last updated at 2/28/2026, 8:16:55 PM
