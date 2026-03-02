@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q74IzHcpSgALEoaK-lR6IfA-t500x500.jpg">](https://soundcloud.com/kkula-label/beat-fckr-drakk-remix-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CVS2g3UAgtSA0m6o-DX3rbA-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/go-fast)
 
-**Artist**: Resheto 
+**Artist**: Luhv 
 
-**Track**: Beat Fckr - DRAKK REMIX
+**Track**: Go Fast
 
-Last updated at 3/1/2026, 1:20:09 PM
+Last updated at 3/2/2026, 5:24:54 AM
