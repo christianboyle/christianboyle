@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sSG2udiqA51BU9xt-cs3UEA-t500x500.jpg">](https://soundcloud.com/onlybangs/amore-del-rocca-the-hustle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ptthtYga6FIh9h0N-uQCY0g-t500x500.jpg">](https://soundcloud.com/thetox_dubz/ad-lv-oxid-beamz-thetox-vip-1)
 
-**Artist**: Amore, Del Rocca 
+**Artist**: THETOX 
 
-**Track**: Amore, Del Rocca - The Hustle [Exx Muzik]
+**Track**: AD & LV - OXID BEAMZ (THETOX VIP) (CLIP)
 
-Last updated at 3/2/2026, 6:58:42 AM
+Last updated at 3/2/2026, 7:00:47 AM
