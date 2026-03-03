@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ucOV14vyfafJsOmO-L7wVyA-t500x500.png">](https://soundcloud.com/queenadriann/10k-for-the-venue-prod-ginm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-PgBUlft5cWzxgjyT-ztwAKg-t500x500.jpg">](https://soundcloud.com/al-ex-bounce/jp-cooper-sad-song-ft)
 
-**Artist**: ‍queenadriann 
+**Artist**: AL-EX 
 
-**Track**: 10k from th venue prod @ginm @irlangel #iwantto 💌
+**Track**: JP Cooper - Sad Song ft. Gabrielle (AL-EX Remix)
 
-Last updated at 3/2/2026, 7:05:31 PM
+Last updated at 3/3/2026, 6:07:05 AM
