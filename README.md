@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ucOV14vyfafJsOmO-L7wVyA-t500x500.png">](https://soundcloud.com/queenadriann/10k-for-the-venue-prod-ginm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zr3yctIjTyCZtHOA-d9qKlw-t500x500.png">](https://soundcloud.com/euge-84/eugene-landells-vol4)
 
-**Artist**: ‍queenadriann 
+**Artist**: Eugene Landells 
 
-**Track**: 10k from th venue prod @ginm @irlangel #iwantto 💌
+**Track**: EUGENE LANDELLS VOL4
 
-Last updated at 3/2/2026, 6:06:38 PM
+Last updated at 3/2/2026, 6:07:38 PM
