@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v0Hw6Qi2zjzfwQzm-RE1ZEw-t500x500.png">](https://soundcloud.com/blend95-924397865/blend-rosey-look-at-me-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-32WHAOFm4zPbfdrM-Vzffww-t500x500.jpg">](https://soundcloud.com/twisted-chris/twisted-chris-be-my-lover-too)
 
-**Artist**: Blend 
+**Artist**: Twisted Chris 
 
-**Track**: Blend & Rosey - look at me now (Sample)
+**Track**: TWISTED CHRIS -BE MY BABY
 
-Last updated at 3/4/2026, 7:20:46 AM
+Last updated at 3/4/2026, 7:22:11 AM
