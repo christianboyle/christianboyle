@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Okad4Jcm2u6j-0-t500x500.jpg">](https://soundcloud.com/dj-katch/amanece-dj-katch-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0kU9DWz7Vx8ySR3q-Tjfz2g-t500x500.png">](https://soundcloud.com/rave_alert/simox-dark-room)
 
-**Artist**: DJ Katch, Haze, Anuel AA 
+**Artist**: Rave Alert 
 
-**Track**: Amanece (DJ Katch Remix)
+**Track**: Simox - Dark Room
 
-Last updated at 3/4/2026, 6:29:23 AM
+Last updated at 3/4/2026, 6:30:48 AM
