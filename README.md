@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDABkwb8SlAftHzm-SBd2AQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/damn-low-lvcie-love-syndrome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CheVHmDgTK54iiBg-wByW4A-t500x500.png">](https://soundcloud.com/pradaaslife/r2d2-prod-april21-recyclebin-5)
 
-**Artist**: Damn Low, LVCIE 
+**Artist**: pradaaslife 
 
-**Track**: Damn Low  &  LVCIE - Love Syndrome
+**Track**: R2D2 (prod. april21 & recyclebin)
 
-Last updated at 3/4/2026, 7:17:31 AM
+Last updated at 3/4/2026, 7:18:31 AM
