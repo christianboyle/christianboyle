@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aYUM0NKzOuUl5Hb5-wCJscQ-t500x500.jpg">](https://soundcloud.com/initi8uk/stuart-g-locks-and-chains-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Okad4Jcm2u6j-0-t500x500.jpg">](https://soundcloud.com/dj-katch/amanece-dj-katch-mix)
 
-**Artist**: Initi8 
+**Artist**: DJ Katch, Haze, Anuel AA 
 
-**Track**: Stuart G Locks And Chains - Initi8 remix
+**Track**: Amanece (DJ Katch Remix)
 
-Last updated at 3/4/2026, 5:22:42 AM
+Last updated at 3/4/2026, 6:29:23 AM
