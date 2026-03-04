@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vUyBCHt9Z0Ic64GE-wLM2tQ-t500x500.jpg">](https://soundcloud.com/hellgnar/resident)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyPZc2ecEyzfU1kf-YJoSUQ-t500x500.png">](https://soundcloud.com/dxnijimenez/daddy-yankee-rompe-dani-jmnz-remix-free-download)
 
-**Artist**: HELLGNAR 
+**Artist**: Dani Jmnz 
 
-**Track**: STRANGER! NOW THAT’S A WEAPON!
+**Track**: Daddy Yankee - Rompe (Dani Jmnz Mashup)
 
-Last updated at 3/4/2026, 7:06:04 AM
+Last updated at 3/4/2026, 7:07:04 AM
