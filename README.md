@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyPZc2ecEyzfU1kf-YJoSUQ-t500x500.png">](https://soundcloud.com/dxnijimenez/daddy-yankee-rompe-dani-jmnz-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAirf9vyHOJ5vh9y-ZGjr6A-t500x500.jpg">](https://soundcloud.com/sexy-keksy/charlie-kirk-in-the-back-of-my)
 
-**Artist**: Dani Jmnz 
+**Artist**: Lil Kirk 
 
-**Track**: Daddy Yankee - Rompe (Dani Jmnz Mashup)
+**Track**: Charlie Kirk (In the back of my mind)
 
-Last updated at 3/4/2026, 7:07:04 AM
+Last updated at 3/4/2026, 7:08:05 AM
