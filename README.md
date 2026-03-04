@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-707w1b6oJThvIy4x-U6EwXg-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-heartbeats-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDABkwb8SlAftHzm-SBd2AQ-t500x500.png">](https://soundcloud.com/dancingdeadrecords/damn-low-lvcie-love-syndrome)
 
-**Artist**: Steve Bates Music 
+**Artist**: Damn Low, LVCIE 
 
-**Track**: Steve Bates - Heartbeats
+**Track**: Damn Low  &  LVCIE - Love Syndrome
 
-Last updated at 3/4/2026, 7:16:10 AM
+Last updated at 3/4/2026, 7:17:31 AM
