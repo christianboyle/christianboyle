@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NhKzcQ7x6epKEq7k-13AyDw-t500x500.png">](https://soundcloud.com/d3ck4/treasure-edit-pack)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3apWj3cNzeeF0iRc-H1H39g-t500x500.png">](https://soundcloud.com/ituyzz/magistracenna)
 
-**Artist**: DEKA 
+**Artist**: ITUY & Magistra Cenna 
 
-**Track**: TREASURE EDIT PACK (BUY = FREE DOWNLOAD)
+**Track**: Mimosa (ITUY & Magistra Cenna Edit)
 
-Last updated at 3/4/2026, 6:35:38 AM
+Last updated at 3/4/2026, 6:37:54 AM
