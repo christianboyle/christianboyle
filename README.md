@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hFQWEAyB6RyflzTW-e42zvQ-t500x500.jpg">](https://soundcloud.com/ih8sev/revival?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lMDePh33Ke4Cgh7F-SzW3rg-t500x500.png">](https://soundcloud.com/wearemir/sunriseedit?in=saxurn/sets/bossed-up)
 
-**Artist**: 00sev, karson, kurse11 
+**Artist**: MIR 
 
-**Track**: revival❤️‍🩹 (shuzei)
+**Track**: SUNRISE [ MIR EDIT]
 
-Last updated at 3/4/2026, 8:36:55 PM
+Last updated at 3/4/2026, 8:39:26 PM
