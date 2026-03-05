@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLG9F821IS9yVCQp-qgJzEA-t500x500.jpg">](https://soundcloud.com/brojski/knife-party-vs-holy-priest-fuck-this-internet-friends?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IG4ZATekthk9ixjk-FZOzSA-t500x500.jpg">](https://soundcloud.com/lidzter/lidzter-play-it-right)
 
-**Artist**: Brojski 
+**Artist**: LIDZTER 
 
-**Track**: Knife Party Vs. Holy Priest - Fuck This Internet Friends [BROJSKI MASHUP]
+**Track**: LIDZTER - PLAY IT RIGHT
 
-Last updated at 3/4/2026, 7:14:30 PM
+Last updated at 3/4/2026, 7:18:35 PM
