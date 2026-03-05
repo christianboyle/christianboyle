@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/one-two-three?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tjlJlOwAyESXyiy2-wt6QDw-t500x500.jpg">](https://soundcloud.com/willieg/kiss?in=saxurn/sets/mergency)
 
-**Artist**: Smokestax 
+**Artist**: WILLIE G 
 
-**Track**: One Two Three
+**Track**: Kiss
 
-Last updated at 3/5/2026, 6:44:08 AM
+Last updated at 3/5/2026, 7:02:28 AM
