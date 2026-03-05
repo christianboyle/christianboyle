@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rkphBmXPmUvzCkka-ebgAgg-t500x500.jpg">](https://soundcloud.com/djjanr/reach-out?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vk6TAk2wqUNikfzH-tzLCwA-t500x500.png">](https://soundcloud.com/wearestudio/chrizpy-chriz-butterfly-invasion-premiere)
 
-**Artist**: Jan R 
+**Artist**: STUDIO, Chrizpy Chriz 
 
-**Track**: Reach Out
+**Track**: Chrizpy Chriz - Butterfly Invasion [Premiere]
 
-Last updated at 3/4/2026, 8:13:45 PM
+Last updated at 3/4/2026, 8:30:18 PM
