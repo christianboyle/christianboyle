@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAirf9vyHOJ5vh9y-ZGjr6A-t500x500.jpg">](https://soundcloud.com/sexy-keksy/charlie-kirk-in-the-back-of-my?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYYdQPwlPNHp5Nyn-4NRW0g-t500x500.png">](https://soundcloud.com/tomfrane/tom-frane-m-daydreaming-sped?in=saxurn/sets/bossed-up)
 
-**Artist**: Lil Kirk 
+**Artist**: Tom Frane 
 
-**Track**: Charlie Kirk (In the back of my mind)
+**Track**: Tom Frane - Daydreaming (Sped Up)
 
-Last updated at 3/4/2026, 6:03:23 PM
+Last updated at 3/4/2026, 6:05:23 PM
