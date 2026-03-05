@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpIFxycM0Kv5NoOT-KOzhqw-t500x500.jpg">](https://soundcloud.com/xdbrdj/charli-xcx-claws-xdbr-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYYdQPwlPNHp5Nyn-4NRW0g-t500x500.png">](https://soundcloud.com/tomfrane/tom-frane-m-daydreaming-sped?in=saxurn/sets/bossed-up)
 
-**Artist**: XDBR 
+**Artist**: Tom Frane 
 
-**Track**: CHARLI XCX - CLAWS (XDBR FLIP) [FREE DL]
+**Track**: Tom Frane - Daydreaming (Sped Up)
 
-Last updated at 3/5/2026, 6:03:44 AM
+Last updated at 3/5/2026, 6:06:19 AM
