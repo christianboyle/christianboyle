@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DYYdQPwlPNHp5Nyn-4NRW0g-t500x500.png">](https://soundcloud.com/tomfrane/tom-frane-m-daydreaming-sped?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4TkRGakXIyFz6hh-Z1NoNQ-t500x500.png">](https://soundcloud.com/mickjay67/morgan-seatree-carla-monroe?in=saxurn/sets/bossed-up)
 
-**Artist**: Tom Frane 
+**Artist**: MickJay 
 
-**Track**: Tom Frane - Daydreaming (Sped Up)
+**Track**: Morgan Seatree & Carla Monroe - Beat Is Jumping (MickJay Remix)SC
 
-Last updated at 3/4/2026, 6:05:23 PM
+Last updated at 3/4/2026, 6:07:38 PM
