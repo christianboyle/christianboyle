@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLG9F821IS9yVCQp-qgJzEA-t500x500.jpg">](https://soundcloud.com/brojski/knife-party-vs-holy-priest-fuck-this-internet-friends?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
 
-**Artist**: Brojski 
+**Artist**: Marlon Hoffstadt 
 
-**Track**: Knife Party Vs. Holy Priest - Fuck This Internet Friends [BROJSKI MASHUP]
+**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
 
-Last updated at 3/5/2026, 6:34:27 AM
+Last updated at 3/5/2026, 6:38:32 AM
