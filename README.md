@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V1x1cgmEf3sj788C-DH8ynQ-t500x500.png">](https://soundcloud.com/scuffedrecs/destrata-problem-ft-killa-p)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ysQgDyqIi8mfgTG3-fwB4eA-t500x500.png">](https://soundcloud.com/oldskoolbiz/this-place)
 
-**Artist**: Destrata 
+**Artist**: Pianoman 
 
-**Track**: Destrata - Problem (ft. Killa P )
+**Track**: This Place
 
-Last updated at 3/6/2026, 5:31:31 PM
+Last updated at 3/6/2026, 5:32:41 PM
