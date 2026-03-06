@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ll627bEqoTXEydBW-0bhuGA-t500x500.png">](https://soundcloud.com/justicehardcore/nobody-poison-tree-going-under-the-album-out-now?in=justicehardcore/sets/nobody-going-under-the-album)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V1x1cgmEf3sj788C-DH8ynQ-t500x500.png">](https://soundcloud.com/scuffedrecs/destrata-problem-ft-killa-p)
 
-**Artist**: Justice Hardcore 
+**Artist**: Destrata 
 
-**Track**: Nobody - Poison Tree [GOING UNDER 'THE ALBUM] (OUT NOW)
+**Track**: Destrata - Problem (ft. Killa P )
 
-Last updated at 3/6/2026, 5:30:06 PM
+Last updated at 3/6/2026, 5:31:31 PM
