@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i81UoKwYfQFsYpow-78aUGw-t500x500.png">](https://soundcloud.com/dnzrecords/carlos-tafalla-i-will-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx8p6Q8xhNtmToyN-oClSog-t500x500.png">](https://soundcloud.com/iamcheapthrill/familiar-code?in=iamwolfmagic/sets/familiar-code-with-cheap)
 
-**Artist**: Carlos Tafalla 
+**Artist**: CHEAP THRILL, Wolfmagic 
 
-**Track**: Carlos Tafalla - I Will Cry
+**Track**: CHEAP THRILL & WOLFMAGIC - FAMILIAR CODE
 
-Last updated at 3/6/2026, 4:13:31 PM
+Last updated at 3/6/2026, 5:26:01 PM
