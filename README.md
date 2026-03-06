@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oa7OpvGL4Hzfx8yk-1iIa3w-t500x500.png">](https://soundcloud.com/steven-mctaggart/taggy-know-that-youll-be-there)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ll627bEqoTXEydBW-0bhuGA-t500x500.png">](https://soundcloud.com/justicehardcore/nobody-healing-part-of-me-going-under-the-album-out-now?in=justicehardcore/sets/nobody-going-under-the-album)
 
-**Artist**: TAGGY 
+**Artist**: Justice Hardcore 
 
-**Track**: TAGGY - Know that you'll be there
+**Track**: Nobody - Healing (Part Of Me) [GOING UNDER 'THE ALBUM] (OUT NOW)
 
-Last updated at 3/6/2026, 5:27:16 PM
+Last updated at 3/6/2026, 5:29:06 PM
