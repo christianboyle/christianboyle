@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zx8p6Q8xhNtmToyN-oClSog-t500x500.png">](https://soundcloud.com/iamcheapthrill/familiar-code?in=iamwolfmagic/sets/familiar-code-with-cheap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oa7OpvGL4Hzfx8yk-1iIa3w-t500x500.png">](https://soundcloud.com/steven-mctaggart/taggy-know-that-youll-be-there)
 
-**Artist**: CHEAP THRILL, Wolfmagic 
+**Artist**: TAGGY 
 
-**Track**: CHEAP THRILL & WOLFMAGIC - FAMILIAR CODE
+**Track**: TAGGY - Know that you'll be there
 
-Last updated at 3/6/2026, 5:26:01 PM
+Last updated at 3/6/2026, 5:27:16 PM
