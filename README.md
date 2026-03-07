@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WmJcW6mTKaSfraQ-XGZoTg-t500x500.png">](https://soundcloud.com/psykeduk/asher-my-job-ft-limmz-1?in=psykeduk/sets/asher-shellaman-ep-ft-limmz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ll627bEqoTXEydBW-0bhuGA-t500x500.png">](https://soundcloud.com/justicehardcore/nobody-haunted-going-under-the-album-out-now)
 
-**Artist**: Asher 
+**Artist**: Justice Hardcore 
 
-**Track**: Asher - My Job (ft Limmz)
+**Track**: Nobody - Haunted [GOING UNDER 'THE ALBUM] (OUT NOW)
 
-Last updated at 3/6/2026, 7:26:53 PM
+Last updated at 3/7/2026, 7:58:05 AM
