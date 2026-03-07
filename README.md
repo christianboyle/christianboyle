@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCq46aykrpZxQprj-oO9t7Q-t500x500.jpg">](https://soundcloud.com/sxthsns/miss-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sGFKGfiymG2NDsCz-XjxEzg-t500x500.png">](https://soundcloud.com/hemi-wav/gtfb?in=saxurn/sets/1a1/)
 
-**Artist**: sxth sns 
+**Artist**: Big Nut Chuck 
 
-**Track**: Miss you
+**Track**: GTFB
 
-Last updated at 3/7/2026, 4:37:17 PM
+Last updated at 3/7/2026, 4:39:17 PM
