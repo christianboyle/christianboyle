@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DAirf9vyHOJ5vh9y-ZGjr6A-t500x500.jpg">](https://soundcloud.com/sexy-keksy/charlie-kirk-in-the-back-of-my?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCq46aykrpZxQprj-oO9t7Q-t500x500.jpg">](https://soundcloud.com/sxthsns/miss-you)
 
-**Artist**: Lil Kirk 
+**Artist**: sxth sns 
 
-**Track**: Charlie Kirk (In the back of my mind)
+**Track**: Miss you
 
-Last updated at 3/7/2026, 8:43:52 AM
+Last updated at 3/7/2026, 8:44:57 AM
