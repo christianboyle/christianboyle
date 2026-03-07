@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBpoR5fWMBVv7srL-0YRJuQ-t500x500.jpg">](https://soundcloud.com/aceonearth/power-and-peace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tPxh7XW2BGnDYPZf-8TKiFA-t500x500.png">](https://soundcloud.com/hendy2017/goo-goo-dolls-iris-hendy-remix)
 
-**Artist**: Ace On Earth 
+**Artist**: DJ Hendy 
 
-**Track**: Power and Peace
+**Track**: Goo Goo Dolls - Iris (Hendy Remix)
 
-Last updated at 3/7/2026, 4:23:55 PM
+Last updated at 3/7/2026, 4:24:55 PM
