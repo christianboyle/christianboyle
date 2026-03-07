@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBpoR5fWMBVv7srL-0YRJuQ-t500x500.jpg">](https://soundcloud.com/aceonearth/power-and-peace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCq46aykrpZxQprj-oO9t7Q-t500x500.jpg">](https://soundcloud.com/sxthsns/miss-you?in=saxurn/sets/1a1/)
 
-**Artist**: Ace On Earth 
+**Artist**: sxth sns 
 
-**Track**: Power and Peace
+**Track**: Miss you
 
-Last updated at 3/7/2026, 4:44:30 PM
+Last updated at 3/7/2026, 5:14:16 PM
