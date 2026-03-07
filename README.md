@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jvzx89pgUxX5xHoy-xtslTw-t500x500.png">](https://soundcloud.com/audioboyz-521906163/audioboyz-aylas-eyes-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-blRh7ILvjMhBScu4-AkHYDw-t500x500.png">](https://soundcloud.com/gpolmusic/proper_education)
 
-**Artist**: AudioBoyz 
+**Artist**: G-POL 
 
-**Track**: AudioBoyz - Ayla's Eyes *** FREE DOWNLOAD ***
+**Track**: Proper Education (Extended Mix)
 
-Last updated at 3/7/2026, 4:25:56 PM
+Last updated at 3/7/2026, 4:29:01 PM
