@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qJvKrbqPfV9lJwpi-8SWlDg-t500x500.png">](https://soundcloud.com/rennz/rennz-womps-on-the-beach-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBpoR5fWMBVv7srL-0YRJuQ-t500x500.jpg">](https://soundcloud.com/aceonearth/power-and-peace)
 
-**Artist**: Rennz 
+**Artist**: Ace On Earth 
 
-**Track**: Rennz - Womps On The Beach **FREE DL**
+**Track**: Power and Peace
 
-Last updated at 3/7/2026, 8:47:27 AM
+Last updated at 3/7/2026, 2:54:36 PM
