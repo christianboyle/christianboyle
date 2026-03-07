@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mkPOHFomR27c0vVV-18Pgkw-t500x500.jpg">](https://soundcloud.com/cidmusic/the-weeknd-the-hills-cid-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-69znKn7gVznl3nR1-QRRCDg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-falling-again-radio-edit)
 
-**Artist**: CID Music 
+**Artist**: DRIFT 
 
-**Track**: The Weeknd - The Hills  (CID Edit)
+**Track**: DRIFT - FALLING AGAIN (RADIO EDIT)
 
-Last updated at 3/7/2026, 2:55:51 PM
+Last updated at 3/7/2026, 2:57:11 PM
