@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4xd3QioclHJA52P7-tJwuww-t500x500.png">](https://soundcloud.com/phluxxbass/phluxx-dubkiller-fearless-dub)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xAoiJ5wiHAkSrtam-X6umvA-t500x500.jpg">](https://soundcloud.com/andymc_g/hard-trance-mix-free-party-71124)
 
-**Artist**: PHLUXX 
+**Artist**: Dj Shiver 
 
-**Track**: Phluxx & Dubkiller - Fearless Dub
+**Track**: Hard Trance Mix (Free Party) 7.11.24 (Dj Shiver)
 
-Last updated at 3/7/2026, 8:29:35 AM
+Last updated at 3/7/2026, 8:30:56 AM
