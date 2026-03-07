@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ysQgDyqIi8mfgTG3-fwB4eA-t500x500.png">](https://soundcloud.com/oldskoolbiz/this-place)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3WmJcW6mTKaSfraQ-XGZoTg-t500x500.png">](https://soundcloud.com/psykeduk/asher-my-job-ft-limmz-1?in=psykeduk/sets/asher-shellaman-ep-ft-limmz)
 
-**Artist**: Pianoman 
+**Artist**: Asher 
 
-**Track**: This Place
+**Track**: Asher - My Job (ft Limmz)
 
-Last updated at 3/6/2026, 5:32:41 PM
+Last updated at 3/6/2026, 7:26:53 PM
