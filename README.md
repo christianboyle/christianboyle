@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X3LhUYdbiEF027VS-rjHuhA-t500x500.png">](https://soundcloud.com/bernzikial/bernzikial-mes-alone-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iPrLbUZOtZ3YfJk1-4jrl2g-t500x500.jpg">](https://soundcloud.com/mursamusic/dna)
 
-**Artist**: BERNZIKIAL ✨ 
+**Artist**: MURSA , KENDRICK LAMAR 
 
-**Track**: BERNZIKIAL, MES - Alone
+**Track**: DNA (MURKED BY MURSA)
 
-Last updated at 3/7/2026, 8:41:21 AM
+Last updated at 3/7/2026, 8:42:27 AM
