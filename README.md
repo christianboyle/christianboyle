@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-69znKn7gVznl3nR1-QRRCDg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-falling-again-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9uJmJ83D9Vl20c0-UHUcUw-t500x500.png">](https://soundcloud.com/itscielll/not-over-yet-cielll-golden-1)
 
-**Artist**: DRIFT 
+**Artist**: CIElll 
 
-**Track**: DRIFT - FALLING AGAIN (RADIO EDIT)
+**Track**: Not Over Yet (CIElll Golden Hour Mix)
 
-Last updated at 3/7/2026, 2:57:11 PM
+Last updated at 3/7/2026, 2:58:12 PM
