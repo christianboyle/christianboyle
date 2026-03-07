@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8zriNAn4mzwJcU1q-XqjITw-t500x500.png">](https://soundcloud.com/newagedigitalrecords/the-skyhiatrist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0DGkQ5gWJIMrZ3OH-1RExSg-t500x500.jpg">](https://soundcloud.com/djactiv8/aaaaactivate-the-bbbbounce-45)
 
-**Artist**: Swankie DJ 
+**Artist**: DJ ACTiV8 
 
-**Track**: The Skyhiatrist FREE DOWNLOAD!
+**Track**: Activate the Bounce 45
 
-Last updated at 3/7/2026, 8:32:01 AM
+Last updated at 3/7/2026, 8:33:01 AM
