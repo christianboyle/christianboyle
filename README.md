@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5754f6a11QNswxuo-eAICvA-t500x500.png">](https://soundcloud.com/nikpmusic/nonstop-w-black-carl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UBpoR5fWMBVv7srL-0YRJuQ-t500x500.jpg">](https://soundcloud.com/aceonearth/power-and-peace)
 
-**Artist**: NIK P & Black Carl! 
+**Artist**: Ace On Earth 
 
-**Track**: Nonstop [SoundCloud Exclusive]
+**Track**: Power and Peace
 
-Last updated at 3/7/2026, 4:17:12 PM
+Last updated at 3/7/2026, 4:23:55 PM
