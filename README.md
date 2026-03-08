@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzNOTt50vJjdT3eG-icesFQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-neo-dj-morky-technical-1?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijGgPFDg32MXflQT-R26JRg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-wild-ones?in=saxurn/sets/1a1/)
 
-**Artist**: DJ Neo & DJ Morky 
+**Artist**: The Purge 
 
-**Track**: DJ Neo & DJ Morky - Technical Problem Club Mix
+**Track**: The Purge - WILD ONES
 
-Last updated at 3/8/2026, 5:08:36 PM
+Last updated at 3/8/2026, 5:16:17 PM
