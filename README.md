@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Anc6IZfsg5ZXt1rw-F4enPQ-t500x500.png">](https://soundcloud.com/zondosounds/concrete-jungle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VP86QXWI5zeonDrT-YAKHnA-t500x500.png">](https://soundcloud.com/da-bow/empurra-w-bauti)
 
-**Artist**: ZONDO, VelcroShirt 
+**Artist**: Dabow, bauti 
 
-**Track**: CONCRETE JUNGLE
+**Track**: Dabow & bauti - EMPURRA
 
-Last updated at 3/8/2026, 4:12:08 PM
+Last updated at 3/8/2026, 4:13:13 PM
