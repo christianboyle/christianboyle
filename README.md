@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VP86QXWI5zeonDrT-YAKHnA-t500x500.png">](https://soundcloud.com/da-bow/empurra-w-bauti)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AnIJpPuvppEKJJr9-hHszPg-t500x500.png">](https://soundcloud.com/doof_music/bounce-block-preview)
 
-**Artist**: Dabow, bauti 
+**Artist**: Leechy & BR.ICKO 
 
-**Track**: Dabow & bauti - EMPURRA
+**Track**: Bounce Block (Preview)
 
-Last updated at 3/8/2026, 4:13:13 PM
+Last updated at 3/8/2026, 4:24:49 PM
