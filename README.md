@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b1r85dFgh1PuGyWv-USzizg-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/homage-pay-close-attention)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jLG9F821IS9yVCQp-qgJzEA-t500x500.jpg">](https://soundcloud.com/brojski/knife-party-vs-holy-priest-fuck-this-internet-friends)
 
-**Artist**: AMSTERDAM DANCE CAPITAL 
+**Artist**: Brojski 
 
-**Track**: Homage - Pay Close Attention! [ADCxFREE]
+**Track**: Knife Party Vs. Holy Priest - Fuck This Internet Friends [BROJSKI MASHUP]
 
-Last updated at 3/8/2026, 7:33:43 AM
+Last updated at 3/8/2026, 12:32:30 PM
