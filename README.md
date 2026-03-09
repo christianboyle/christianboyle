@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P86KXzKbPNeZQ0E0-DPusdw-t500x500.png">](https://soundcloud.com/xotixmusic/sidepiece-cry-for-you-xotix?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9fOL2L8zazA0LJwl-BbRbjQ-t500x500.png">](https://soundcloud.com/zekebeats/little-bitter)
 
-**Artist**: XOTIX 
+**Artist**: ZEKE BEATS 
 
-**Track**: SIDEPIECE- CRY FOR YOU (XOTIX FLIP)
+**Track**: LITTLE BITTER
 
-Last updated at 3/9/2026, 1:48:15 PM
+Last updated at 3/9/2026, 1:51:11 PM
