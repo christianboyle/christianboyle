@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3NvSpQVyHM4ED5gb-cm6w2A-t500x500.png">](https://soundcloud.com/biff-jones-0/p-t-i-d-vol-48)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OkOxBnO5eeDwP7OH-NJ2Epw-t500x500.png">](https://soundcloud.com/werd_official/seal-flip-v3)
 
-**Artist**: F.E.A.R.™ - K4Y0 - PROJECT HAVOC - PARAGON - S.B.L 
+**Artist**: WerD 
 
-**Track**: P.T.I.D. VOL 48
+**Track**: Seal - Kiss From A Rose (WerD Flip)
 
-Last updated at 3/9/2026, 7:35:14 AM
+Last updated at 3/9/2026, 7:36:49 AM
