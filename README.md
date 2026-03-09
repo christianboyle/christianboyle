@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kpEF3dzVe9E7Nib7-EzeJ0g-t500x500.png">](https://soundcloud.com/samwolfemusic/taambdi-chaamdi)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kEBGGPtfQ91gvyAp-GcCffg-t500x500.png">](https://soundcloud.com/adambeyer/adam-beyer-space-miami-21st-june-2025)
 
-**Artist**: SAM WOLFE 
+**Artist**: adambeyer 
 
-**Track**: Kratex and Shreyas - Taambdi Chaamdi (Sam WOLFE Remix)
+**Track**: Adam Beyer @Space Miami 21st June 2025
 
-Last updated at 3/9/2026, 7:39:14 AM
+Last updated at 3/9/2026, 8:47:35 AM
