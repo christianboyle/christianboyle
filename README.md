@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P86KXzKbPNeZQ0E0-DPusdw-t500x500.png">](https://soundcloud.com/xotixmusic/sidepiece-cry-for-you-xotix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000558410319-bbq0ia-t500x500.jpg">](https://soundcloud.com/longjawns/pursuit-jawns-version)
 
-**Artist**: XOTIX 
+**Artist**: JAWNS 
 
-**Track**: SIDEPIECE- CRY FOR YOU (XOTIX FLIP)
+**Track**: Pursuit (JAWNS Version)
 
-Last updated at 3/9/2026, 1:14:01 PM
+Last updated at 3/9/2026, 1:15:26 PM
