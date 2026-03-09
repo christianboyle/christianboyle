@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JRdMrXJaGEJoVBUf-ZxDywA-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-prod-mix-feb-26-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OdzwsSw9it16E7cP-dSDEVQ-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-the-hockaday-series-1)
 
-**Artist**: DJ Pleasure 
+**Artist**: YEAH MAN 
 
-**Track**: DJ Pleasure (Live) Production Mix 🏭 (Feb25 - Feb 2026) (1).mp3
+**Track**: YEAH MAN -The HOCKADAY Series vol 1 - Bounce mix
 
-Last updated at 3/9/2026, 10:50:09 AM
+Last updated at 3/9/2026, 12:56:12 PM
