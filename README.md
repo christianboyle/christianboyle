@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D2ckb1M5tjpp-0-t500x500.jpg">](https://soundcloud.com/oneseventy/letting-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCq46aykrpZxQprj-oO9t7Q-t500x500.jpg">](https://soundcloud.com/sxthsns/miss-you)
 
-**Artist**: Technikore, Steve Hill 
+**Artist**: sxth sns 
 
-**Track**: Letting Go
+**Track**: Miss you
 
-Last updated at 3/9/2026, 7:23:43 AM
+Last updated at 3/9/2026, 7:26:28 AM
