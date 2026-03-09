@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rc9IsP1d3Ij0-0-t500x500.jpg">](https://soundcloud.com/hershemusic/diamonds)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCq46aykrpZxQprj-oO9t7Q-t500x500.jpg">](https://soundcloud.com/sxthsns/miss-you?in=saxurn/sets/1a1/)
 
-**Artist**: HerShe, Roto 
+**Artist**: sxth sns 
 
-**Track**: DIAMONDS
+**Track**: Miss you
 
-Last updated at 3/9/2026, 4:05:47 PM
+Last updated at 3/9/2026, 5:52:23 PM
