@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijGgPFDg32MXflQT-R26JRg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-wild-ones?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P86KXzKbPNeZQ0E0-DPusdw-t500x500.png">](https://soundcloud.com/xotixmusic/sidepiece-cry-for-you-xotix)
 
-**Artist**: The Purge 
+**Artist**: XOTIX 
 
-**Track**: The Purge - WILD ONES
+**Track**: SIDEPIECE- CRY FOR YOU (XOTIX FLIP)
 
-Last updated at 3/8/2026, 5:16:17 PM
+Last updated at 3/8/2026, 8:09:31 PM
