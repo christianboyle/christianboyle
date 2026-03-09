@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijGgPFDg32MXflQT-R26JRg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/the-purge-wild-ones?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i81UoKwYfQFsYpow-78aUGw-t500x500.png">](https://soundcloud.com/dnzrecords/carlos-tafalla-i-will-cry?in=saxurn/sets/1a1/)
 
-**Artist**: The Purge 
+**Artist**: Carlos Tafalla 
 
-**Track**: The Purge - WILD ONES
+**Track**: Carlos Tafalla - I Will Cry
 
-Last updated at 3/9/2026, 1:39:09 PM
+Last updated at 3/9/2026, 1:41:35 PM
