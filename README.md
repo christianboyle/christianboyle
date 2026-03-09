@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-dJglhIdVRylz2kDg-z1X8sA-t500x500.jpg">](https://soundcloud.com/dopecontents/going-thru-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3NvSpQVyHM4ED5gb-cm6w2A-t500x500.png">](https://soundcloud.com/biff-jones-0/p-t-i-d-vol-48)
 
-**Artist**: 9ne 
+**Artist**: F.E.A.R.™ - K4Y0 - PROJECT HAVOC - PARAGON - S.B.L 
 
-**Track**: Going thru it
+**Track**: P.T.I.D. VOL 48
 
-Last updated at 3/9/2026, 7:34:04 AM
+Last updated at 3/9/2026, 7:35:14 AM
