@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qJvKrbqPfV9lJwpi-8SWlDg-t500x500.png">](https://soundcloud.com/rennz/rennz-womps-on-the-beach-free-download?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGbHPFfhudD9S04D-LCWSTA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/trippie-redd-dark-knight-dummo)
 
-**Artist**: Rennz 
+**Artist**: M?STIC, PIERCE 
 
-**Track**: Rennz - Womps On The Beach **FREE DL**
+**Track**: TRIPPIE REDD - DARK KNIGHT DUMMO (M?STIC & PIERCE REMIX)
 
-Last updated at 3/9/2026, 1:17:12 PM
+Last updated at 3/9/2026, 1:18:37 PM
