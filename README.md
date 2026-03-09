@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m3unllx7Bn0S08Oz-PvSZiA-t500x500.jpg">](https://soundcloud.com/140club-140club/phunkk-rave-140club-selections?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8mBIvTBdUXVmZrV-cJmBeQ-t500x500.png">](https://soundcloud.com/purityleech/just-let-go-d-b-mix?in=saxurn/sets/1a1/)
 
-**Artist**: DJ Shades 
+**Artist**: purityleech 
 
-**Track**: PHUNKK RAVE (140CLUB: SELECTIONS 1)
+**Track**: just let go (D&B Mix)
 
-Last updated at 3/9/2026, 1:26:03 PM
+Last updated at 3/9/2026, 1:29:03 PM
