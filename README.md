@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vkit9PmHXne9CHzU-HhRRzw-t500x500.jpg">](https://soundcloud.com/radarmusic909/pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEoaBtFzRy4DYdKx-z59gqw-t500x500.jpg">](https://soundcloud.com/tom-lysar/bantu-motion)
 
-**Artist**: RADAR 
+**Artist**: Tom Lysar 
 
-**Track**: PRESSURE
+**Track**: Bantu Motion
 
-Last updated at 3/10/2026, 7:17:49 AM
+Last updated at 3/10/2026, 7:17:54 AM
