@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0YBsozo96AZScdkM-YHc9Jg-t500x500.png">](https://soundcloud.com/kommandofficial/thundercarnival)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IPozBcNXLpLldlhx-5v5A7A-t500x500.jpg">](https://soundcloud.com/vulturetheorymusic/desren-when-the-night-is-over)
 
-**Artist**: Kommando 
+**Artist**: VULTURE THEORY 
 
-**Track**: THUNDERCARNIVAL
+**Track**: DESREN - When the night is over (VULTURE THEORY REMIX)
 
-Last updated at 3/10/2026, 7:18:17 AM
+Last updated at 3/10/2026, 7:18:34 AM
