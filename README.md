@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueO4zByuJsZfyUMq-mLNZsg-t500x500.png">](https://soundcloud.com/move_silent/waiting-game-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7L5ahWSxz0kiKYp-nAVn0w-t500x500.png">](https://soundcloud.com/justicehardcore/gettinghyped)
 
-**Artist**: Adam BFD 
+**Artist**: Justice Hardcore 
 
-**Track**: WAITING GAME
+**Track**: Nobody - Getting Hyped (OUT NOW)
 
-Last updated at 3/9/2026, 7:56:07 PM
+Last updated at 3/9/2026, 7:59:38 PM
