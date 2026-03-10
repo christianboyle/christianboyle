@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7L5ahWSxz0kiKYp-nAVn0w-t500x500.png">](https://soundcloud.com/justicehardcore/gettinghyped)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfDNekHoRzuFqzkd-LwLWZQ-t500x500.png">](https://soundcloud.com/justicehardcore/dreamaboutyou)
 
 **Artist**: Justice Hardcore 
 
-**Track**: Nobody - Getting Hyped (OUT NOW)
+**Track**: Nobody - Dream About You (OUT NOW)
 
-Last updated at 3/9/2026, 7:59:38 PM
+Last updated at 3/9/2026, 8:02:48 PM
