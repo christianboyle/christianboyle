@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XScaggzV4yWUYpqF-gkD3mA-t500x500.png">](https://soundcloud.com/from-clay-954448993/tu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjwnBlDDGHWkPgNY-T7CzDg-t500x500.jpg">](https://soundcloud.com/mercycoreradio/emotionals-sanity)
 
-**Artist**: fromclay 
+**Artist**: emotionals 
 
-**Track**: TU
+**Track**: sanity (mercyyy)
 
-Last updated at 3/10/2026, 7:19:24 AM
+Last updated at 3/10/2026, 7:19:29 AM
