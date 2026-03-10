@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m1EV5lDrjzYI9ev2-nLWCoA-t500x500.jpg">](https://soundcloud.com/spaceyacht/crum-pit-wgdc?in=crumbpitmusic/sets/wgdc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7L5ahWSxz0kiKYp-nAVn0w-t500x500.png">](https://soundcloud.com/justicehardcore/gettinghyped)
 
-**Artist**: Crumb Pit 
+**Artist**: Justice Hardcore 
 
-**Track**: Crumb Pit - WGDC
+**Track**: Nobody - Getting Hyped (OUT NOW)
 
-Last updated at 3/9/2026, 8:17:44 PM
+Last updated at 3/9/2026, 8:17:49 PM
