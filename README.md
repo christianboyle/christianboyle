@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NgTA6pbfGyxg2IsU-h2ifpg-t500x500.png">](https://soundcloud.com/basscon/dead-x-yosuf-domina-pedal-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdLK6FSZfhKx1a7I-OUeJhw-t500x500.jpg">](https://soundcloud.com/tyler-quick-3/my-name-is-baller-worm-master)
 
-**Artist**: Dead X, Yosuf, DØMINA 
+**Artist**: WORM 
 
-**Track**: Dead X & Yosuf & DØMINA - PEDAL 2 THE METAL
+**Track**: My Name Is Baller
 
-Last updated at 3/10/2026, 7:19:44 AM
+Last updated at 3/10/2026, 7:19:49 AM
