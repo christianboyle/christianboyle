@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QQlMS1iPyI56TDha-WTeXcA-t500x500.png">](https://soundcloud.com/jamzbondmusic/zero-hour-jamzbond-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H6kjkf4lw7oUrN2p-8bVLbw-t500x500.png">](https://soundcloud.com/keepdeep/gdubz-variations-simulation-reset)
 
-**Artist**: Jamz Bond 
+**Artist**: KeepDeep 
 
-**Track**: Zero Hour - Jamz Bond
+**Track**: GDubz x Variations - Simulation Reset
 
-Last updated at 3/9/2026, 7:43:21 PM
+Last updated at 3/9/2026, 7:45:11 PM
