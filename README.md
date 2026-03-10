@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-E1AVyGE83QkcIXCe-nB6pTg-t500x500.jpg">](https://soundcloud.com/user-664167301/super-girl-rayo-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33l17iqc2gfy3L0T-m1c1MA-t500x500.png">](https://soundcloud.com/f-e-m/paula)
 
-**Artist**: RAYO 
+**Artist**: Rose De France 
 
-**Track**: Reamonn - Supergirl (RAYO EDIT)
+**Track**: Paula (F.E.M Remix)
 
-Last updated at 3/10/2026, 7:14:59 AM
+Last updated at 3/10/2026, 7:15:04 AM
