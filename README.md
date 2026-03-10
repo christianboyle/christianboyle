@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3EBF0JjQXU5n8rm2-7kX5mw-t500x500.png">](https://soundcloud.com/sin-innocence/sin-innocence-anomaly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mhzGo7p1yESvtF8W-lvQGEg-t500x500.png">](https://soundcloud.com/yuthemusic/ghost-voices)
 
-**Artist**: Sin & Innocence 
+**Artist**: YÜTHE 
 
-**Track**: Sin & Innocence - Anomaly
+**Track**: GHOST VOICES
 
-Last updated at 3/10/2026, 7:19:14 AM
+Last updated at 3/10/2026, 7:19:19 AM
