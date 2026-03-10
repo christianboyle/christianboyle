@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lg9mesSZvCIXQ7nz-QRF4sg-t500x500.png">](https://soundcloud.com/shweezofficial/cmf-shweez)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m1EV5lDrjzYI9ev2-nLWCoA-t500x500.jpg">](https://soundcloud.com/spaceyacht/crum-pit-wgdc?in=crumbpitmusic/sets/wgdc)
 
-**Artist**: SHWEEZ 
+**Artist**: Crumb Pit 
 
-**Track**: YC - CMF (SHWEEZ BOOTLEG)
+**Track**: Crumb Pit - WGDC
 
-Last updated at 3/9/2026, 8:17:39 PM
+Last updated at 3/9/2026, 8:17:44 PM
