@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33l17iqc2gfy3L0T-m1c1MA-t500x500.png">](https://soundcloud.com/f-e-m/paula)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCufIzH2N7WKVSpi-jm8w3Q-t500x500.png">](https://soundcloud.com/dancingdeadrecords/gishin-afterglow-2)
 
-**Artist**: Rose De France 
+**Artist**: GISHIN 
 
-**Track**: Paula (F.E.M Remix)
+**Track**: GISHIN - Afterglow
 
-Last updated at 3/10/2026, 7:15:04 AM
+Last updated at 3/10/2026, 7:15:09 AM
