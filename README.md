@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m1EV5lDrjzYI9ev2-nLWCoA-t500x500.jpg">](https://soundcloud.com/spaceyacht/crum-pit-wgdc?in=crumbpitmusic/sets/wgdc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PM1qC5E0zseD2tU5-kWKNMA-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/john-summit-lights-go-out?in=crumbpitmusic/sets/john-summit-lights-go-out)
 
-**Artist**: Crumb Pit 
+**Artist**: john Summit, Crumb Pit 
 
-**Track**: Crumb Pit - WGDC
+**Track**: john summit - lights go out (crumb pit remix)
 
-Last updated at 3/9/2026, 8:13:49 PM
+Last updated at 3/9/2026, 8:16:49 PM
