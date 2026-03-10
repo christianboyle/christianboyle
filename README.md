@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DEoaBtFzRy4DYdKx-z59gqw-t500x500.jpg">](https://soundcloud.com/tom-lysar/bantu-motion)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DuCf8ofD5E1YyYAh-Ryb6jQ-t500x500.jpg">](https://soundcloud.com/dredlokmusic/junk)
 
-**Artist**: Tom Lysar 
+**Artist**: Dredlok 
 
-**Track**: Bantu Motion
+**Track**: Junk
 
-Last updated at 3/10/2026, 7:17:54 AM
+Last updated at 3/10/2026, 7:17:59 AM
