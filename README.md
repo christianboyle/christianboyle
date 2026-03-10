@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPM3njQ2XWzkaCXT-36aFWQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/vyhara-another-life-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P86KXzKbPNeZQ0E0-DPusdw-t500x500.png">](https://soundcloud.com/xotixmusic/sidepiece-cry-for-you-xotix)
 
-**Artist**: Vyhara 
+**Artist**: XOTIX 
 
-**Track**: Vyhara - Another Life
+**Track**: SIDEPIECE- CRY FOR YOU (XOTIX FLIP)
 
-Last updated at 3/10/2026, 7:20:24 AM
+Last updated at 3/10/2026, 7:35:31 AM
