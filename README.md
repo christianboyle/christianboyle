@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-47QkfTs9iEkBzOT7-jtDw6Q-t500x500.png">](https://soundcloud.com/djjohnneal/dj-angel-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3NvSpQVyHM4ED5gb-cm6w2A-t500x500.png">](https://soundcloud.com/biff-jones-0/p-t-i-d-vol-48)
 
-**Artist**: Frequency 20th Anniversary 
+**Artist**: F.E.A.R.™ - K4Y0 - PROJECT HAVOC - PARAGON - S.B.L 
 
-**Track**: DJ ANGEL
+**Track**: P.T.I.D. VOL 48
 
-Last updated at 3/10/2026, 7:14:44 AM
+Last updated at 3/10/2026, 7:14:49 AM
