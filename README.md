@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S6hxGjzapWgm1xyp-lljZOA-t500x500.png">](https://soundcloud.com/mousaitherealest/mousai-drop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lg9mesSZvCIXQ7nz-QRF4sg-t500x500.png">](https://soundcloud.com/shweezofficial/cmf-shweez)
 
-**Artist**: MOUSAI 
+**Artist**: SHWEEZ 
 
-**Track**: Mousai - Drop
+**Track**: YC - CMF (SHWEEZ BOOTLEG)
 
-Last updated at 3/9/2026, 8:18:00 PM
+Last updated at 3/9/2026, 8:18:10 PM
