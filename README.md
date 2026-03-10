@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R5oW52pz77C5TiMH-CdoQ4A-t500x500.png">](https://soundcloud.com/tom-lysar/stay-tonight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m1EV5lDrjzYI9ev2-nLWCoA-t500x500.jpg">](https://soundcloud.com/spaceyacht/crum-pit-wgdc?in=crumbpitmusic/sets/wgdc)
 
-**Artist**: Tom Lysar 
+**Artist**: Crumb Pit 
 
-**Track**: Stay Tonight
+**Track**: Crumb Pit - WGDC
 
-Last updated at 3/9/2026, 8:09:29 PM
+Last updated at 3/9/2026, 8:13:49 PM
