@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D2ckb1M5tjpp-0-t500x500.jpg">](https://soundcloud.com/oneseventy/letting-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ArDFv9y6wK9khEu-ePlTXQ-t500x500.jpg">](https://soundcloud.com/belavie/fairy-fountain)
 
-**Artist**: Technikore, Steve Hill 
+**Artist**: Bélavie 
 
-**Track**: Letting Go
+**Track**: Bélavie - Fairy Fountain (Zelda)
 
-Last updated at 3/10/2026, 7:45:45 AM
+Last updated at 3/10/2026, 5:15:33 PM
