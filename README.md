@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mhzGo7p1yESvtF8W-lvQGEg-t500x500.png">](https://soundcloud.com/yuthemusic/ghost-voices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XScaggzV4yWUYpqF-gkD3mA-t500x500.png">](https://soundcloud.com/from-clay-954448993/tu)
 
-**Artist**: YÜTHE 
+**Artist**: fromclay 
 
-**Track**: GHOST VOICES
+**Track**: TU
 
-Last updated at 3/10/2026, 7:19:19 AM
+Last updated at 3/10/2026, 7:19:24 AM
