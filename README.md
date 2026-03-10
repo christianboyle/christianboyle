@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCufIzH2N7WKVSpi-jm8w3Q-t500x500.png">](https://soundcloud.com/dancingdeadrecords/gishin-afterglow-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwXL0p9LsMdqIBw5-VQGgXA-t500x500.jpg">](https://soundcloud.com/exproz/onlynumbers-euphoric-night-exproz-bootleg)
 
-**Artist**: GISHIN 
+**Artist**: Onlynumbers, Exproz 
 
-**Track**: GISHIN - Afterglow
+**Track**: Onlynumbers - Euphoric Night (Exproz Bootleg)
 
-Last updated at 3/10/2026, 7:15:09 AM
+Last updated at 3/10/2026, 7:15:14 AM
