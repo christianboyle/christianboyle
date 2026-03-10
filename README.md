@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TfDNekHoRzuFqzkd-LwLWZQ-t500x500.png">](https://soundcloud.com/justicehardcore/dreamaboutyou)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPM3njQ2XWzkaCXT-36aFWQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/vyhara-another-life-2)
 
-**Artist**: Justice Hardcore 
+**Artist**: Vyhara 
 
-**Track**: Nobody - Dream About You (OUT NOW)
+**Track**: Vyhara - Another Life
 
-Last updated at 3/10/2026, 7:20:14 AM
+Last updated at 3/10/2026, 7:20:24 AM
