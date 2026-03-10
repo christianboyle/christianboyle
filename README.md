@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQyGwx9ohhTNOxv3-Us8Hrg-t500x500.png">](https://soundcloud.com/remkmusic/give-me-everything-remk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueO4zByuJsZfyUMq-mLNZsg-t500x500.png">](https://soundcloud.com/move_silent/make-it-work-2)
 
-**Artist**: RemK 
+**Artist**: Adam BFD 
 
-**Track**: Give Me Everything (RemK Remix)
+**Track**: MAKE IT WORK
 
-Last updated at 3/9/2026, 7:49:32 PM
+Last updated at 3/9/2026, 7:51:47 PM
