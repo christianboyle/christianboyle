@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPM3njQ2XWzkaCXT-36aFWQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/vyhara-another-life-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TykrUvqFHKDQ9Flp-DnSpUA-t500x500.png">](https://soundcloud.com/dnzrecords/wezmeister-i-kiss-your-lips)
 
-**Artist**: Vyhara 
+**Artist**: Wezmeister 
 
-**Track**: Vyhara - Another Life
+**Track**: Wezmeister - I Kiss Your Lips
 
-Last updated at 3/12/2026, 7:20:53 AM
+Last updated at 3/12/2026, 8:05:04 AM
