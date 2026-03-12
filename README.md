@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azfiD0yEtPJS0k6Y-MyzrDA-t500x500.png">](https://soundcloud.com/dozenmatter/monument333)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xd9aCeXDLpEyyPzZ-SoxgJA-t500x500.png">](https://soundcloud.com/djrikshaw/comeandgetme)
 
-**Artist**: Dozen Matter 
+**Artist**: Rik Shaw x Chris Bell 
 
-**Track**: Monument
+**Track**: Come And Get Me **OUT NOW ON ALL PLATFORMS**
 
-Last updated at 3/12/2026, 6:44:35 AM
+Last updated at 3/12/2026, 7:00:47 AM
