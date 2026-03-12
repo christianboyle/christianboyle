@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ArDFv9y6wK9khEu-ePlTXQ-t500x500.jpg">](https://soundcloud.com/belavie/fairy-fountain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPM3njQ2XWzkaCXT-36aFWQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/vyhara-another-life-2)
 
-**Artist**: Bélavie 
+**Artist**: Vyhara 
 
-**Track**: Bélavie - Fairy Fountain (Zelda)
+**Track**: Vyhara - Another Life
 
-Last updated at 3/12/2026, 7:17:53 AM
+Last updated at 3/12/2026, 7:20:53 AM
