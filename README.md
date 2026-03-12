@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9ArDFv9y6wK9khEu-ePlTXQ-t500x500.jpg">](https://soundcloud.com/belavie/fairy-fountain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P86KXzKbPNeZQ0E0-DPusdw-t500x500.png">](https://soundcloud.com/xotixmusic/sidepiece-cry-for-you-xotix)
 
-**Artist**: Bélavie 
+**Artist**: XOTIX 
 
-**Track**: Bélavie - Fairy Fountain (Zelda)
+**Track**: SIDEPIECE- CRY FOR YOU (XOTIX FLIP)
 
-Last updated at 3/11/2026, 5:38:03 AM
+Last updated at 3/12/2026, 6:22:27 AM
