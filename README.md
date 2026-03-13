@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPe6H4sDGewG2QOn-W4Ligw-t500x500.jpg">](https://soundcloud.com/bafubeats/baelentine-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xhpkN5hPaosSkS1a-HnysAg-t500x500.jpg">](https://soundcloud.com/monta-musica/agent-blue-focus)
 
-**Artist**: Bafu 
+**Artist**: Monta Musica 
 
-**Track**: baelentine X
+**Track**: Agent Blue - Focus
 
-Last updated at 3/13/2026, 7:56:02 AM
+Last updated at 3/13/2026, 5:12:46 PM
