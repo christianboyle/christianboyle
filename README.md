@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mYKHRagfYVMZ0P7M-4Emtug-t500x500.png">](https://soundcloud.com/shreztah/non-verbal-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzOmw8SmV7A5Lstl-V5VIdw-t500x500.jpg">](https://soundcloud.com/dynastyszn/lonely)
 
-**Artist**: Shreztah 
+**Artist**: #dynasty 
 
-**Track**: Non Verbal (Free DL)
+**Track**: arid & karson - lonely (milanxo & april21)
 
-Last updated at 3/13/2026, 6:40:02 PM
+Last updated at 3/13/2026, 6:43:58 PM
