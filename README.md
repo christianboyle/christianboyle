@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pn5TYh5GqXYOFBf7-isjciA-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-absolute-trance-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPe6H4sDGewG2QOn-W4Ligw-t500x500.jpg">](https://soundcloud.com/bafubeats/baelentine-x)
 
-**Artist**: Scott F 
+**Artist**: Bafu 
 
-**Track**: Scott F Absolute Trance March 2026
+**Track**: baelentine X
 
-Last updated at 3/13/2026, 6:16:32 AM
+Last updated at 3/13/2026, 7:56:02 AM
