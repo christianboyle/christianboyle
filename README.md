@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xhpkN5hPaosSkS1a-HnysAg-t500x500.jpg">](https://soundcloud.com/monta-musica/agent-blue-focus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mYKHRagfYVMZ0P7M-4Emtug-t500x500.png">](https://soundcloud.com/shreztah/buss-it-like-3)
 
-**Artist**: Monta Musica 
+**Artist**: Shreztah 
 
-**Track**: Agent Blue - Focus
+**Track**: Buss It Like (Free DL)
 
-Last updated at 3/13/2026, 5:12:46 PM
+Last updated at 3/13/2026, 5:16:22 PM
