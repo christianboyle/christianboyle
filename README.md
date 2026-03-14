@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C1PJgVrJ7BU0yjsS-ICLgnw-t500x500.png">](https://soundcloud.com/ethancappsmusic/maad-city)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFPrByjWLQl7FSS9-pqzrRg-t500x500.png">](https://soundcloud.com/getterofficial/unorthodox-feat-svdden-death)
 
-**Artist**: Ethan Capps 
+**Artist**: GETTER, SVDDEN DEATH 
 
-**Track**: Kendrick Lamar - m.A.A.d. City (Ethan Capps Bootleg) [Free Birthday Download]
+**Track**: UNORTHODOX feat. SVDDEN DEATH
 
-Last updated at 3/14/2026, 10:09:21 AM
+Last updated at 3/14/2026, 10:10:21 AM
