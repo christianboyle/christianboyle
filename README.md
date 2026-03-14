@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0VWnI2DcozbxHgK-cwyQvQ-t500x500.jpg">](https://soundcloud.com/prettysweet2/roll-with-us-pretty-sweet)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQYuUaH909Z8HAnL-KBHmSA-t500x500.png">](https://soundcloud.com/energicsystem/polarity-feel-alive-rushva003-3)
 
-**Artist**: Pretty Sweet 
+**Artist**: Polarity 
 
-**Track**: Roll With Us
+**Track**: Polarity - FEEL ALIVE [RUSHVA003]
 
-Last updated at 3/14/2026, 4:13:33 PM
+Last updated at 3/14/2026, 4:14:38 PM
