@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f8JG8EJmzSzkYkIK-wG8ImQ-t500x500.jpg">](https://soundcloud.com/kirarrii/jumpman)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EdlPPPdC1tLvOvsE-XNU9AQ-t500x500.jpg">](https://soundcloud.com/rhythmcityco/susboys)
 
-**Artist**: wyatt 
+**Artist**: Rhythm City Collective 
 
-**Track**: jumpman w/ iumi
+**Track**: whereami. x actual garbage - Troop
 
-Last updated at 3/14/2026, 4:19:33 PM
+Last updated at 3/14/2026, 4:20:33 PM
