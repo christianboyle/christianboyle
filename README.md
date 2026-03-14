@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EdlPPPdC1tLvOvsE-XNU9AQ-t500x500.jpg">](https://soundcloud.com/rhythmcityco/susboys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSak401tgjkg019O-uWLTJA-t500x500.jpg">](https://soundcloud.com/bn-613145377/music-is-the-answer)
 
-**Artist**: Rhythm City Collective 
+**Artist**: BN💥 
 
-**Track**: whereami. x actual garbage - Troop
+**Track**: Music is the answer
 
-Last updated at 3/14/2026, 4:20:33 PM
+Last updated at 3/14/2026, 4:21:38 PM
