@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhzNB8bF1hNG8DRb-L6TScA-t500x500.png">](https://soundcloud.com/itsyokomusic/disruptor-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTXyN67bu9MyVAyR-TzXzdg-t500x500.png">](https://soundcloud.com/event-whalien/mosmosz-wanton-knock-knock)
 
-**Artist**: Yoko 
+**Artist**: Whalien 
 
-**Track**: Disruptor
+**Track**: Mosmoz & Wanton - Knock Knock [WHA105]
 
-Last updated at 3/14/2026, 4:27:24 PM
+Last updated at 3/14/2026, 4:28:38 PM
