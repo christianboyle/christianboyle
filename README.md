@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xd9aCeXDLpEyyPzZ-SoxgJA-t500x500.png">](https://soundcloud.com/djrikshaw/comeandgetme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PzN74RxW4J9fjyom-PIdEDg-t500x500.jpg">](https://soundcloud.com/sexy-keksy/efn-kirk-deluxe-remix)
 
-**Artist**: Rik Shaw x Chris Bell 
+**Artist**: Lil Kirk 
 
-**Track**: Come And Get Me **OUT NOW ON ALL PLATFORMS**
+**Track**: EFN (KIRK DELUXE REMIX)
 
-Last updated at 3/14/2026, 3:31:32 PM
+Last updated at 3/14/2026, 4:09:42 PM
