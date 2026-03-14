@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WOLajAqv8p2nWIeV-h9xvug-t500x500.jpg">](https://soundcloud.com/user-494848732/jayme-d-girlz-on-film-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VMU80g5LVsL4yrZT-HvUmgw-t500x500.png">](https://soundcloud.com/dj-flex-uk-204270976/walking-in-the-rain-flex)
 
-**Artist**: JaymeD 
+**Artist**: DJ Flex UK 
 
-**Track**: Jayme D - Girlz On Film [sample].OUT NOW
+**Track**: Walking In The Rain - FLEX
 
-Last updated at 3/14/2026, 5:49:31 AM
+Last updated at 3/14/2026, 5:52:06 AM
