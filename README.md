@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QH73oSoDIOXfyJzM-sVzUrg-t500x500.jpg">](https://soundcloud.com/donna-scott-963148527/mizzdee-ub40-homeley-girl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C1PJgVrJ7BU0yjsS-ICLgnw-t500x500.png">](https://soundcloud.com/ethancappsmusic/maad-city)
 
-**Artist**: Dee Scott - DjMizzDee💃🎤🎧🕺🔊🎶🥳💅 
+**Artist**: Ethan Capps 
 
-**Track**: MIZZDEE - UB40 -HOMELEY GIRL -Cover 💃
+**Track**: Kendrick Lamar - m.A.A.d. City (Ethan Capps Bootleg) [Free Birthday Download]
 
-Last updated at 3/14/2026, 10:08:21 AM
+Last updated at 3/14/2026, 10:09:21 AM
