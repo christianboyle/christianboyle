@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lFPrByjWLQl7FSS9-pqzrRg-t500x500.png">](https://soundcloud.com/getterofficial/unorthodox-feat-svdden-death)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BxuQAGjoZXR5KPvy-NMemSw-t500x500.png">](https://soundcloud.com/klixski/bad-bunny-nuevayol-klixski)
 
-**Artist**: GETTER, SVDDEN DEATH 
+**Artist**: klixski 
 
-**Track**: UNORTHODOX feat. SVDDEN DEATH
+**Track**: BAD BUNNY - NUEVAYoL (KLIXSKI FLIP)
 
-Last updated at 3/14/2026, 10:10:21 AM
+Last updated at 3/14/2026, 10:12:02 AM
