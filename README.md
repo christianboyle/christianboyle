@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nk5z9h08WYLDyP0d-6tmqsg-t500x500.jpg">](https://soundcloud.com/drake-liddell/drake-liddell-if-i-could-change-your-mind-preview?in=saxurn/sets/bendy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5OCs9BNjWBrM12h4-ksyVGw-t500x500.jpg">](https://soundcloud.com/jordanirwin/jordan-irwin-memories-mastered?in=saxurn/sets/bendy/)
 
-**Artist**: Drake Liddell 
+**Artist**: Jordan Irwin 
 
-**Track**: Drake Liddell - If I Could Change Your Mind OUT NOW
+**Track**: Jordan Irwin - Memories
 
-Last updated at 3/14/2026, 10:47:18 AM
+Last updated at 3/14/2026, 10:49:58 AM
