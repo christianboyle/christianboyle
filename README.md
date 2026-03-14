@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-td0BHswzOzS78TMv-YXnSLg-t500x500.jpg">](https://soundcloud.com/killmaj/myfault-feat-cld-prod-pk-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DPVlTsS8CzGXjN0x-uwojRw-t500x500.png">](https://soundcloud.com/stylusdamage/butterfly?in=saxurn/sets/bendy)
 
-**Artist**: maj! 
+**Artist**: Stylus Damage 
 
-**Track**: myfault (feat. cld) (prod. pk x henryberg)
+**Track**: Butterfly (ft. Seraph.)
 
-Last updated at 3/14/2026, 4:30:49 PM
+Last updated at 3/14/2026, 4:33:34 PM
