@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PzN74RxW4J9fjyom-PIdEDg-t500x500.jpg">](https://soundcloud.com/sexy-keksy/efn-kirk-deluxe-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l0VWnI2DcozbxHgK-cwyQvQ-t500x500.jpg">](https://soundcloud.com/prettysweet2/roll-with-us-pretty-sweet)
 
-**Artist**: Lil Kirk 
+**Artist**: Pretty Sweet 
 
-**Track**: EFN (KIRK DELUXE REMIX)
+**Track**: Roll With Us
 
-Last updated at 3/14/2026, 4:09:42 PM
+Last updated at 3/14/2026, 4:13:33 PM
