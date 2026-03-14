@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTXyN67bu9MyVAyR-TzXzdg-t500x500.png">](https://soundcloud.com/event-whalien/mosmosz-wanton-knock-knock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-td0BHswzOzS78TMv-YXnSLg-t500x500.jpg">](https://soundcloud.com/killmaj/myfault-feat-cld-prod-pk-x)
 
-**Artist**: Whalien 
+**Artist**: maj! 
 
-**Track**: Mosmoz & Wanton - Knock Knock [WHA105]
+**Track**: myfault (feat. cld) (prod. pk x henryberg)
 
-Last updated at 3/14/2026, 4:28:38 PM
+Last updated at 3/14/2026, 4:30:49 PM
