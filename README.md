@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nk5z9h08WYLDyP0d-6tmqsg-t500x500.jpg">](https://soundcloud.com/drake-liddell/drake-liddell-if-i-could-change-your-mind-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6DrvMiP9SXAw38A-NzAaJw-t500x500.jpg">](https://soundcloud.com/user-553907273-876400747/01-northern-linkz-2-1)
 
-**Artist**: Drake Liddell 
+**Artist**: marty b 
 
-**Track**: Drake Liddell - If I Could Change Your Mind OUT NOW
+**Track**: Makina Rush - DJ MartyB
 
-Last updated at 3/15/2026, 2:11:20 PM
+Last updated at 3/15/2026, 3:55:05 PM
