@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZDiOIt1HnuBclbM-eRcDRQ-t500x500.png">](https://soundcloud.com/lovebitess/myweakness)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTXyN67bu9MyVAyR-TzXzdg-t500x500.png">](https://soundcloud.com/event-whalien/mosmosz-wanton-knock-knock)
 
-**Artist**: lovebites 
+**Artist**: Whalien 
 
-**Track**: karson - my weakness [webm, lovebites, yashio, neohn]
+**Track**: Mosmoz & Wanton - Knock Knock [WHA105]
 
-Last updated at 3/15/2026, 1:59:54 PM
+Last updated at 3/15/2026, 2:01:44 PM
