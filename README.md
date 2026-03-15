@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xAfKu6Q2sHayHiwU-88Yd7g-t500x500.jpg">](https://soundcloud.com/saint-baek/blows-my-mind-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGbHPFfhudD9S04D-LCWSTA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/trippie-redd-dark-knight-dummo)
 
-**Artist**: SAINT MILLER 
+**Artist**: M?STIC, PIERCE 
 
-**Track**: Blows my mind
+**Track**: TRIPPIE REDD - DARK KNIGHT DUMMO (M?STIC & PIERCE REMIX)
 
-Last updated at 3/15/2026, 9:19:54 AM
+Last updated at 3/15/2026, 9:22:39 AM
