@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGbHPFfhudD9S04D-LCWSTA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/trippie-redd-dark-knight-dummo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QHCO98cy4apzA1bf-uoMIzQ-t500x500.jpg">](https://soundcloud.com/user-993594170/alert-2)
 
-**Artist**: M?STIC, PIERCE 
+**Artist**: XORTEX 
 
-**Track**: TRIPPIE REDD - DARK KNIGHT DUMMO (M?STIC & PIERCE REMIX)
+**Track**: ALERT
 
-Last updated at 3/15/2026, 9:22:39 AM
+Last updated at 3/15/2026, 9:25:09 AM
