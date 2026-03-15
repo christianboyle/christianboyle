@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C52Nko93zng5lvl5-tpYOgw-t500x500.jpg">](https://soundcloud.com/lupolupolupo/right-now-dj-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGObQKEi5gd0fND-eYJyaA-t500x500.jpg">](https://soundcloud.com/lukewave-official/wavy-radio-mix)
 
-**Artist**: LUPO.THEBOY, ALTERPATH 
+**Artist**: LUKE WAVE 
 
-**Track**: RIGHT NOW
+**Track**: WAVY
 
-Last updated at 3/15/2026, 7:09:45 AM
+Last updated at 3/15/2026, 7:11:36 AM
