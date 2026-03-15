@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGObQKEi5gd0fND-eYJyaA-t500x500.jpg">](https://soundcloud.com/lukewave-official/wavy-radio-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPM3njQ2XWzkaCXT-36aFWQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/vyhara-another-life-2?in=saxurn/sets/bendy)
 
-**Artist**: LUKE WAVE 
+**Artist**: Vyhara 
 
-**Track**: WAVY
+**Track**: Vyhara - Another Life
 
-Last updated at 3/15/2026, 7:32:26 AM
+Last updated at 3/15/2026, 7:33:26 AM
