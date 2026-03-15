@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lPM3njQ2XWzkaCXT-36aFWQ-t500x500.png">](https://soundcloud.com/gravitas-recordings/vyhara-another-life-2?in=saxurn/sets/bendy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DPVlTsS8CzGXjN0x-uwojRw-t500x500.png">](https://soundcloud.com/stylusdamage/butterfly?in=saxurn/sets/bendy)
 
-**Artist**: Vyhara 
+**Artist**: Stylus Damage 
 
-**Track**: Vyhara - Another Life
+**Track**: Butterfly (ft. Seraph.)
 
-Last updated at 3/15/2026, 7:33:26 AM
+Last updated at 3/15/2026, 7:35:26 AM
