@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mYKHRagfYVMZ0P7M-4Emtug-t500x500.png">](https://soundcloud.com/shreztah/buss-it-like-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C52Nko93zng5lvl5-tpYOgw-t500x500.jpg">](https://soundcloud.com/lupolupolupo/right-now-dj-edit)
 
-**Artist**: Shreztah 
+**Artist**: LUPO.THEBOY, ALTERPATH 
 
-**Track**: Buss It Like (Free DL)
+**Track**: RIGHT NOW
 
-Last updated at 3/15/2026, 5:44:34 AM
+Last updated at 3/15/2026, 7:09:45 AM
