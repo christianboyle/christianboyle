@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-879jCKsWyKQDDfjl-zt9IYA-t500x500.jpg">](https://soundcloud.com/aireloosh/joshwa-out-of-my-mind-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ThGObQKEi5gd0fND-eYJyaA-t500x500.jpg">](https://soundcloud.com/lukewave-official/wavy-radio-mix)
 
-**Artist**: AIRELOOSH 
+**Artist**: LUKE WAVE 
 
-**Track**: Joshwa - Out Of My Mind (AIRELOOSH Remix)
+**Track**: WAVY
 
-Last updated at 3/15/2026, 5:52:41 PM
+Last updated at 3/15/2026, 5:55:42 PM
