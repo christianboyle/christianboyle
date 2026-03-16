@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AwVrvLVCBTccEMWP-z3N6IQ-t500x500.png">](https://soundcloud.com/krypttofficial/crastinate-guerillas-kryptt-1?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hFQWEAyB6RyflzTW-e42zvQ-t500x500.jpg">](https://soundcloud.com/ih8sev/revival?in=saxurn/sets/bossed-up)
 
-**Artist**: KRYPTT 
+**Artist**: 00sev, karson, kurse11 
 
-**Track**: CRASTINATE - GUERRILLAS (KRYPTT FLIP)
+**Track**: revival❤️‍🩹 (shuzei)
 
-Last updated at 3/16/2026, 2:53:14 PM
+Last updated at 3/16/2026, 2:55:59 PM
