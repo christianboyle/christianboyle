@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6DrvMiP9SXAw38A-NzAaJw-t500x500.jpg">](https://soundcloud.com/user-553907273-876400747/01-northern-linkz-2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5xxd6XkreOuEq9zk-N0y8WA-t500x500.png">](https://soundcloud.com/imzeropoint/winny-flip)
 
-**Artist**: marty b 
+**Artist**: zero point 
 
-**Track**: Makina Rush - DJ MartyB
+**Track**: Fred again.., Sammi Virji, Winny - Winny (zero point flip)
 
-Last updated at 3/15/2026, 6:12:18 PM
+Last updated at 3/15/2026, 7:10:50 PM
