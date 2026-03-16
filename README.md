@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o67YUS3sRwgHr1qy-qbLs8w-t500x500.jpg">](https://soundcloud.com/hellgnar/graveyard-fm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6TEO49nDW6N12SLq-lMTEEw-t500x500.png">](https://soundcloud.com/theviktorsen/nightmare)
 
-**Artist**: HELLGNAR 
+**Artist**: Viktor Sen 
 
-**Track**: BONES-GRAVEYARDFM (HELLGNAR FLIP) free DL
+**Track**: NIGHTMARE!
 
-Last updated at 3/15/2026, 8:29:52 PM
+Last updated at 3/15/2026, 8:33:37 PM
