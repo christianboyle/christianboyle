@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzNOTt50vJjdT3eG-icesFQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-neo-dj-morky-technical-1?in=saxurn/sets/crashn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Wgq9HlnIHqToyVOY-vXHpSw-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-audio-nitrate?in=saxurn/sets/crashn)
 
-**Artist**: DJ Neo & DJ Morky 
+**Artist**: Yannis G 
 
-**Track**: DJ Neo & DJ Morky - Technical Problem Club Mix
+**Track**: Yannis G & Audio Nitrate - Indestructible SAMPLE.mp3
 
-Last updated at 3/16/2026, 2:18:35 PM
+Last updated at 3/16/2026, 2:22:26 PM
