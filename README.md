@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Psgsybm0BxyCQrVW-x36lxg-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/not-my-problem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7SA2G7SAZLmXSGAD-cWNC5g-t500x500.png">](https://soundcloud.com/gangstahouserec/sun-shi-world-is-gone-1)
 
-**Artist**: Bounce Jackerz 
+**Artist**: SUN SHI 
 
-**Track**: Not my problem
+**Track**: SUN SHI - World Is Gone
 
-Last updated at 3/15/2026, 7:45:04 PM
+Last updated at 3/15/2026, 8:15:00 PM
