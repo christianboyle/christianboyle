@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/one-two-three)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JadV4qpnbzeilog2-FpCBZA-t500x500.png">](https://soundcloud.com/fellsofficial/modern-art-feat-struan)
 
-**Artist**: Smokestax 
+**Artist**: Fells 
 
-**Track**: One Two Three
+**Track**: Modern Art (feat. STRUAN)
 
-Last updated at 3/15/2026, 7:39:03 PM
+Last updated at 3/15/2026, 7:41:59 PM
