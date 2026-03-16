@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qJvKrbqPfV9lJwpi-8SWlDg-t500x500.png">](https://soundcloud.com/rennz/rennz-womps-on-the-beach-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vS2pN9988cSPQSVS-UbXZuQ-t500x500.png">](https://soundcloud.com/geckonl/blessingcurse)
 
-**Artist**: Rennz 
+**Artist**: Geck-o 
 
-**Track**: Rennz - Womps On The Beach **FREE DL**
+**Track**: Geck-o - The Blessing & The Curse
 
-Last updated at 3/15/2026, 7:13:21 PM
+Last updated at 3/15/2026, 7:15:01 PM
