@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JadV4qpnbzeilog2-FpCBZA-t500x500.png">](https://soundcloud.com/fellsofficial/modern-art-feat-struan?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E76eNbWWrA5jNUyC-1Fqz2g-t500x500.png">](https://soundcloud.com/digitalraveboy/acidrainbowangel?in=saxurn/sets/yestalgia)
 
-**Artist**: Fells 
+**Artist**: DIGITAL RAVE BOY 
 
-**Track**: Modern Art (feat. STRUAN)
+**Track**: acidrainbowangel
 
-Last updated at 3/16/2026, 3:24:42 PM
+Last updated at 3/16/2026, 6:11:25 PM
