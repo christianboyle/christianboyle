@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fDlE1E6EZPDosugn-QRtS5w-t500x500.jpg">](https://soundcloud.com/stratisbambam/the-red-pill-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E76eNbWWrA5jNUyC-1Fqz2g-t500x500.png">](https://soundcloud.com/digitalraveboy/acidrainbowangel?in=saxurn/sets/yestalgia)
 
-**Artist**: INF3RNUS 
+**Artist**: DIGITAL RAVE BOY 
 
-**Track**: The Red Pill v2
+**Track**: acidrainbowangel
 
-Last updated at 3/16/2026, 6:06:03 AM
+Last updated at 3/16/2026, 1:00:40 PM
