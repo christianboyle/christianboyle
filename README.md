@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yFTzCfZ7VKmZPnbc-IDOeHw-t500x500.jpg">](https://soundcloud.com/organikparis/axiver-x-neokhin-x-trypdo-no-drip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zReGm2wqRJlDzAgg-yU19wg-t500x500.png">](https://soundcloud.com/grandalliancemusic/digiit-cant-get-enough-grand-alliance-music-5)
 
-**Artist**: ORGANÏK 
+**Artist**: digiit 
 
-**Track**: AXIVER X NEØKHIN X TRYPDØ - NO DRIP
+**Track**: digiit - Can't Get Enough  (Grand Alliance Music)
 
-Last updated at 3/16/2026, 6:51:10 PM
+Last updated at 3/16/2026, 6:53:55 PM
