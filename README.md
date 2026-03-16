@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTXyN67bu9MyVAyR-TzXzdg-t500x500.png">](https://soundcloud.com/event-whalien/mosmosz-wanton-knock-knock?in=saxurn/sets/yestalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yFTzCfZ7VKmZPnbc-IDOeHw-t500x500.jpg">](https://soundcloud.com/organikparis/axiver-x-neokhin-x-trypdo-no-drip)
 
-**Artist**: Whalien 
+**Artist**: ORGANÏK 
 
-**Track**: Mosmoz & Wanton - Knock Knock [WHA105]
+**Track**: AXIVER X NEØKHIN X TRYPDØ - NO DRIP
 
-Last updated at 3/16/2026, 6:47:44 PM
+Last updated at 3/16/2026, 6:51:10 PM
