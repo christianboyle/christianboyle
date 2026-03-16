@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TuEeHNpsULRyAP97-E30x3w-t500x500.jpg">](https://soundcloud.com/skullvision/blu-deep-sleep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJPrMzkq7DzfZxhj-nTMYSw-t500x500.png">](https://soundcloud.com/kennasteven1980/klubb-efekt-sadini)
 
-**Artist**: Skull Vision 
+**Artist**: KLUBB EFEKT / SECTION 18 / RISKIT / LikWid 
 
-**Track**: Blu - Deep Sleep
+**Track**: Klubb Efekt - Sadini
 
-Last updated at 3/15/2026, 8:16:05 PM
+Last updated at 3/15/2026, 8:21:51 PM
