@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZDiOIt1HnuBclbM-eRcDRQ-t500x500.png">](https://soundcloud.com/lovebitess/myweakness?in=saxurn/sets/yestalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-td0BHswzOzS78TMv-YXnSLg-t500x500.jpg">](https://soundcloud.com/killmaj/myfault-feat-cld-prod-pk-x?in=saxurn/sets/yestalgia)
 
-**Artist**: lovebites 
+**Artist**: maj!, cld 
 
-**Track**: karson - my weakness [webm, lovebites, yashio, neohn]
+**Track**: myfault (feat. cld) (prod. pk x henryberg)
 
-Last updated at 3/16/2026, 6:23:56 PM
+Last updated at 3/16/2026, 6:25:47 PM
