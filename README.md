@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmy3Q97kpc9TxUry-C2QJhg-t500x500.png">](https://soundcloud.com/revivelabel/laxter-club-banger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZOordabvycye3Ovg-iVD8zQ-t500x500.png">](https://soundcloud.com/flooddubs/s3rl-bass)
 
-**Artist**: Laxter 
+**Artist**: Flood 
 
-**Track**: Club Banger
+**Track**: s3rl - bass slut (kim version)
 
-Last updated at 3/17/2026, 5:07:18 PM
+Last updated at 3/17/2026, 5:11:54 PM
