@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CemduzOUz3UyC9YO-09aUwg-t500x500.jpg">](https://soundcloud.com/user-226252211/cartiergod-can-icall-u-bayokay-based-freestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Dhtujqafp7JnTpf-iOe0xg-t500x500.png">](https://soundcloud.com/wearestudio/submarine-runna-premiere)
 
-**Artist**: user031843 
+**Artist**: STUDIO, SubMarine 
 
-**Track**: CartierGod- Can ICall U Bay...Okay #Based Freestyle
+**Track**: SubMarine - Runna [Premiere]
 
-Last updated at 3/16/2026, 7:06:57 PM
+Last updated at 3/16/2026, 7:30:54 PM
