@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yhLy3yNKo5SGzxhY-oC6xzA-t500x500.png">](https://soundcloud.com/itschorp/shells-lil-uzi-vert-chorp-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0GIeEsxvXA9XL7f-iilLoA-t500x500.jpg">](https://soundcloud.com/saint-arcis/bastille-pompeii-audien-vs)
 
-**Artist**: CHORP, 2KEV2KRAY 
+**Artist**: SAINT ARCIS 
 
-**Track**: SHELLS - LIL UZI VERT (CHORP X 2KEV2KRAY EDIT)
+**Track**: Bastille & Audien - Pompeii (SAINT ARCIS Remix)
 
-Last updated at 3/16/2026, 7:43:31 PM
+Last updated at 3/16/2026, 7:44:46 PM
