@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0GIeEsxvXA9XL7f-iilLoA-t500x500.jpg">](https://soundcloud.com/saint-arcis/bastille-pompeii-audien-vs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOezsaSG7n5UCJh1-dkspIg-t500x500.jpg">](https://soundcloud.com/usersokuu/attitude)
 
-**Artist**: SAINT ARCIS 
+**Artist**: sokuu 
 
-**Track**: Bastille & Audien - Pompeii (SAINT ARCIS Remix)
+**Track**: attitude ft crusafix prod nineslay
 
-Last updated at 3/16/2026, 7:44:46 PM
+Last updated at 3/16/2026, 7:45:51 PM
