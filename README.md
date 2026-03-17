@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YX3WzPCARORsyC3I-wDOkuw-t500x500.png">](https://soundcloud.com/sixfourdotwav/dorrough-wired-to-the-t)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YwiGHTaXAK5IFGd-WocHNg-t500x500.jpg">](https://soundcloud.com/twevercharles/tsuruda-uptonogood-tcbootleg)
 
-**Artist**: sixfour 
+**Artist**: Tsuruda, Trevor Charles 
 
-**Track**: dorrough - wired to the t (sixfour edit) [free dl]
+**Track**: Tsuruda - Up To No Good [Trevor Charles Bootleg]
 
-Last updated at 3/17/2026, 5:48:38 AM
+Last updated at 3/17/2026, 5:50:48 AM
