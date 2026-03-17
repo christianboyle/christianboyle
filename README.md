@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8YwiGHTaXAK5IFGd-WocHNg-t500x500.jpg">](https://soundcloud.com/twevercharles/tsuruda-uptonogood-tcbootleg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZOordabvycye3Ovg-iVD8zQ-t500x500.png">](https://soundcloud.com/flooddubs/s3rl-bass)
 
-**Artist**: Tsuruda, Trevor Charles 
+**Artist**: Flood 
 
-**Track**: Tsuruda - Up To No Good [Trevor Charles Bootleg]
+**Track**: s3rl - bass slut (kim version)
 
-Last updated at 3/17/2026, 5:50:48 AM
+Last updated at 3/17/2026, 5:52:43 AM
