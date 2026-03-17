@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naGQpFRjeFCJQjhN-6fxyCQ-t500x500.png">](https://soundcloud.com/da-bow/guata-guata-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OfgaO5UpbJaUP4oM-Ga7VsA-t500x500.png">](https://soundcloud.com/problemsolvedmusic/faint-remix)
 
-**Artist**: Dabow 
+**Artist**: problem solved 
 
-**Track**: GUATA GUATA FLIP
+**Track**: FAINT [REMIX]
 
-Last updated at 3/17/2026, 5:22:10 PM
+Last updated at 3/17/2026, 5:23:25 PM
