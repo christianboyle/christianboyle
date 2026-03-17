@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gzb9xDiPQEPAQSKZ-y9ktrw-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-radical-experience)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBKxS9y0sByRXmAk-wPWkOQ-t500x500.png">](https://soundcloud.com/drazius/infliction-w-strng-10)
 
-**Artist**: Jimmy Pé 
+**Artist**: Drazius 
 
-**Track**: Jimmy Pé - Radical Experience
+**Track**: Infliction (w/ STRNG)
 
-Last updated at 3/17/2026, 6:40:48 AM
+Last updated at 3/17/2026, 6:43:24 AM
