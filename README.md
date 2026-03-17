@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OfgaO5UpbJaUP4oM-Ga7VsA-t500x500.png">](https://soundcloud.com/problemsolvedmusic/faint-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a05mSghfQa9p-0-t500x500.png">](https://soundcloud.com/officialrico56/whatuwant)
 
-**Artist**: problem solved 
+**Artist**: Rico 56, Volume Unit 
 
-**Track**: FAINT [REMIX]
+**Track**: WHATUWANT
 
-Last updated at 3/17/2026, 6:00:47 PM
+Last updated at 3/17/2026, 6:03:47 PM
