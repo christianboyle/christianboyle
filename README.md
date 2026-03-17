@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueSo6yZcsog0mHm4-qzJ3MA-t500x500.png">](https://soundcloud.com/live-at-dreamland/dieonthedancefloorv1-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Svd47VvyZD2cy4m5-ocyscg-t500x500.png">](https://soundcloud.com/donnaysoldier/elphi-x-donnay-cherry-ice?in=saxurn/sets/bendy)
 
-**Artist**: ANOP 
+**Artist**: Donnay Soldier, Elphi 
 
-**Track**: 𝐼 𝓌𝒶𝓃𝓃𝒶 𝒹𝒾𝑒 𝑜𝓃 𝓉𝒽𝑒 𝒹𝒶𝓃𝒸𝑒𝒻𝓁𝑜𝑜𝓇
+**Track**: elphi x donnay soldier - cherry ice 🍒🧊 (free DL)
 
-Last updated at 3/17/2026, 6:06:28 PM
+Last updated at 3/17/2026, 6:12:10 PM
