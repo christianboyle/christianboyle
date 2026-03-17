@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zReGm2wqRJlDzAgg-yU19wg-t500x500.png">](https://soundcloud.com/grandalliancemusic/seraphyne-woofax-sunbreak-feat-deesaxx-grand-alliance-music-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FAVIvwT0kUYoz30E-fh1zRg-t500x500.jpg">](https://soundcloud.com/guguuguuuuu/billie-eilish-what-was-i-made)
 
-**Artist**: Seraphyne, Woofax 
+**Artist**: Chirenji 
 
-**Track**: Seraphyne & Woofax - Sunbreak feat. DeeSaxx (Grand Alliance Music)
+**Track**: Billie Eilish - What Was I Made For? (Chirenji Flip)
 
-Last updated at 3/17/2026, 6:34:18 AM
+Last updated at 3/17/2026, 6:35:38 AM
