@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YX3WzPCARORsyC3I-wDOkuw-t500x500.png">](https://soundcloud.com/sixfourdotwav/dorrough-wired-to-the-t)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-naGQpFRjeFCJQjhN-6fxyCQ-t500x500.png">](https://soundcloud.com/da-bow/guata-guata-flip)
 
-**Artist**: sixfour 
+**Artist**: Dabow 
 
-**Track**: dorrough - wired to the t (sixfour edit) [free dl]
+**Track**: GUATA GUATA FLIP
 
-Last updated at 3/17/2026, 10:07:20 AM
+Last updated at 3/17/2026, 10:09:50 AM
