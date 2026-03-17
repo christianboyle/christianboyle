@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4wCaCIUGsAMtYjPp-RPLTsw-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rqzTux159pfZPCK1-05Jmyg-t500x500.jpg">](https://soundcloud.com/djsketchsw/warp-bros-phatt-reverse-bass)
 
-**Artist**: Dj EZC 
+**Artist**: Sketch 
 
-**Track**: Hardcore Will Never Die Episode 550
+**Track**: Warp Bros - Phatt Reverse Bass (Riko, Monster & Sketch Edit) [Free Download]
 
-Last updated at 3/17/2026, 5:40:49 AM
+Last updated at 3/17/2026, 5:42:02 AM
