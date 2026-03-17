@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOezsaSG7n5UCJh1-dkspIg-t500x500.jpg">](https://soundcloud.com/usersokuu/attitude)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aZerB2Q54rJ4aLT7-UOGlfA-t500x500.jpg">](https://soundcloud.com/storm-musicc/storm-fire-to-the-roof-promo)
 
-**Artist**: sokuu 
+**Artist**: STORM 
 
-**Track**: attitude ft crusafix prod nineslay
+**Track**: Fire To The Roof
 
-Last updated at 3/16/2026, 7:45:51 PM
+Last updated at 3/16/2026, 7:46:51 PM
