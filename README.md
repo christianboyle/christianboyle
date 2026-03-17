@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a05mSghfQa9p-0-t500x500.png">](https://soundcloud.com/officialrico56/whatuwant)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ueSo6yZcsog0mHm4-qzJ3MA-t500x500.png">](https://soundcloud.com/live-at-dreamland/dieonthedancefloorv1-5)
 
-**Artist**: Rico 56, Volume Unit 
+**Artist**: ANOP 
 
-**Track**: WHATUWANT
+**Track**: 𝐼 𝓌𝒶𝓃𝓃𝒶 𝒹𝒾𝑒 𝑜𝓃 𝓉𝒽𝑒 𝒹𝒶𝓃𝒸𝑒𝒻𝓁𝑜𝑜𝓇
 
-Last updated at 3/17/2026, 10:14:01 AM
+Last updated at 3/17/2026, 10:16:41 AM
