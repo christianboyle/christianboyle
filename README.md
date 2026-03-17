@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zReGm2wqRJlDzAgg-yU19wg-t500x500.png">](https://soundcloud.com/grandalliancemusic/fovnd-reflection-grand-alliance-music-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9myUvQjsvSFryHD-cQvVtA-t500x500.png">](https://soundcloud.com/obluemusic/oblue-in-tha-whip-prod-m-stic)
 
-**Artist**: Fovnd 
+**Artist**: OBLUE 
 
-**Track**: Fovnd - Reflection (Grand Alliance Music)
+**Track**: OBLUE - IN THA WHIP (PROD. M?STIC & MANADA)
 
-Last updated at 3/17/2026, 5:53:43 AM
+Last updated at 3/17/2026, 5:54:43 AM
