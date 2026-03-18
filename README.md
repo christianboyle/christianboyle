@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GQNvzvoAmDddKH9-qOipQw-t500x500.png">](https://soundcloud.com/stucamusic/playboi-carti-evil-j0rdan-stuca-x-don-jamal-remix?in=saxurn/sets/yestalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bZDiOIt1HnuBclbM-eRcDRQ-t500x500.png">](https://soundcloud.com/lovebitess/myweakness?in=saxurn/sets/yestalgia)
 
-**Artist**: STUCA, Don Jamal 
+**Artist**: lovebites 
 
-**Track**: Playboi Carti - EVIL J0RDAN (Stuca X Don Jamal Remix)
+**Track**: karson - my weakness [webm, lovebites, yashio, neohn]
 
-Last updated at 3/18/2026, 7:59:47 AM
+Last updated at 3/18/2026, 5:18:07 PM
