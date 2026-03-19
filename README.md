@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOezsaSG7n5UCJh1-dkspIg-t500x500.jpg">](https://soundcloud.com/usersokuu/attitude?in=saxurn/sets/attractive-strangor/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWuFKinwGtHUfhSO-ozJAWg-t500x500.png">](https://soundcloud.com/sfamofficial/chief-keef-hate-bein-sober-1?in=saxurn/sets/attractive-strangor/)
 
-**Artist**: sokuu 
+**Artist**: sfam 
 
-**Track**: attitude ft crusafix prod nineslay
+**Track**: chief keef - hate bein' sober (sfam remix)
 
-Last updated at 3/19/2026, 6:56:46 PM
+Last updated at 3/19/2026, 6:58:47 PM
