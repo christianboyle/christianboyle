@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TuZRvp25DO33nKEf-3EiLog-t500x500.png">](https://soundcloud.com/dnzrecords/angel-garcia-dj-dj-oskar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000377374179-5zvt0y-t500x500.jpg">](https://soundcloud.com/discoh/chaka-khan-aint-nobody-the-discoh-edit)
 
-**Artist**: Angel Garcia DJ & DJ Oskar 
+**Artist**: discoh 
 
-**Track**: Angel Garcia DJ & DJ Oskar - Energy Of Light
+**Track**: Chaka Khan - Ain't Nobody (Laurent Wild & The Discoh Family Edit)
 
-Last updated at 3/19/2026, 7:40:51 AM
+Last updated at 3/19/2026, 7:44:51 AM
