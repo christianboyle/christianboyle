@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gdjz4JzR0mRoxN1y-4zI5Ug-t500x500.png">](https://soundcloud.com/gawmmusic/gawm-nonstop-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyHAT9SCT4FH0MqO-PYgceA-t500x500.png">](https://soundcloud.com/bassrush/super-future-dark-star)
 
-**Artist**: GAWM 
+**Artist**: Super Future 
 
-**Track**: GAWM - Nonstop
+**Track**: Super Future - Dark Star
 
-Last updated at 3/19/2026, 7:49:06 AM
+Last updated at 3/19/2026, 7:50:32 AM
