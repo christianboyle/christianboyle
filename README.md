@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmy3Q97kpc9TxUry-C2QJhg-t500x500.png">](https://soundcloud.com/revivelabel/laxter-club-banger)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOezsaSG7n5UCJh1-dkspIg-t500x500.jpg">](https://soundcloud.com/usersokuu/attitude?in=saxurn/sets/attractive-strang0r)
 
-**Artist**: Laxter 
+**Artist**: sokuu 
 
-**Track**: Club Banger
+**Track**: attitude ft crusafix prod nineslay
 
-Last updated at 3/19/2026, 8:48:50 PM
+Last updated at 3/19/2026, 8:52:51 PM
