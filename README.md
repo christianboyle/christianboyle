@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJtqqyD5KSHizLG6-rigZPQ-t500x500.png">](https://soundcloud.com/dedmandnb/pump-it-up?in=saxurn/sets/attractive-strangor/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWuFKinwGtHUfhSO-ozJAWg-t500x500.png">](https://soundcloud.com/sfamofficial/chief-keef-hate-bein-sober-1?in=saxurn/sets/attractive-strang0r/)
 
-**Artist**: Dedman 
+**Artist**: sfam 
 
-**Track**: Pump It  [FREE DL]
+**Track**: chief keef - hate bein' sober (sfam remix)
 
-Last updated at 3/19/2026, 7:50:04 PM
+Last updated at 3/19/2026, 7:54:35 PM
