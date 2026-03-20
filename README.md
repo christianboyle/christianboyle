@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w9JjnJcsE14z3u0e-F21XNA-t500x500.png">](https://soundcloud.com/revivelabel/cameras-ready)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FZ07CByjqUqLO2K2-CjZDOg-t500x500.png">](https://soundcloud.com/alex-sunbelt/selena-gomez-benny-blanco-bluest-flame-alex-sunbelt-remix?in=saxurn/sets/bossed-up)
 
-**Artist**: ROYAL, Coupsy 
+**Artist**: Alex Sunbelt 
 
-**Track**: Cameras Ready
+**Track**: Selena Gomez, Benny Blanco - Bluest Flame (Alex Sunbelt Remix)
 
-Last updated at 3/20/2026, 6:25:39 PM
+Last updated at 3/20/2026, 6:29:09 PM
