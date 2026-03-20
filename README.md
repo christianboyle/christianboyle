@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vfqOIz0oTIdDS5AW-C5V8jA-t500x500.jpg">](https://soundcloud.com/shlain170/your-name?in=saxurn/sets/attractive-strang0r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0GIeEsxvXA9XL7f-iilLoA-t500x500.jpg">](https://soundcloud.com/saint-arcis/bastille-pompeii-audien-vs?in=saxurn/sets/attractive-strang0r)
 
-**Artist**: shlain 
+**Artist**: SAINT ARCIS 
 
-**Track**: Your Name
+**Track**: Bastille & Audien - Pompeii (SAINT ARCIS Remix)
 
-Last updated at 3/20/2026, 6:10:08 PM
+Last updated at 3/20/2026, 6:12:23 PM
