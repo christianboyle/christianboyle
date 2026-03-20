@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1iDREzRpriU9kBWX-UBZa9Q-t500x500.jpg">](https://soundcloud.com/user_paperskies/levels-remix?in=saxurn/sets/attractive-strangor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OfgaO5UpbJaUP4oM-Ga7VsA-t500x500.png">](https://soundcloud.com/problemsolvedmusic/faint-remix)
 
-**Artist**: Avicii, Skrillex, Paper Skies 
+**Artist**: problem solved 
 
-**Track**: Avicii x Skrillex - Levels (Paper Skies Remix)
+**Track**: FAINT [REMIX]
 
-Last updated at 3/19/2026, 7:38:40 PM
+Last updated at 3/19/2026, 7:41:30 PM
