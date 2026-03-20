@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YX3WzPCARORsyC3I-wDOkuw-t500x500.png">](https://soundcloud.com/sixfourdotwav/dorrough-wired-to-the-t?in=saxurn/sets/attractive-strangor/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0GIeEsxvXA9XL7f-iilLoA-t500x500.jpg">](https://soundcloud.com/saint-arcis/bastille-pompeii-audien-vs?in=saxurn/sets/attractive-strangor)
 
-**Artist**: sixfour 
+**Artist**: SAINT ARCIS 
 
-**Track**: dorrough - wired to the t (sixfour edit) [free dl]
+**Track**: Bastille & Audien - Pompeii (SAINT ARCIS Remix)
 
-Last updated at 3/19/2026, 7:07:27 PM
+Last updated at 3/19/2026, 7:09:53 PM
