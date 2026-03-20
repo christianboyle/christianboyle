@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWuFKinwGtHUfhSO-ozJAWg-t500x500.png">](https://soundcloud.com/sfamofficial/chief-keef-hate-bein-sober-1?in=saxurn/sets/attractive-strang0r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o0GIeEsxvXA9XL7f-iilLoA-t500x500.jpg">](https://soundcloud.com/saint-arcis/bastille-pompeii-audien-vs?in=saxurn/sets/attractive-strang0r)
 
-**Artist**: sfam 
+**Artist**: SAINT ARCIS 
 
-**Track**: chief keef - hate bein' sober (sfam remix)
+**Track**: Bastille & Audien - Pompeii (SAINT ARCIS Remix)
 
-Last updated at 3/20/2026, 8:46:29 AM
+Last updated at 3/20/2026, 8:48:50 AM
