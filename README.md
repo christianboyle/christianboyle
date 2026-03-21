@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyHAT9SCT4FH0MqO-PYgceA-t500x500.png">](https://soundcloud.com/bassrush/super-future-dark-star?in=saxurn/sets/attractive-strang0r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nmy3Q97kpc9TxUry-C2QJhg-t500x500.png">](https://soundcloud.com/revivelabel/laxter-club-banger?in=saxurn/sets/attractive-strang0r)
 
-**Artist**: Super Future 
+**Artist**: Laxter 
 
-**Track**: Super Future - Dark Star
+**Track**: Club Banger
 
-Last updated at 3/21/2026, 1:34:22 PM
+Last updated at 3/21/2026, 1:37:38 PM
