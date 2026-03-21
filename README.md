@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M0yaAinafwxWkUCy-VAAPEA-t500x500.png">](https://soundcloud.com/dj-iyf/farmyard-rebelz-i-got-issues?in=saxurn/sets/unc-head)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOPmkz7SQmfEGo9K-EgBklA-t500x500.png">](https://soundcloud.com/deckheadzuk/bcxd-dancing-in-the-dark-dj)
 
-**Artist**: Farmyard Rebelz 
+**Artist**: DeckHead 
 
-**Track**: Farmyard Rebelz - I Got Issues ***FREE DOWNLOAD***
+**Track**: BCXD (Ben Critic X Deckhead) - Dancing In The Dark - DJ Edit
 
-Last updated at 3/20/2026, 9:25:47 PM
+Last updated at 3/20/2026, 9:30:07 PM
