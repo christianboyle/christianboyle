@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xFI72AxAWt7cvy1b-9JAfaA-t500x500.jpg">](https://soundcloud.com/samuel-moriero/malaa-alter-ego-samuel-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puKepM7lpyp5Stuk-1jBrAw-t500x500.png">](https://soundcloud.com/mojimusicxx/incoming-pressure-unchained)
 
-**Artist**: Samuel Moriero 
+**Artist**: 𝖒𝖔𝖏𝖎 
 
-**Track**: Malaa (Alter Ego), Samuel Moriero - F THE POLICE (Extended Mix) FREE DL
+**Track**: Incoming Pressure [Unchained]
 
-Last updated at 3/21/2026, 12:59:24 PM
+Last updated at 3/21/2026, 1:03:19 PM
