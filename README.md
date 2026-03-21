@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LTXyN67bu9MyVAyR-TzXzdg-t500x500.png">](https://soundcloud.com/event-whalien/mosmosz-wanton-knock-knock?in=saxurn/sets/yestalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Svd47VvyZD2cy4m5-ocyscg-t500x500.png">](https://soundcloud.com/donnaysoldier/elphi-x-donnay-cherry-ice?in=saxurn/sets/bendy)
 
-**Artist**: Whalien 
+**Artist**: Donnay Soldier, Elphi 
 
-**Track**: Mosmoz & Wanton - Knock Knock [WHA105]
+**Track**: elphi x donnay soldier - cherry ice 🍒🧊 (free DL)
 
-Last updated at 3/21/2026, 2:08:46 PM
+Last updated at 3/21/2026, 2:12:11 PM
