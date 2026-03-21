@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rt7rpBBdDlsElHlf-rWCzUQ-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/ryk-about-you-trixy-mash-up?in=saxurn/sets/yestalgia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5b8qEm2vfSeHUt4c-tpB6IA-t500x500.jpg">](https://soundcloud.com/imzeropoint/winny-flip?in=saxurn/sets/yestalgia)
 
-**Artist**: TRIXY 
+**Artist**: zero point 
 
-**Track**: RYK - About You (Trixy X Ryan Ganar Mash Up)
+**Track**: Fred again.., Sammi Virji, Winny - Winny (zero point flip)
 
-Last updated at 3/21/2026, 1:59:00 PM
+Last updated at 3/21/2026, 2:02:45 PM
