@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha?in=saxurn/sets/sorbularity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j3uKdVEz1qHgHFBi-DVeA2Q-t500x500.png">](https://soundcloud.com/dvdmtl/2-life-extended-mix?in=saxurn/sets/overflow)
 
-**Artist**: :Bx: 
+**Artist**: D V D, nabii 
 
-**Track**: Take My :Heart: Away (:Bx: Hard Edit) *FREE DOWNLOAD*
+**Track**: 2 Life (Extended Mix)
 
-Last updated at 3/20/2026, 6:37:25 PM
+Last updated at 3/20/2026, 8:10:26 PM
