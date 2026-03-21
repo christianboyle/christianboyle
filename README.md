@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azJK7erFlzAkCKD4-khlNPQ-t500x500.png">](https://soundcloud.com/monta-musica/breakdown-lxve-all-comes-back?in=saxurn/sets/attractive-strang0r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LOezsaSG7n5UCJh1-dkspIg-t500x500.jpg">](https://soundcloud.com/usersokuu/attitude?in=saxurn/sets/attractive-strang0r)
 
-**Artist**: Monta Musica 
+**Artist**: sokuu 
 
-**Track**: Breakdown & LXVE - All Comes Back To You
+**Track**: attitude ft crusafix prod nineslay
 
-Last updated at 3/21/2026, 1:10:55 PM
+Last updated at 3/21/2026, 1:14:05 PM
