@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvx5Kc0D5BxRhzbc-wN2WaA-t500x500.png">](https://soundcloud.com/graybx/tmha?in=saxurn/sets/sorbularity)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZbMsduNHzxgED1Sp-KCF4Ow-t500x500.png">](https://soundcloud.com/slothmuzik/walkin-on-the-sun-sloth-remix?in=saxurn/sets/sorbularity)
 
-**Artist**: :Bx: 
+**Artist**: SMASH MOUTH, SLOTH 
 
-**Track**: Take My :Heart: Away (:Bx: Hard Edit) *FREE DOWNLOAD*
+**Track**: SMASH MOUTH - WALKIN ON THE SUN (SLOTH REMIX)
 
-Last updated at 3/21/2026, 4:31:58 PM
+Last updated at 3/21/2026, 4:36:08 PM
