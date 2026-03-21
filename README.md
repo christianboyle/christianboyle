@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TaC0jPP9hmzI1Qcd-uciTsw-t500x500.png">](https://soundcloud.com/stunnapossecult/baby-icey-stunna-posse-cult)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LnTN7yDxpHJqkvdo-1eZpEQ-t500x500.png">](https://soundcloud.com/tribe-rec/tom-carroll-wicked-with-you)
 
-**Artist**: STUNNA POSSE 
+**Artist**: Tom Carroll 
 
-**Track**: BABY ICEY STUNNA POSSE CULT MIX
+**Track**: Tom Carroll - Wicked With You (Extended Mix)
 
-Last updated at 3/21/2026, 1:07:55 PM
+Last updated at 3/21/2026, 1:09:20 PM
