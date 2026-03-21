@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q9OUCyvtLIdZzLso-2vbsvA-t500x500.png">](https://soundcloud.com/hardsokmusic/breakstuff?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iuHmjhhBIhCOD9FW-uWC4KQ-t500x500.png">](https://soundcloud.com/itsgallium/ri-wavey-sad-face-gallium-x?in=saxurn/sets/sorbularity)
 
-**Artist**: Hardsok 
+**Artist**: Gallium, Buzz Junior 
 
-**Track**: Limp Bizkit - Break Stuff (Hardsok Remix)
+**Track**: RI WAVEY - SAD FACE (Gallium x Buzz Junior Flip)
 
-Last updated at 3/21/2026, 4:18:52 PM
+Last updated at 3/21/2026, 4:23:52 PM
