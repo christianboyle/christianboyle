@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-57f5plyXzgUytT0G-w5uFvA-t500x500.jpg">](https://soundcloud.com/cruseyyyy/threwit?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZqlxgeX2yzfHvP7t-PQRWGw-t500x500.png">](https://soundcloud.com/iamhvrcrft/hvrcrft-on-the-floor?in=saxurn/sets/bossed-up)
 
-**Artist**: crusey 
+**Artist**: Holy Space Bass Tour 
 
-**Track**: threw it away ft. akkiro (wish, advxrse)
+**Track**: HVRCRFT - On The Floor
 
-Last updated at 3/21/2026, 3:37:06 PM
+Last updated at 3/21/2026, 3:39:16 PM
