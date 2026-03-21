@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yGKlazKzDQTuVzWw-IMzo4Q-t500x500.png">](https://soundcloud.com/fatkidonfire/wraz-mikrodot-dosed-artkl084-fkof-premiere?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5VVbFgSUJ4SVd0u-jeXHSw-t500x500.png">](https://soundcloud.com/jumpin_jack/club-thumpers-recr8ed007-cindy-still-got-balls?in=saxurn/sets/fr-tho)
 
-**Artist**: Wraz & Mikrodot 
+**Artist**: Club Thumpers 
 
-**Track**: Wraz & Mikrodot - Dosed (ARTKL084) [FKOF Premiere]
+**Track**: Club Thumpers - RECR8ED007 (Cindy Still Got Balls)
 
-Last updated at 3/21/2026, 8:06:30 AM
+Last updated at 3/21/2026, 8:11:11 AM
