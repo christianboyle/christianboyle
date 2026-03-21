@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2M4AbyakzEn68As-ojytIw-t500x500.jpg">](https://soundcloud.com/dj-rundell-mashups/rundell-cold-as-ice-wav?in=saxurn/sets/attractive-strang0r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KJtqqyD5KSHizLG6-rigZPQ-t500x500.png">](https://soundcloud.com/dedmandnb/pump-it-up?in=saxurn/sets/attractive-strang0r)
 
-**Artist**: Rundell 
+**Artist**: Dedman 
 
-**Track**: Rundell- Cold As Ice
+**Track**: Pump It  [FREE DL]
 
-Last updated at 3/21/2026, 1:16:10 PM
+Last updated at 3/21/2026, 1:19:11 PM
