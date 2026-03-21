@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KaUDdF3xo2wGhUpu-Y9IgBg-t500x500.png">](https://soundcloud.com/nct-1/dont-stop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puKepM7lpyp5Stuk-1jBrAw-t500x500.png">](https://soundcloud.com/mojimusicxx/incoming-pressure-unchained)
 
-**Artist**: NCT 
+**Artist**: 𝖒𝖔𝖏𝖎 
 
-**Track**: Don't Stop
+**Track**: Incoming Pressure [Unchained]
 
-Last updated at 3/21/2026, 12:53:38 PM
+Last updated at 3/21/2026, 12:56:58 PM
