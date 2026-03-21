@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-puKepM7lpyp5Stuk-1jBrAw-t500x500.png">](https://soundcloud.com/mojimusicxx/incoming-pressure-unchained)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TaC0jPP9hmzI1Qcd-uciTsw-t500x500.png">](https://soundcloud.com/stunnapossecult/baby-icey-stunna-posse-cult)
 
-**Artist**: 𝖒𝖔𝖏𝖎 
+**Artist**: STUNNA POSSE 
 
-**Track**: Incoming Pressure [Unchained]
+**Track**: BABY ICEY STUNNA POSSE CULT MIX
 
-Last updated at 3/21/2026, 1:03:19 PM
+Last updated at 3/21/2026, 1:07:55 PM
