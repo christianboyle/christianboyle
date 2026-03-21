@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ILMMdyNhrz5pcOFz-u5kewQ-t500x500.png">](https://soundcloud.com/igotoptns/optstation)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Q1TO9WWs8X31WMs-dNFcfg-t500x500.png">](https://soundcloud.com/getterofficial/stab-up-feat-shakewell)
 
-**Artist**: OPTNS 
+**Artist**: GETTER 
 
-**Track**: OPTstation
+**Track**: STAB UP feat. Shakewell
 
-Last updated at 3/21/2026, 11:34:30 AM
+Last updated at 3/21/2026, 11:35:30 AM
