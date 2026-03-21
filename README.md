@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c38cryFIg9h8TDyI-w7ymLA-t500x500.jpg">](https://soundcloud.com/ozztinmusic/dead-prez-hip-hop-ozztin-pastnoon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IAAK21mI0QQ7K7pC-ADmG8Q-t500x500.jpg">](https://soundcloud.com/t-amsterdam-dance-capital/trias-kinetica-the-edge-of-1)
 
-**Artist**: OZZTIN,  past noon 
+**Artist**: AMSTERDAM DANCE CAPITAL 
 
-**Track**: DEAD PREZ - HIP HOP (OZZTIN X PAST NOON FLIP)
+**Track**: Trias Kinetica - The Edge Of Heaven (Rework) [ADCxFREE]
 
-Last updated at 3/21/2026, 11:44:26 AM
+Last updated at 3/21/2026, 11:47:52 AM
