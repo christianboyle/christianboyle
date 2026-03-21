@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxuJbHhH2WsUvzhW-aWXG6g-t500x500.png">](https://soundcloud.com/dewzixmusic/all-i-need-is-bass-dewzix-remix?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ILMMdyNhrz5pcOFz-u5kewQ-t500x500.png">](https://soundcloud.com/igotoptns/optstation)
 
-**Artist**: DEWZIX 
+**Artist**: OPTNS 
 
-**Track**: PEEKABOO - All I Need Is Bass (DEWZIX Remix)
+**Track**: OPTstation
 
-Last updated at 3/21/2026, 9:53:04 AM
+Last updated at 3/21/2026, 11:34:30 AM
