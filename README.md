@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YwQi26W6Snl9NHnX-RT98dA-t500x500.png">](https://soundcloud.com/smokestaxmusic/one-two-three?in=saxurn/sets/roomy)
 
-**Artist**: Marlon Hoffstadt 
+**Artist**: Smokestax 
 
-**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
+**Track**: One Two Three
 
-Last updated at 3/21/2026, 3:45:47 PM
+Last updated at 3/21/2026, 3:51:23 PM
