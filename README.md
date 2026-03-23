@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FGPO0zXAhByJLzP-fz2EUQ-t500x500.jpg">](https://soundcloud.com/scumwubz/scum-wubz-attack-on-riddim-vip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRCxr0oPt6EBFkRI-BJBw7g-t500x500.jpg">](https://soundcloud.com/deepinparis/cooperate)
 
-**Artist**: Scum Wubz 
+**Artist**: deepinparis 
 
-**Track**: Scum Wubz - Attack On Riddim VIP
+**Track**: cooperate prod zjay
 
-Last updated at 3/23/2026, 6:02:10 AM
+Last updated at 3/23/2026, 6:05:50 AM
