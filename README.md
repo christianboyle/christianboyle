@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fRCxr0oPt6EBFkRI-BJBw7g-t500x500.jpg">](https://soundcloud.com/deepinparis/cooperate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y9EADOdn1utPXV8Y-AqxZJQ-t500x500.jpg">](https://soundcloud.com/drewyates/getlost-yates)
 
-**Artist**: deepinparis 
+**Artist**: YATES! 
 
-**Track**: cooperate prod zjay
+**Track**: getlost.
 
-Last updated at 3/23/2026, 6:05:50 AM
+Last updated at 3/23/2026, 6:07:35 AM
