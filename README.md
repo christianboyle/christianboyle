@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000191677004-1gf97b-t500x500.jpg">](https://soundcloud.com/djandymac-bounce/more-more-andy-mac-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000191677004-1gf97b-t500x500.jpg">](https://soundcloud.com/djandymac-bounce/vacancy-andy-mac-remix-mp3)
 
 **Artist**: Andy Mac 
 
-**Track**: More & More  (Andy Mac Remix)
+**Track**: Vacancy - Andy Mac Remix.mp3
 
-Last updated at 3/23/2026, 6:09:30 AM
+Last updated at 3/23/2026, 7:22:01 AM
