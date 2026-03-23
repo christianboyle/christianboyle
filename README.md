@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taOgNsfPIcHAdwMp-ZLZUAg-t500x500.jpg">](https://soundcloud.com/weirdgenius_music/silhouette-kana-boon-weird-genius-remix-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m98wdcp5UfATDkM8-HHSnWA-t500x500.jpg">](https://soundcloud.com/phrva/hi-bich)
 
-**Artist**: Weird Genius 
+**Artist**: Phrva 
 
-**Track**: SILHOUETTE - KANA BOON (WEIRD GENIUS REMIX / BOOTLEG) [FREE DOWNLOAD]
+**Track**: bhad bhabie - hi bich (phrva flip)
 
-Last updated at 3/23/2026, 5:56:34 AM
+Last updated at 3/23/2026, 5:58:04 AM
