@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2M4AbyakzEn68As-ojytIw-t500x500.jpg">](https://soundcloud.com/dj-rundell-mashups/rundell-cold-as-ice-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6CW7frzLvYntNs7J-BJEbEA-t500x500.jpg">](https://soundcloud.com/rokschoonmusic/original-don-rokschoon-remix)
 
-**Artist**: Rundell 
+**Artist**: Rokschoon 
 
-**Track**: Rundell- Cold As Ice
+**Track**: Original Don - Rokschoon Remix (unofficial)
 
-Last updated at 3/23/2026, 5:52:24 AM
+Last updated at 3/23/2026, 5:53:49 AM
