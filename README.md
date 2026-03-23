@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gIgODeDGRCY65Wjn-n10S6Q-t500x500.png">](https://soundcloud.com/groundscoredubz/u-so-stingy-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpH7uLMVVBDM7pSh-lYaVqg-t500x500.jpg">](https://soundcloud.com/artifakts/fukumean-flip)
 
-**Artist**: Ground Score 
+**Artist**: Artifakts 
 
-**Track**: STINGY
+**Track**: FUKUMEAN FLIP
 
-Last updated at 3/23/2026, 5:59:04 AM
+Last updated at 3/23/2026, 6:00:24 AM
