@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpH7uLMVVBDM7pSh-lYaVqg-t500x500.jpg">](https://soundcloud.com/artifakts/fukumean-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8FGPO0zXAhByJLzP-fz2EUQ-t500x500.jpg">](https://soundcloud.com/scumwubz/scum-wubz-attack-on-riddim-vip)
 
-**Artist**: Artifakts 
+**Artist**: Scum Wubz 
 
-**Track**: FUKUMEAN FLIP
+**Track**: Scum Wubz - Attack On Riddim VIP
 
-Last updated at 3/23/2026, 6:00:24 AM
+Last updated at 3/23/2026, 6:02:10 AM
