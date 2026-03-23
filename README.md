@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pfy3LccKixUI0W5I-oyHSeg-t500x500.png">](https://soundcloud.com/lucatestamusic/caliente)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taOgNsfPIcHAdwMp-ZLZUAg-t500x500.jpg">](https://soundcloud.com/weirdgenius_music/silhouette-kana-boon-weird-genius-remix-bootleg-free-download)
 
-**Artist**: Luca Testa, Jay Santos, Double, Giorgio Dala 
+**Artist**: Weird Genius 
 
-**Track**: Caliente
+**Track**: SILHOUETTE - KANA BOON (WEIRD GENIUS REMIX / BOOTLEG) [FREE DOWNLOAD]
 
-Last updated at 3/23/2026, 5:55:29 AM
+Last updated at 3/23/2026, 5:56:34 AM
