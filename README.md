@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Faalnst0OyfNuudi-ODCOOQ-t500x500.jpg">](https://soundcloud.com/vorso/business-as-usual)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-rOorTLaWkXl5ZHmg-CgPOWA-t500x500.jpg">](https://soundcloud.com/toy_box/swinggg)
 
-**Artist**: Vorso 
+**Artist**: Toy Box 
 
-**Track**: Vorso — Business As Usual
+**Track**: swinggg
 
-Last updated at 3/24/2026, 6:11:45 AM
+Last updated at 3/24/2026, 6:14:21 AM
