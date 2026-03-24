@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-000191677004-1gf97b-t500x500.jpg">](https://soundcloud.com/djandymac-bounce/vacancy-andy-mac-remix-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DWuFKinwGtHUfhSO-ozJAWg-t500x500.png">](https://soundcloud.com/sfamofficial/chief-keef-hate-bein-sober-1)
 
-**Artist**: Andy Mac 
+**Artist**: sfam 
 
-**Track**: Vacancy - Andy Mac Remix.mp3
+**Track**: chief keef - hate bein' sober (sfam remix)
 
-Last updated at 3/23/2026, 7:22:01 AM
+Last updated at 3/24/2026, 6:08:40 AM
