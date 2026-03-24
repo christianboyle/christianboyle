@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dAOSo68bgoPr-0-t500x500.jpg">](https://soundcloud.com/popthatrunk/mach-punch-feat-depths)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Faalnst0OyfNuudi-ODCOOQ-t500x500.jpg">](https://soundcloud.com/vorso/business-as-usual)
 
-**Artist**: POP THA TRUNK, Depths 
+**Artist**: Vorso 
 
-**Track**: MACH PUNCH (feat. Depths)
+**Track**: Vorso — Business As Usual
 
-Last updated at 3/24/2026, 6:10:40 AM
+Last updated at 3/24/2026, 6:11:45 AM
