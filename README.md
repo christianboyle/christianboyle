@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-rOorTLaWkXl5ZHmg-CgPOWA-t500x500.jpg">](https://soundcloud.com/toy_box/swinggg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4i1uNrGWFFNUdhGV-fBiuBQ-t500x500.png">](https://soundcloud.com/jordnmoody/moodswingsflip)
 
-**Artist**: Toy Box 
+**Artist**: jordnmoody, ASHEZ 
 
-**Track**: swinggg
+**Track**: moodswingsflip_ (w/ ASHEZ)
 
-Last updated at 3/24/2026, 6:14:21 AM
+Last updated at 3/24/2026, 6:17:21 AM
