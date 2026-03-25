@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4i1uNrGWFFNUdhGV-fBiuBQ-t500x500.png">](https://soundcloud.com/jordnmoody/moodswingsflip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taOgNsfPIcHAdwMp-ZLZUAg-t500x500.jpg">](https://soundcloud.com/weirdgenius_music/silhouette-kana-boon-weird-genius-remix-bootleg-free-download)
 
-**Artist**: jordnmoody, ASHEZ 
+**Artist**: Weird Genius 
 
-**Track**: moodswingsflip_ (w/ ASHEZ)
+**Track**: SILHOUETTE - KANA BOON (WEIRD GENIUS REMIX / BOOTLEG) [FREE DOWNLOAD]
 
-Last updated at 3/24/2026, 6:17:21 AM
+Last updated at 3/25/2026, 6:18:13 AM
