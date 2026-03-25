@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taOgNsfPIcHAdwMp-ZLZUAg-t500x500.jpg">](https://soundcloud.com/weirdgenius_music/silhouette-kana-boon-weird-genius-remix-bootleg-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Io3rasX7heF2J8Gs-5hEECw-t500x500.png">](https://soundcloud.com/scottfarrimond/scott-f-a-state-of-bounce-8)
 
-**Artist**: Weird Genius 
+**Artist**: Scott F 
 
-**Track**: SILHOUETTE - KANA BOON (WEIRD GENIUS REMIX / BOOTLEG) [FREE DOWNLOAD]
+**Track**: Scott F A State Of Bounce March 2026
 
-Last updated at 3/25/2026, 6:18:13 AM
+Last updated at 3/25/2026, 5:10:43 PM
