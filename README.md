@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QkYlwUy33yaaXL0S-MZ89jQ-t500x500.png">](https://soundcloud.com/dj-nau/dj-nau-biloba-makina-legends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iGpyxlzGe9SuzIdU-G8oryQ-t500x500.png">](https://soundcloud.com/canaryyellowmusic/playboi-carti-olympian-canary-yellow-edit?in=saxurn/sets/rrrrip)
 
-**Artist**: DJ NAU 
+**Artist**: canary yellow 
 
-**Track**: Dj Nau @ Biloba (Makina Legends 12H) Marzo 2026
+**Track**: Playboi Carti - OLYMPIAN (canary yellow Edit)
 
-Last updated at 3/27/2026, 6:44:50 AM
+Last updated at 3/27/2026, 5:39:00 PM
