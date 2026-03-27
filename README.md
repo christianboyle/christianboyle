@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taOgNsfPIcHAdwMp-ZLZUAg-t500x500.jpg">](https://soundcloud.com/weirdgenius_music/silhouette-kana-boon-weird-genius-remix-bootleg-free-download?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6l7YvQypKzj5WQ0-OzzC7g-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/premiere-dj-pacifier-cure-for?in=saxurn/sets/rrrrip)
 
-**Artist**: Weird Genius 
+**Artist**: nightcore4totalsluts 
 
-**Track**: SILHOUETTE - KANA BOON (WEIRD GENIUS REMIX / BOOTLEG) [FREE DOWNLOAD]
+**Track**: PREMIERE: DJ Pacifier - Cure for Hiccups
 
-Last updated at 3/27/2026, 5:59:41 PM
+Last updated at 3/27/2026, 6:02:01 PM
