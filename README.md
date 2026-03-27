@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZL6AnYj5bQLEzkQt-hCGE0Q-t500x500.png">](https://soundcloud.com/misterkushboy/like-im-jason?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpH7uLMVVBDM7pSh-lYaVqg-t500x500.jpg">](https://soundcloud.com/artifakts/fukumean-flip?in=saxurn/sets/rrrrip)
 
-**Artist**: Mr. KushBoy 
+**Artist**: Artifakts 
 
-**Track**: Like Im Jason w/ C4pri & 1Crusafix (Prod Me)
+**Track**: FUKUMEAN FLIP
 
-Last updated at 3/27/2026, 5:51:35 PM
+Last updated at 3/27/2026, 5:54:15 PM
