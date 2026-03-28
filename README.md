@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zlwFTRd9NNy1kbZO-Z9C88A-t500x500.jpg">](https://soundcloud.com/detention-sfv/dylan-haman-brill-teokad)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOQVEYJmBFFfUjd7-sBSPzQ-t500x500.png">](https://soundcloud.com/dj-sharpy-mixes/vol-3-2026)
 
-**Artist**: DETENTION NETLABEL 
+**Artist**: DJ SHARPY™️ 
 
-**Track**: BRILL - Throw It Back
+**Track**: Vol 3 - 2026
 
-Last updated at 3/28/2026, 7:41:23 AM
+Last updated at 3/28/2026, 7:42:23 AM
