@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UOQVEYJmBFFfUjd7-sBSPzQ-t500x500.png">](https://soundcloud.com/dj-sharpy-mixes/vol-3-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSak401tgjkg019O-uWLTJA-t500x500.jpg">](https://soundcloud.com/bn-613145377/music-is-the-answer)
 
-**Artist**: DJ SHARPY™️ 
+**Artist**: BN💥 
 
-**Track**: Vol 3 - 2026
+**Track**: Music is the answer
 
-Last updated at 3/28/2026, 7:42:23 AM
+Last updated at 3/28/2026, 7:43:34 AM
