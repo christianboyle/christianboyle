@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQo6tz9xvRxEV47E-RJuEcg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-bubble-gun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KHyWgrOoLBXyqxLV-6TkOAA-t500x500.jpg">](https://soundcloud.com/flomatik/hippie-sabotage-whiskey)
 
-**Artist**: Jimmy Pé 
+**Artist**: Flomatik 
 
-**Track**: Jimmy Pé - Bubble Gun
+**Track**: Hippie Sabotage - Whiskey (Flomatik Flip)
 
-Last updated at 3/27/2026, 9:03:46 PM
+Last updated at 3/27/2026, 9:05:07 PM
