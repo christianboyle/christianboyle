@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ejjwsyOC2x3q8X39-C1Ghew-t500x500.png">](https://soundcloud.com/mindsplitter/the-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SkPvQaEZjBvu2r0B-m9MvAg-t500x500.png">](https://soundcloud.com/blaow_official/blaow-bombsquad-vol-ii-all-original-mix)
 
-**Artist**: Mind Splitter 
+**Artist**: BLAOW! 
 
-**Track**: The One
+**Track**: BLAOW! - BOMBSQUAD VOL II (all original mix)
 
-Last updated at 3/28/2026, 3:10:30 PM
+Last updated at 3/28/2026, 3:13:36 PM
