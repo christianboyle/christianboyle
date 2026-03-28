@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KHyWgrOoLBXyqxLV-6TkOAA-t500x500.jpg">](https://soundcloud.com/flomatik/hippie-sabotage-whiskey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jw2KlxZxRRIPJr9O-qt86kQ-t500x500.png">](https://soundcloud.com/caddywompusmgmt/caddywompus-since-6ix-flip)
 
-**Artist**: Flomatik 
+**Artist**: CaddyWompus 
 
-**Track**: Hippie Sabotage - Whiskey (Flomatik Flip)
+**Track**: CADDYWOMPUS - SINCE 6IX FLIP [FREE DL]
 
-Last updated at 3/27/2026, 9:05:07 PM
+Last updated at 3/27/2026, 9:06:06 PM
