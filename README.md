@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e88Ypov1E1nf-0-t500x500.jpg">](https://soundcloud.com/billented-music/when-youre-out-feat-mae-muller)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dfPxg0LBhwnsIBEz-kOHgeg-t500x500.jpg">](https://soundcloud.com/7akkiro/nights?in_system_playlist=personalized-tracks%3A%3Asaxurn%3A2288685278)
 
-**Artist**: Billen Ted 
+**Artist**: akkiro 
 
-**Track**: When You're Out (feat. Mae Muller)
+**Track**: nights (sokuu)
 
-Last updated at 3/28/2026, 5:13:46 PM
+Last updated at 3/28/2026, 5:16:36 PM
