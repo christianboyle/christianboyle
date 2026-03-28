@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-taOgNsfPIcHAdwMp-ZLZUAg-t500x500.jpg">](https://soundcloud.com/weirdgenius_music/silhouette-kana-boon-weird-genius-remix-bootleg-free-download?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KT4H0yOkQA83d5Ms-3LctTA-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-axel-bla-bla-f)
 
-**Artist**: Weird Genius 
+**Artist**: DJ Pleasure 
 
-**Track**: SILHOUETTE - KANA BOON (WEIRD GENIUS REMIX / BOOTLEG) [FREE DOWNLOAD]
+**Track**: DJ Pleasure - Axel Bla Bla F [Sample] (1).mp3
 
-Last updated at 3/28/2026, 2:58:49 PM
+Last updated at 3/28/2026, 3:00:39 PM
