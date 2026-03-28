@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3fmuw3hayCQCgmIf-KmTWug-t500x500.png">](https://soundcloud.com/itsgallium/gallium-x-augment-magic-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YOOgmih3bdPfc9Bw-2xHscQ-t500x500.jpg">](https://soundcloud.com/astroeric/turn_it_up)
 
-**Artist**: Gallium, Augment 
+**Artist**: Astro Eric 
 
-**Track**: Gallium x Augment - Magic Trick
+**Track**: Turn It Up
 
-Last updated at 3/28/2026, 3:04:45 PM
+Last updated at 3/28/2026, 3:06:10 PM
