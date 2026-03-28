@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AlPnfeNUFjN7-0-t500x500.png">](https://soundcloud.com/official_flo/when-i-grow-up-late-night-edit?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQfHVg5rcczdKaGk-9UwggA-t500x500.png">](https://soundcloud.com/noqvltmusic/john-summit-shadows-feat?in=saxurn/sets/rrrrip)
 
-**Artist**: Flo Rida 
+**Artist**: NO QVLT 
 
-**Track**: When I Grow Up (Late Night Mix)
+**Track**: John Summit - SHADOWS (feat. LAVINIA) [NO QVLT Remix]
 
-Last updated at 3/28/2026, 2:44:01 PM
+Last updated at 3/28/2026, 2:46:06 PM
