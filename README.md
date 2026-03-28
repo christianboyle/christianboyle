@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tvil7aiMaTxZHQ7z-qUUMGA-t500x500.jpg">](https://soundcloud.com/xsourcex-code-103847723/all-that-weve-been-through)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zinzn0zfXC9SJ3ww-sCtO1Q-t500x500.png">](https://soundcloud.com/satoshijpn/plainjaneremix)
 
-**Artist**: 🧙‍♂️XSOURCEX-CODE🪬👁Productions👁🎧 
+**Artist**: SATOSHI 
 
-**Track**: All that we've been through
+**Track**: A$AP Ferg - Plain Jane (SATOSHI Remix)
 
-Last updated at 3/28/2026, 5:52:50 PM
+Last updated at 3/28/2026, 5:53:55 PM
