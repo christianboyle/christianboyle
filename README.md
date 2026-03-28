@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3YqTCpoWrmunSOAl-nUroMQ-t500x500.jpg">](https://soundcloud.com/zurglin/weezer-say-it-aint-zlutty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uJzvPeyjkCuTiyac-WrHTEg-t500x500.png">](https://soundcloud.com/nightowlcollective/herzeloyde-landed)
 
-**Artist**: ZURGLIN 
+**Artist**: herzeloyde 
 
-**Track**: Weezer - Say It Aint So [ZURGLIN Flip]
+**Track**: herzeloyde - landed
 
-Last updated at 3/28/2026, 3:08:05 PM
+Last updated at 3/28/2026, 3:09:30 PM
