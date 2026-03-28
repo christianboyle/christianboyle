@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KT4H0yOkQA83d5Ms-3LctTA-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-axel-bla-bla-f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lhzNB8bF1hNG8DRb-L6TScA-t500x500.png">](https://soundcloud.com/itsyokomusic/inscape-3)
 
-**Artist**: DJ Pleasure 
+**Artist**: Yoko 
 
-**Track**: DJ Pleasure - Axel Bla Bla F [Sample] (1).mp3
+**Track**: Inscape
 
-Last updated at 3/28/2026, 3:00:39 PM
+Last updated at 3/28/2026, 3:02:00 PM
