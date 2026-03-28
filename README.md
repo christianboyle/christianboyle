@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e0fqSP40HXeV-0-t500x500.jpg">](https://soundcloud.com/bounceandbass/landslide-feat-m-i-m-e?in=saxurn/sets/attractive-strang0r)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qQo6tz9xvRxEV47E-RJuEcg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-bubble-gun)
 
-**Artist**: Wolverave, M.I.M.E 
+**Artist**: Jimmy Pé 
 
-**Track**: LANDSLIDE
+**Track**: Jimmy Pé - Bubble Gun
 
-Last updated at 3/27/2026, 6:29:38 PM
+Last updated at 3/27/2026, 9:03:46 PM
