@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSak401tgjkg019O-uWLTJA-t500x500.jpg">](https://soundcloud.com/bn-613145377/music-is-the-answer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8tVACGn47tuB-0-t500x500.jpg">](https://soundcloud.com/bobatl/both-of-us-ft-taylor-swift)
 
-**Artist**: BN💥 
+**Artist**: B.o.B 
 
-**Track**: Music is the answer
+**Track**: Both of Us (feat. Taylor Swift)
 
-Last updated at 3/28/2026, 7:43:34 AM
+Last updated at 3/28/2026, 7:47:11 AM
