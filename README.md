@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yIC5aGExo2NkWfs8-RX3mOg-t500x500.jpg">](https://soundcloud.com/1crusafix/bored)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jhuaai5kuWTTtmh3-80Nbuw-t500x500.png">](https://soundcloud.com/mickjay67/mickjay-disconnected)
 
-**Artist**: crusafix 
+**Artist**: MickJay 
 
-**Track**: bored (sokuu)
+**Track**: MickJay - Disconnected
 
-Last updated at 3/28/2026, 3:17:56 PM
+Last updated at 3/28/2026, 3:19:11 PM
