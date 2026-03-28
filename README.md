@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8tVACGn47tuB-0-t500x500.jpg">](https://soundcloud.com/bobatl/both-of-us-ft-taylor-swift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GdI7AzWdlmosXt9-nLjs7Q-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-you-were)
 
-**Artist**: B.o.B 
+**Artist**: TNT, Darren Styles 
 
-**Track**: Both of Us (feat. Taylor Swift)
+**Track**: TNT & Darren Styles  - You Were Never Mine
 
-Last updated at 3/28/2026, 7:47:11 AM
+Last updated at 3/28/2026, 10:33:14 AM
