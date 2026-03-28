@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YOOgmih3bdPfc9Bw-2xHscQ-t500x500.jpg">](https://soundcloud.com/astroeric/turn_it_up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3YqTCpoWrmunSOAl-nUroMQ-t500x500.jpg">](https://soundcloud.com/zurglin/weezer-say-it-aint-zlutty)
 
-**Artist**: Astro Eric 
+**Artist**: ZURGLIN 
 
-**Track**: Turn It Up
+**Track**: Weezer - Say It Aint So [ZURGLIN Flip]
 
-Last updated at 3/28/2026, 3:06:10 PM
+Last updated at 3/28/2026, 3:08:05 PM
