@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pmBWjNliRzOyJJL-27Am6A-t500x500.png">](https://soundcloud.com/lowshade/veil-of-mantis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OckDrNAV7tHV2ATg-XLMwxQ-t500x500.jpg">](https://soundcloud.com/asaubeats/issa-vibe)
 
-**Artist**: Lowshade 
+**Artist**: asáu 
 
-**Track**: Veil of Mantis
+**Track**: issa vibe
 
-Last updated at 3/29/2026, 9:02:17 AM
+Last updated at 3/29/2026, 9:14:18 AM
