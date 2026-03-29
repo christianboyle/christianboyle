@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jja3sy90d1mQ1NaY-ZOdSDA-t500x500.png">](https://soundcloud.com/jackhammersiesta/believe-in-the-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6YNNiww6vXUfYV9R-jG9cgg-t500x500.png">](https://soundcloud.com/travelermusic/traveler-walking-on-a-cloud)
 
-**Artist**: Jackhammer Siesta 
+**Artist**: TRAVELER 
 
-**Track**: Believe In The Music
+**Track**: TRAVELER - Walking on a Cloud (Original Mix)
 
-Last updated at 3/29/2026, 8:59:22 AM
+Last updated at 3/29/2026, 9:00:57 AM
