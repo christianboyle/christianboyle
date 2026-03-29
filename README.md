@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXk8bJfQ5xtTta29-65Ntjg-t500x500.png">](https://soundcloud.com/mark-smith-carnage/audioboyz-production-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNVPFzy9ZiLTaTaz-9NlyWw-t500x500.png">](https://soundcloud.com/djdougster-gibson/breaking-the-stigma)
 
-**Artist**: Mark Smith (DJ Carnage) 
+**Artist**: djdougster gibson 
 
-**Track**: Audioboyz Production mix
+**Track**: BREAKING THE STIGMA
 
-Last updated at 3/29/2026, 9:57:44 AM
+Last updated at 3/29/2026, 9:58:44 AM
