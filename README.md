@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GNVPFzy9ZiLTaTaz-9NlyWw-t500x500.png">](https://soundcloud.com/djdougster-gibson/breaking-the-stigma)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tDTUfG95OxVyNS7S-wJfeLg-t500x500.jpg">](https://soundcloud.com/ash-davis-1/1-2-3-someday-1)
 
-**Artist**: djdougster gibson 
+**Artist**: Ash Davis 
 
-**Track**: BREAKING THE STIGMA
+**Track**: 1..2..3...Someday
 
-Last updated at 3/29/2026, 9:58:44 AM
+Last updated at 3/29/2026, 10:02:14 AM
