@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hfpY2MCiIv7aKnyT-FIyT4g-t500x500.png">](https://soundcloud.com/divasi/no-comment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyME2r83Ij5t5xpO-yfWM8A-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got)
 
-**Artist**: Divasi 
+**Artist**: DRIFT 
 
-**Track**: Divasi, G-Spott - No Comment
+**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
 
-Last updated at 3/29/2026, 10:04:34 AM
+Last updated at 3/29/2026, 10:05:34 AM
