@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OckDrNAV7tHV2ATg-XLMwxQ-t500x500.jpg">](https://soundcloud.com/asaubeats/issa-vibe)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QXk8bJfQ5xtTta29-65Ntjg-t500x500.png">](https://soundcloud.com/mark-smith-carnage/audioboyz-production-mix)
 
-**Artist**: asáu 
+**Artist**: Mark Smith (DJ Carnage) 
 
-**Track**: issa vibe
+**Track**: Audioboyz Production mix
 
-Last updated at 3/29/2026, 9:14:18 AM
+Last updated at 3/29/2026, 9:57:44 AM
