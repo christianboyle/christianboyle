@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6YNNiww6vXUfYV9R-jG9cgg-t500x500.png">](https://soundcloud.com/travelermusic/traveler-walking-on-a-cloud)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1pmBWjNliRzOyJJL-27Am6A-t500x500.png">](https://soundcloud.com/lowshade/veil-of-mantis)
 
-**Artist**: TRAVELER 
+**Artist**: Lowshade 
 
-**Track**: TRAVELER - Walking on a Cloud (Original Mix)
+**Track**: Veil of Mantis
 
-Last updated at 3/29/2026, 9:00:57 AM
+Last updated at 3/29/2026, 9:02:17 AM
