@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5FkmyshJ0xLbRES-4DD5Zw-t500x500.png">](https://soundcloud.com/kimatimusic/merkules-humble-kimati-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jja3sy90d1mQ1NaY-ZOdSDA-t500x500.png">](https://soundcloud.com/jackhammersiesta/believe-in-the-music)
 
-**Artist**: Kimati 
+**Artist**: Jackhammer Siesta 
 
-**Track**: Merkules - Humble (Kimati Flip)
+**Track**: Believe In The Music
 
-Last updated at 3/29/2026, 8:58:22 AM
+Last updated at 3/29/2026, 8:59:22 AM
