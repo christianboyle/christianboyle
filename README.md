@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tDTUfG95OxVyNS7S-wJfeLg-t500x500.jpg">](https://soundcloud.com/ash-davis-1/1-2-3-someday-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hfpY2MCiIv7aKnyT-FIyT4g-t500x500.png">](https://soundcloud.com/divasi/no-comment)
 
-**Artist**: Ash Davis 
+**Artist**: Divasi 
 
-**Track**: 1..2..3...Someday
+**Track**: Divasi, G-Spott - No Comment
 
-Last updated at 3/29/2026, 10:02:14 AM
+Last updated at 3/29/2026, 10:04:34 AM
