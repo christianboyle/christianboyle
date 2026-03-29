@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kyME2r83Ij5t5xpO-yfWM8A-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2yTlzXbxGu4AObw-5DHZBw-t500x500.png">](https://soundcloud.com/nullrecuk/dj-lozza-magic-n-e-d-records)
 
-**Artist**: DRIFT 
+**Artist**: NullRec 
 
-**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
+**Track**: DJ Lozza - Magic (N.E.D. Records Edit)
 
-Last updated at 3/29/2026, 10:05:34 AM
+Last updated at 3/29/2026, 10:09:55 AM
