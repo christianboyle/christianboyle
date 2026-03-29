@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyD18to6QwkrwmOj-ErFS1Q-t500x500.png">](https://soundcloud.com/7serene/ssomehow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fZImX40b7u2sJkz6-uXygCg-t500x500.jpg">](https://soundcloud.com/fifthdensity/puddle-of-mud-blurry-1)
 
-**Artist**: 7serene 
+**Artist**: FifthDensity 
 
-**Track**: ssomehow @emotionals #7★forever
+**Track**: Puddle Of Mud - Blurry - (FifthDensity Flip)
 
-Last updated at 3/29/2026, 10:24:26 AM
+Last updated at 3/29/2026, 10:26:26 AM
