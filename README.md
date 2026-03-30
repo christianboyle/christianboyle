@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E3ux0s0oRGUEojkJ-u1bzPA-t500x500.png">](https://soundcloud.com/2spademusic/ray-ray-make-it-wet-2spade-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lckazo8fgKJ9PyRn-bXyEbg-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/noes-wait4u)
 
-**Artist**: 2Spade 
+**Artist**: NOES 
 
-**Track**: Ray Ray - Make it wet (2Spade remix) Pirate ver
+**Track**: QGR-046S1 | NOES - WAIT4U
 
-Last updated at 3/30/2026, 6:15:48 AM
+Last updated at 3/30/2026, 6:32:36 AM
