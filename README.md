@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lckazo8fgKJ9PyRn-bXyEbg-t500x500.jpg">](https://soundcloud.com/qualitygoodsrecs/noes-wait4u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J1F3ntg8tnEi9H9K-wPmNOA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-7circle-framework)
 
-**Artist**: NOES 
+**Artist**: HATE, 7CIRCLE 
 
-**Track**: QGR-046S1 | NOES - WAIT4U
+**Track**: Premiere: 7CIRCLE — Framework [US002]
 
-Last updated at 3/30/2026, 6:32:36 AM
+Last updated at 3/30/2026, 6:34:51 AM
