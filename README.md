@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m98wdcp5UfATDkM8-HHSnWA-t500x500.jpg">](https://soundcloud.com/phrva/hi-bich?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GdI7AzWdlmosXt9-nLjs7Q-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-you-were?in=saxurn/sets/rrrrip)
 
-**Artist**: Phrva 
+**Artist**: TNT, Darren Styles 
 
-**Track**: bhad bhabie - hi bich (phrva flip)
+**Track**: TNT & Darren Styles  - You Were Never Mine
 
-Last updated at 3/31/2026, 8:30:32 AM
+Last updated at 3/31/2026, 8:31:37 AM
