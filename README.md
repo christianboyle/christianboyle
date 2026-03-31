@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pWPo9M2nHaQGoUJX-u1VcWQ-t500x500.png">](https://soundcloud.com/beatlabradio/smokestax-exclusive-mix-beat-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5FkmyshJ0xLbRES-4DD5Zw-t500x500.png">](https://soundcloud.com/kimatimusic/merkules-humble-kimati-flip-1)
 
-**Artist**: Beat Lab Radio 
+**Artist**: Kimati 
 
-**Track**: Smokestax - Exclusive Mix - Beat Lab Radio 549
+**Track**: Merkules - Humble (Kimati Flip)
 
-Last updated at 3/31/2026, 7:29:12 AM
+Last updated at 3/31/2026, 7:31:42 AM
