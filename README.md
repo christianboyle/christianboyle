@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7aTU9VwyFZNv0Esd-Pq6WPg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-josvi-to-france)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypAPcRFgpfGf0Opa-cRzPhQ-t500x500.jpg">](https://soundcloud.com/johnmonkman/john-monkman-live-at-rainbow)
 
-**Artist**: DJ Josvi 
+**Artist**: John Monkman 
 
-**Track**: DJ Josvi - To France
+**Track**: Rainbow Spirit 2026
 
-Last updated at 3/31/2026, 7:03:10 AM
+Last updated at 3/31/2026, 7:04:30 AM
