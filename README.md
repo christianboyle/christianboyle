@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ypAPcRFgpfGf0Opa-cRzPhQ-t500x500.jpg">](https://soundcloud.com/johnmonkman/john-monkman-live-at-rainbow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DMYLrarQScyhCRwu-J6p4mQ-t500x500.png">](https://soundcloud.com/chrismazehouse/bananas)
 
-**Artist**: John Monkman 
+**Artist**: Chris Maze, JUST WALT 
 
-**Track**: Rainbow Spirit 2026
+**Track**: BANANAS
 
-Last updated at 3/31/2026, 7:04:30 AM
+Last updated at 3/31/2026, 7:07:15 AM
