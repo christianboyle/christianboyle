@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7N8SXv7n0fU5iGG-vnbQjw-t500x500.png">](https://soundcloud.com/shortcvke_bass/research-test)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0x87zS5JB03X1RWy-pBPGQQ-t500x500.jpg">](https://soundcloud.com/shakethefoundation/inspiredmysticalmoments)
 
-**Artist**: shortcvke 
+**Artist**: Shakes 
 
-**Track**: Research Test
+**Track**: Inspired Mystical Moments
 
-Last updated at 3/31/2026, 7:35:07 AM
+Last updated at 3/31/2026, 7:38:08 AM
