@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wnr2E6VSSWr15lYP-acz6zg-t500x500.png">](https://soundcloud.com/jojo_wubz/jojo-listen-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KOIk36OXPkRAfb96-NqdUww-t500x500.png">](https://soundcloud.com/highvibrationaudio/dubsteplogic)
 
-**Artist**: JOJO 
+**Artist**: Mikrodot 
 
-**Track**: JOJO - LISTEN UP
+**Track**: Mikrodot - Dubsteplogic
 
-Last updated at 3/31/2026, 5:52:16 PM
+Last updated at 3/31/2026, 5:57:47 PM
