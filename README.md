@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z5FkmyshJ0xLbRES-4DD5Zw-t500x500.png">](https://soundcloud.com/kimatimusic/merkules-humble-kimati-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7N8SXv7n0fU5iGG-vnbQjw-t500x500.png">](https://soundcloud.com/shortcvke_bass/research-test)
 
-**Artist**: Kimati 
+**Artist**: shortcvke 
 
-**Track**: Merkules - Humble (Kimati Flip)
+**Track**: Research Test
 
-Last updated at 3/31/2026, 7:31:42 AM
+Last updated at 3/31/2026, 7:35:07 AM
