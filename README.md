@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-son-of-a-preacher)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7aTU9VwyFZNv0Esd-Pq6WPg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-josvi-to-france)
 
-**Artist**: JGS, INTENT 
+**Artist**: DJ Josvi 
 
-**Track**: JGS & INTENT - Son Of A Preacher Man (Sample)
+**Track**: DJ Josvi - To France
 
-Last updated at 3/31/2026, 7:02:09 AM
+Last updated at 3/31/2026, 7:03:10 AM
