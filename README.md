@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xQcDyCVsk6vthGab-H0u9qQ-t500x500.png">](https://soundcloud.com/skankandbass/l-major-tamen-melt)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mQfHVg5rcczdKaGk-9UwggA-t500x500.png">](https://soundcloud.com/noqvltmusic/john-summit-shadows-feat)
 
-**Artist**: Skankandbass 
+**Artist**: NO QVLT 
 
-**Track**: L Major & Tamen - Melt
+**Track**: John Summit - SHADOWS (feat. LAVINIA) [NO QVLT Remix]
 
-Last updated at 3/30/2026, 7:29:00 AM
+Last updated at 3/31/2026, 5:29:49 AM
