@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq7dH2dWXE16Pyce-3so9sQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBKxS9y0sByRXmAk-wPWkOQ-t500x500.png">](https://soundcloud.com/drazius/chirp-9)
 
-**Artist**: DRIFT 
+**Artist**: Drazius 
 
-**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
+**Track**: CHIRP
 
-Last updated at 3/31/2026, 5:40:06 PM
+Last updated at 3/31/2026, 5:46:41 PM
