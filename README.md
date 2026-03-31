@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GdI7AzWdlmosXt9-nLjs7Q-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-you-were?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq7dH2dWXE16Pyce-3so9sQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got?in=saxurn/sets/1a1/)
 
-**Artist**: TNT, Darren Styles 
+**Artist**: DRIFT 
 
-**Track**: TNT & Darren Styles  - You Were Never Mine
+**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
 
-Last updated at 3/31/2026, 8:31:37 AM
+Last updated at 3/31/2026, 5:40:06 PM
