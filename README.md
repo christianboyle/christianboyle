@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpH7uLMVVBDM7pSh-lYaVqg-t500x500.jpg">](https://soundcloud.com/artifakts/fukumean-flip?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m98wdcp5UfATDkM8-HHSnWA-t500x500.jpg">](https://soundcloud.com/phrva/hi-bich?in=saxurn/sets/rrrrip)
 
-**Artist**: Artifakts 
+**Artist**: Phrva 
 
-**Track**: FUKUMEAN FLIP
+**Track**: bhad bhabie - hi bich (phrva flip)
 
-Last updated at 3/31/2026, 8:11:40 AM
+Last updated at 3/31/2026, 8:30:32 AM
