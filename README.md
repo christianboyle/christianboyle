@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2yTlzXbxGu4AObw-5DHZBw-t500x500.png">](https://soundcloud.com/nullrecuk/dj-lozza-magic-n-e-d-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdtAzpt06qzMFLoD-OEhQng-t500x500.png">](https://soundcloud.com/flawx/open-your-eyes)
 
-**Artist**: NullRec 
+**Artist**: FLAWX, IXAKT, DIYU 
 
-**Track**: DJ Lozza - Magic (N.E.D. Records Edit)
+**Track**: OPEN YOUR EYES [FREE DL]
 
-Last updated at 4/1/2026, 5:51:15 PM
+Last updated at 4/1/2026, 5:55:55 PM
