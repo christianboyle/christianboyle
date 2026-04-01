@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tvil7aiMaTxZHQ7z-qUUMGA-t500x500.jpg">](https://soundcloud.com/xsourcex-code-103847723/all-that-weve-been-through)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JyD18to6QwkrwmOj-ErFS1Q-t500x500.png">](https://soundcloud.com/7serene/ssomehow)
 
-**Artist**: 🧙‍♂️XSOURCEX-CODE🪬👁Productions👁🎧 
+**Artist**: 7serene 
 
-**Track**: All that we've been through
+**Track**: ssomehow @emotionals #7★forever
 
-Last updated at 4/1/2026, 6:02:06 PM
+Last updated at 4/1/2026, 6:05:46 PM
