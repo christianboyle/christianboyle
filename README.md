@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uEReZaJmuCaixpNE-jx5vTQ-t500x500.png">](https://soundcloud.com/resonantlanguage/exenterate-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBKxS9y0sByRXmAk-wPWkOQ-t500x500.png">](https://soundcloud.com/drazius/chirp-9)
 
-**Artist**: Resonant Language 
+**Artist**: Drazius 
 
-**Track**: Exenterate
+**Track**: CHIRP
 
-Last updated at 4/1/2026, 6:57:05 AM
+Last updated at 4/1/2026, 7:03:01 AM
