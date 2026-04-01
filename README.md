@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdtAzpt06qzMFLoD-OEhQng-t500x500.png">](https://soundcloud.com/flawx/open-your-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zinzn0zfXC9SJ3ww-sCtO1Q-t500x500.png">](https://soundcloud.com/satoshijpn/plainjaneremix)
 
-**Artist**: FLAWX, IXAKT, DIYU 
+**Artist**: SATOSHI 
 
-**Track**: OPEN YOUR EYES [FREE DL]
+**Track**: A$AP Ferg - Plain Jane (SATOSHI Remix)
 
-Last updated at 4/1/2026, 5:55:55 PM
+Last updated at 4/1/2026, 5:59:36 PM
