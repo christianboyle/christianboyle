@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ll3VVzkH6bkUdwem-qNwmZQ-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/break-it-down)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uEReZaJmuCaixpNE-jx5vTQ-t500x500.png">](https://soundcloud.com/resonantlanguage/exenterate-1)
 
-**Artist**: Smokestax 
+**Artist**: Resonant Language 
 
-**Track**: Break It Down
+**Track**: Exenterate
 
-Last updated at 4/1/2026, 6:37:34 PM
+Last updated at 4/1/2026, 6:40:34 PM
