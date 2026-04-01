@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dIjBzY0fHFNi20Q-fcAP4Q-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-geck-o-ill-behaviour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BBKxS9y0sByRXmAk-wPWkOQ-t500x500.png">](https://soundcloud.com/drazius/chirp-9)
 
-**Artist**: Rave Alert 
+**Artist**: Drazius 
 
-**Track**: Geck-o - Ill Behaviour
+**Track**: CHIRP
 
-Last updated at 4/1/2026, 5:32:13 PM
+Last updated at 4/1/2026, 5:39:24 PM
