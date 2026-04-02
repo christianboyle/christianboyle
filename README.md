@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dIjBzY0fHFNi20Q-fcAP4Q-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-geck-o-ill-behaviour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r2M4AbyakzEn68As-ojytIw-t500x500.jpg">](https://soundcloud.com/dj-rundell-mashups/rundell-cold-as-ice-wav)
 
-**Artist**: Rave Alert 
+**Artist**: Rundell 
 
-**Track**: Geck-o - Ill Behaviour
+**Track**: Rundell- Cold As Ice
 
-Last updated at 4/1/2026, 6:42:45 PM
+Last updated at 4/2/2026, 6:08:39 AM
