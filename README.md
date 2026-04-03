@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2yTlzXbxGu4AObw-5DHZBw-t500x500.png">](https://soundcloud.com/nullrecuk/dj-lozza-magic-n-e-d-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PNOLmAytOizzX3gd-lnPKWw-t500x500.png">](https://soundcloud.com/klubfillermusic/ravelife-radio-013-klubfiller)
 
-**Artist**: NullRec 
+**Artist**: Klubfiller, 2 Sick Puppiez 
 
-**Track**: DJ Lozza - Magic (N.E.D. Records Edit)
+**Track**: Ravelife Radio 013 - Klubfiller and 2 Sick Puppiez Guest Mix
 
-Last updated at 4/2/2026, 6:31:26 PM
+Last updated at 4/2/2026, 8:52:35 PM
