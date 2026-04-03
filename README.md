@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kSpKjP80b5FD-0-t500x500.png">](https://soundcloud.com/jaydunhamtv/up-til-noon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BhrHiJzQtQ5Q6AW5-cuOhRw-t500x500.png">](https://soundcloud.com/beat-intelligence-network/poni-drag-me-under)
 
-**Artist**: Jay Dunham 
+**Artist**: Poni 
 
-**Track**: UP 'TIL NOON
+**Track**: Poni - Drag Me Under
 
-Last updated at 4/3/2026, 6:49:21 AM
+Last updated at 4/3/2026, 6:51:52 AM
