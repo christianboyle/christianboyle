@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6zvXIwuBcUG5i8i-BKAcOQ-t500x500.png">](https://soundcloud.com/capshun/shiftfreq-animals-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kSpKjP80b5FD-0-t500x500.png">](https://soundcloud.com/jaydunhamtv/up-til-noon)
 
-**Artist**:  shiftFREQ, capshun, pryzms, 
+**Artist**: Jay Dunham 
 
-**Track**: shiftFREQ - ANIMALS REMIX
+**Track**: UP 'TIL NOON
 
-Last updated at 4/3/2026, 6:46:01 AM
+Last updated at 4/3/2026, 6:49:21 AM
