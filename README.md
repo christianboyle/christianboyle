@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J3UNgbLCzFYwAznV-0QYzyA-t500x500.png">](https://soundcloud.com/dj-breakdown_1/ryk-ft-lxve-walk-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6zvXIwuBcUG5i8i-BKAcOQ-t500x500.png">](https://soundcloud.com/capshun/shiftfreq-animals-remix)
 
-**Artist**: Dj Breakdown#1, LXVE 
+**Artist**:  shiftFREQ, capshun, pryzms, 
 
-**Track**: RYK FT LXVE - Walk Away (Breakdown's Fast Mix)
+**Track**: shiftFREQ - ANIMALS REMIX
 
-Last updated at 4/3/2026, 6:43:51 AM
+Last updated at 4/3/2026, 6:46:01 AM
