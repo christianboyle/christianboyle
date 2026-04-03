@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kLIZLREzjIdpyCNe-zIF8fQ-t500x500.jpg">](https://soundcloud.com/marc69-1/01-is-it-ok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRD9JYX3E8vCyqaz-HZ103Q-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-atlantis-remix)
 
-**Artist**: Marc.K.B 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: APRIL BOUNCE MIX
+**Track**: 2 Sick Puppiez - Atlantis Remix - free download
 
-Last updated at 4/3/2026, 8:02:17 AM
+Last updated at 4/3/2026, 5:04:17 PM
