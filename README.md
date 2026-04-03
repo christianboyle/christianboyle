@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BhrHiJzQtQ5Q6AW5-cuOhRw-t500x500.png">](https://soundcloud.com/beat-intelligence-network/poni-drag-me-under)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPJqzBN8NMUmM25I-zrzXlg-t500x500.jpg">](https://soundcloud.com/darn84/dj-des-100-vinyl-twista)
 
-**Artist**: Poni 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: Poni - Drag Me Under
+**Track**: DJ Des - 100% Vinyl Twista Classics - Hardcore Hooligan Guest Mix
 
-Last updated at 4/3/2026, 6:51:52 AM
+Last updated at 4/3/2026, 6:55:37 AM
