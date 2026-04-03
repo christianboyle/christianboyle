@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dsNzvZNhkTq0aIdl-6pvaZw-t500x500.png">](https://soundcloud.com/speed89music/speed89-in-rock)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kLIZLREzjIdpyCNe-zIF8fQ-t500x500.jpg">](https://soundcloud.com/marc69-1/01-is-it-ok)
 
-**Artist**: Speed89 
+**Artist**: Marc.K.B 
 
-**Track**: Speed89 - In Rock
+**Track**: APRIL BOUNCE MIX
 
-Last updated at 4/3/2026, 7:39:11 AM
+Last updated at 4/3/2026, 7:41:51 AM
