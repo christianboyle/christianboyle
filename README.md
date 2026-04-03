@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-44xXyNGIXiFPr2yN-8B6mGg-t500x500.jpg">](https://soundcloud.com/tape-294872147/lobsta-b-x-dj-bax-sensational)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/trust-2)
 
-**Artist**: Lobsta B, DJ Bax 
+**Artist**: Destrata 
 
-**Track**: Lobsta B x DJ Bax - Sensational
+**Track**: Trust
 
-Last updated at 4/3/2026, 7:06:03 AM
+Last updated at 4/3/2026, 7:07:33 AM
