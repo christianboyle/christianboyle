@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-If8N64Uo7MoZ5jKh-yoMjpg-t500x500.png">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-boomtown-2025-gabber-kebabber-mk2-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/drumette-2)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: Destrata 
 
-**Track**: 2 Sick Puppiez @ Boomtown 2025 (Gabber Kebabber) MK2
+**Track**: Drumette
 
-Last updated at 4/3/2026, 5:08:12 PM
+Last updated at 4/3/2026, 6:04:27 PM
