@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uEReZaJmuCaixpNE-jx5vTQ-t500x500.png">](https://soundcloud.com/resonantlanguage/exenterate-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9dIjBzY0fHFNi20Q-fcAP4Q-t500x500.jpg">](https://soundcloud.com/rave_alert/premiere-geck-o-ill-behaviour)
 
-**Artist**: Resonant Language 
+**Artist**: Rave Alert 
 
-**Track**: Exenterate
+**Track**: Geck-o - Ill Behaviour
 
-Last updated at 4/3/2026, 6:15:13 PM
+Last updated at 4/3/2026, 6:17:19 PM
