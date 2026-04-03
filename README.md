@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8c31Jy9iFD6YqCHh-3t7VgA-t500x500.png">](https://soundcloud.com/gingerninja2022/corruption-bounce-dgn-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dsNzvZNhkTq0aIdl-6pvaZw-t500x500.png">](https://soundcloud.com/speed89music/speed89-in-rock)
 
-**Artist**: Dj DGN (joe johnstone) 
+**Artist**: Speed89 
 
-**Track**: Corruption Bounce DGN Set
+**Track**: Speed89 - In Rock
 
-Last updated at 4/3/2026, 7:08:33 AM
+Last updated at 4/3/2026, 7:39:11 AM
