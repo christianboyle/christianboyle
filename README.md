@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RsnYbVlKyyljg8z1-k0PjJg-t500x500.jpg">](https://soundcloud.com/twocrowscollective/sickish-room305-two-crows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/drumette-2)
 
-**Artist**: Two Crows Collective 
+**Artist**: Destrata 
 
-**Track**: SICKISH - ROOM305
+**Track**: Drumette
 
-Last updated at 4/3/2026, 7:49:38 PM
+Last updated at 4/3/2026, 7:52:13 PM
