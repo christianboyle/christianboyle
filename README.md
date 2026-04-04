@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gwHojuRxhC6zfQIJ-4BlZzQ-t500x500.png">](https://soundcloud.com/saint-baek/to-u-saint-miller-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wnr2E6VSSWr15lYP-acz6zg-t500x500.png">](https://soundcloud.com/jojo_wubz/jojo-listen-up)
 
-**Artist**: SAINT MILLER 
+**Artist**: JOJO 
 
-**Track**: To ü,, saint miller flip
+**Track**: JOJO - LISTEN UP
 
-Last updated at 4/4/2026, 8:10:12 AM
+Last updated at 4/4/2026, 8:12:57 AM
