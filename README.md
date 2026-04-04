@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gzCOjwrkwlqNaVCa-GwTKOQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/dale-f-another-life-coming?in=revolution-records-uk/sets/out-10th-april-on-revolution)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zxtd82eIAQ6FVNjz-oDbdCg-t500x500.png">](https://soundcloud.com/hevynfire/superstar-hevynfire-rosey-out?in=revolution-records-uk/sets/out-10th-april-on-revolution)
 
-**Artist**: Revolution-Records UK 
+**Artist**: HEVYNFIRE 
 
-**Track**: DALE F - ANOTHER LIFE - COMING SOON
+**Track**: SUPERSTAR - HEVYNFIRE & ROSEY (OUT SOON) SAMPLE
 
-Last updated at 4/4/2026, 4:13:54 PM
+Last updated at 4/4/2026, 4:16:04 PM
