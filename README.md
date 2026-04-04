@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uAz6iQD6jIQRqVg2-7xNGkA-t500x500.png">](https://soundcloud.com/technowereld/premiere-rotor-militia-echo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMz31tW5Om14WzVZ-oS5Vhg-t500x500.jpg">](https://soundcloud.com/darn84/ramos-impact-records-the-best)
 
-**Artist**: Techno Wereld, Rotor Militia 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: Premiere: Rotor Militia - Echo [DRLP03]
+**Track**: Ramos @ Impact Records - The Best Of Hardcore Heaven (1995)
 
-Last updated at 4/4/2026, 4:27:51 PM
+Last updated at 4/4/2026, 4:34:26 PM
