@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xW42I9WRXkqTN6KQ-QUEedQ-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/ode-to-twisted-and-brainfire)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ucEWC9AytupiAZIO-4vBXng-t500x500.jpg">](https://soundcloud.com/hendy2017/hendy-darcie-my-little-ray-of)
 
-**Artist**: Dj Des 
+**Artist**: DJ Hendy 
 
-**Track**: Ode to Twisted and Brainfire
+**Track**: Hendy - Darcie My Little ray of Sunshine
 
-Last updated at 4/4/2026, 1:12:07 PM
+Last updated at 4/4/2026, 3:08:36 PM
