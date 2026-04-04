@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMz31tW5Om14WzVZ-oS5Vhg-t500x500.jpg">](https://soundcloud.com/darn84/ramos-impact-records-the-best)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq7dH2dWXE16Pyce-3so9sQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got?in=saxurn/sets/1a1/)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: DRIFT 
 
-**Track**: Ramos @ Impact Records - The Best Of Hardcore Heaven (1995)
+**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
 
-Last updated at 4/4/2026, 4:34:26 PM
+Last updated at 4/4/2026, 5:02:44 PM
