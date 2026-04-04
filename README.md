@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIG9BFpGwWCRvUF-uDbwrQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/djb19-true-love-never-dies?in=revolution-records-uk/sets/out-10th-april-on-revolution)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tY5yebZsRV1FzPif-ihhhzQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/marc-b-without-you?in=revolution-records-uk/sets/out-10th-april-on-revolution)
 
 **Artist**: Revolution-Records UK 
 
-**Track**: DJB19 - TRUE LOVE NEVER DIES
+**Track**: Marc B - Without You
 
-Last updated at 4/4/2026, 3:55:47 PM
+Last updated at 4/4/2026, 3:58:47 PM
