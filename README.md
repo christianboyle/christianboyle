@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RsnYbVlKyyljg8z1-k0PjJg-t500x500.jpg">](https://soundcloud.com/twocrowscollective/sickish-room305-two-crows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GyeZ3tfEz5nzNVqq-kUleKA-t500x500.png">](https://soundcloud.com/hershemusic/big-bank)
 
-**Artist**: Two Crows Collective 
+**Artist**: HerShe 
 
-**Track**: SICKISH - ROOM305
+**Track**: BIG BANK
 
-Last updated at 4/3/2026, 8:07:05 PM
+Last updated at 4/4/2026, 6:57:35 AM
