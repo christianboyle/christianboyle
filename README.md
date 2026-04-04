@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2yTlzXbxGu4AObw-5DHZBw-t500x500.png">](https://soundcloud.com/nullrecuk/dj-lozza-magic-n-e-d-records?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7y5Y8FQ2ICvSw3t8-RymrgQ-t500x500.png">](https://soundcloud.com/madjestickasual/miss-jay-yeah-mk-premiere?in=saxurn/sets/1a1/)
 
-**Artist**: NullRec 
+**Artist**: Madjestic Kasual 
 
-**Track**: DJ Lozza - Magic (N.E.D. Records Edit)
+**Track**: Miss Jay - YEAH [MK PREMIERE]
 
-Last updated at 4/4/2026, 5:06:59 PM
+Last updated at 4/4/2026, 5:11:45 PM
