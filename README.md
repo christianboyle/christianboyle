@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5NCIX54k4HB8cQua-L5XTsg-t500x500.jpg">](https://soundcloud.com/houzmusicblog/the-great-gig-in-the-sky-jay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lw8K2SlOVEPq5CgA-6E8hYQ-t500x500.png">](https://soundcloud.com/ion_music/kai-wachi-level-up-out-of-my-1)
 
-**Artist**: HOUZ 
+**Artist**: ION 
 
-**Track**: Pink Floyd - The Great Gig in the Sky (Jay Bird's Edit) [HZRX]
+**Track**: KAI WACHI & LEVEL UP - OUT OF MY MIND (ION FLIP)
 
-Last updated at 4/4/2026, 9:26:06 AM
+Last updated at 4/4/2026, 10:24:16 AM
