@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-skiyYjtlZOTbsSt9-wcIqBA-t500x500.jpg">](https://soundcloud.com/arcadian_sound/render-final)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylBcevpMRPzYuX8H-QEp94g-t500x500.png">](https://soundcloud.com/ravenscoon/john-summit-lights-go-out-ravenscoon-emurse-remix-free-dl)
 
-**Artist**: Arcadian Sound 
+**Artist**: RAVENSCOON, Emurse 
 
-**Track**: Render
+**Track**: John Summit - LIGHTS GO OUT (RAVENSCOON & Emurse Remix) (FREE DL)
 
-Last updated at 4/4/2026, 4:21:50 PM
+Last updated at 4/4/2026, 4:24:35 PM
