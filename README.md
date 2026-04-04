@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-N0zT0V0vyVC1lBsk-eQvSOA-t500x500.jpg">](https://soundcloud.com/st_rath/onlyyou-wav-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BPYCqUTO12mMcXla-RPOyxA-t500x500.png">](https://soundcloud.com/funtcaseuk/the-resistance-evil-empire-funtcase-remix)
 
-**Artist**: Strath 
+**Artist**: FuntCaseUK 
 
-**Track**: OnlyYou.wav
+**Track**: The Resistance - Evil Empire (FuntCase Remix)
 
-Last updated at 4/4/2026, 11:31:42 AM
+Last updated at 4/4/2026, 11:32:47 AM
