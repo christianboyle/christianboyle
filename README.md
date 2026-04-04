@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fZImX40b7u2sJkz6-uXygCg-t500x500.jpg">](https://soundcloud.com/fifthdensity/puddle-of-mud-blurry-1?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E76eNbWWrA5jNUyC-1Fqz2g-t500x500.png">](https://soundcloud.com/digitalraveboy/acidrainbowangel?in=saxurn/sets/yestalgia)
 
-**Artist**: FifthDensity 
+**Artist**: DIGITAL RAVE BOY 
 
-**Track**: Puddle Of Mud - Blurry - (FifthDensity Flip)
+**Track**: acidrainbowangel
 
-Last updated at 4/4/2026, 5:20:06 PM
+Last updated at 4/4/2026, 5:55:49 PM
