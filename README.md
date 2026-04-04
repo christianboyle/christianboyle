@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ylBcevpMRPzYuX8H-QEp94g-t500x500.png">](https://soundcloud.com/ravenscoon/john-summit-lights-go-out-ravenscoon-emurse-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uAz6iQD6jIQRqVg2-7xNGkA-t500x500.png">](https://soundcloud.com/technowereld/premiere-rotor-militia-echo)
 
-**Artist**: RAVENSCOON, Emurse 
+**Artist**: Techno Wereld, Rotor Militia 
 
-**Track**: John Summit - LIGHTS GO OUT (RAVENSCOON & Emurse Remix) (FREE DL)
+**Track**: Premiere: Rotor Militia - Echo [DRLP03]
 
-Last updated at 4/4/2026, 4:24:35 PM
+Last updated at 4/4/2026, 4:27:51 PM
