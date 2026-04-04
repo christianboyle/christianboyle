@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hVeszmWS4wrpH2h4-hpoOZw-t500x500.jpg">](https://soundcloud.com/cheetah-fm/dj-chris-daly-nostalgic-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FSIG9BFpGwWCRvUF-uDbwrQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/djb19-true-love-never-dies?in=revolution-records-uk/sets/out-10th-april-on-revolution)
 
-**Artist**: Dj Chris Daly 
+**Artist**: Revolution-Records UK 
 
-**Track**: DJ Chris Daly Nostalgic Bangers Volume 4
+**Track**: DJB19 - TRUE LOVE NEVER DIES
 
-Last updated at 4/4/2026, 3:54:42 PM
+Last updated at 4/4/2026, 3:55:47 PM
