@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kbtE1qoR6ruALDBc-LqcGSg-t500x500.png">](https://soundcloud.com/contraslaps/harry-belafonte-jump-in-the?in=saxurn/sets/panicpit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/drumette-2)
 
-**Artist**: CØNTRA 
+**Artist**: Destrata 
 
-**Track**: Harry Belafonte - Jump In The Line (CØNTRA FLIP)
+**Track**: Drumette
 
-Last updated at 4/5/2026, 4:01:05 PM
+Last updated at 4/5/2026, 4:03:02 PM
