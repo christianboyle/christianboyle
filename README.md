@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LxAIVDIPduDMTHgM-BEdVow-t500x500.jpg">](https://soundcloud.com/darn84/dougal-impact-records-the-best)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tp2yxzzQknPRUjq5-W7x8vQ-t500x500.jpg">](https://soundcloud.com/odiax/killer-d-140)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Odiax 
 
-**Track**: Dougal @ Impact Records - The Best Of Hardcore Heaven (1995)
+**Track**: KILLER
 
-Last updated at 4/5/2026, 7:33:48 AM
+Last updated at 4/5/2026, 7:40:34 AM
