@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W04gcqsHrmUuEll8-p2IXQQ-t500x500.png">](https://soundcloud.com/launchsixmusic/avicii-levels-launchsix-remix?in=saxurn/sets/panic-pit/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season?in=saxurn/sets/panicpit)
 
-**Artist**: Avicii, LaunchSix 
+**Artist**: lilCee3 
 
-**Track**: Avicii - Levels (LaunchSix Remix)
+**Track**: Slime season Ft. lil30
 
-Last updated at 4/5/2026, 12:30:44 PM
+Last updated at 4/5/2026, 12:31:34 PM
