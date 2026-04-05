@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIaiJ2fa8vSPDuIS-nWOFyg-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/onsummon-interfere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7g0NzgTz0Ypva4sK-cTC3QQ-t500x500.jpg">](https://soundcloud.com/officialflozone/lyny-hitz-flozone-flip-1)
 
-**Artist**: Onsummon 
+**Artist**: flozone 
 
-**Track**: Onsummon - Interfere
+**Track**: LYNY - HITZ (flozone flip)
 
-Last updated at 4/4/2026, 10:17:19 PM
+Last updated at 4/4/2026, 10:18:49 PM
