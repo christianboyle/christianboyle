@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tp2yxzzQknPRUjq5-W7x8vQ-t500x500.jpg">](https://soundcloud.com/odiax/killer-d-140)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LVYGhdIn176x3gGB-GvS9iQ-t500x500.png">](https://soundcloud.com/the_westy/hardcore-show-107)
 
-**Artist**: Odiax 
+**Artist**: Westy 
 
-**Track**: KILLER
+**Track**: Hardcore Show 107: Happy Hardcore & Happy Gabber
 
-Last updated at 4/5/2026, 7:40:34 AM
+Last updated at 4/5/2026, 7:42:14 AM
