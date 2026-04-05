@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5UfpzdukuQJ4BaFg-YzdCbQ-t500x500.jpg">](https://soundcloud.com/gzmo-productions/cammy-barnes-whiskey-roll-gzmo?in=saxurn/sets/panicpit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/drumette-2?in=saxurn/sets/panicpit)
 
-**Artist**: GZMO 
+**Artist**: Destrata 
 
-**Track**: Cammy Barnes - Whiskey Roll (GZMO & LUBO Remix)
+**Track**: Drumette
 
-Last updated at 4/5/2026, 3:45:59 PM
+Last updated at 4/5/2026, 3:48:49 PM
