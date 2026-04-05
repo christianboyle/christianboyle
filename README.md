@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tol8bTb8WQxzPjI6-x6Laqw-t500x500.jpg">](https://soundcloud.com/itskoptic/daft-punk-technologic-koptic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season?in=saxurn/sets/panic-pit/)
 
-**Artist**: KOPTIC 
+**Artist**: lilCee3 
 
-**Track**: Daft Punk - Technologic (KOPTIC 140 Flip)
+**Track**: Slime season Ft. lil30
 
-Last updated at 4/5/2026, 8:57:04 AM
+Last updated at 4/5/2026, 12:29:19 PM
