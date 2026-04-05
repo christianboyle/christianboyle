@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LVYGhdIn176x3gGB-GvS9iQ-t500x500.png">](https://soundcloud.com/the_westy/hardcore-show-107)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzmyu5qmsnygws3u-nWbizg-t500x500.png">](https://soundcloud.com/grayshift/skin-on-skin-burn-dem-bridges)
 
-**Artist**: Westy 
+**Artist**: grayshift 
 
-**Track**: Hardcore Show 107: Happy Hardcore & Happy Gabber
+**Track**: skin on skin - burn dem bridges (hellrazer x grayshift remix)
 
-Last updated at 4/5/2026, 7:42:14 AM
+Last updated at 4/5/2026, 8:11:35 AM
