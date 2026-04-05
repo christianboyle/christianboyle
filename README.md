@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCq46aykrpZxQprj-oO9t7Q-t500x500.jpg">](https://soundcloud.com/sxthsns/miss-you?in=saxurn/sets/crashn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pIBxcua9p81jmnI4-T0PX1w-t500x500.png">](https://soundcloud.com/saint-baek/burning-slow-5)
 
-**Artist**: sxth sns 
+**Artist**: SAINT MILLER 
 
-**Track**: Miss you
+**Track**: burning slow
 
-Last updated at 4/4/2026, 9:11:56 PM
+Last updated at 4/4/2026, 10:10:34 PM
