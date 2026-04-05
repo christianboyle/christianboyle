@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WiLE6LzsZQ6y3oEV-eCuM5A-t500x500.png">](https://soundcloud.com/officialdoil/turn-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season)
 
-**Artist**: DOIL 
+**Artist**: lilCee3 
 
-**Track**: TURN UP
+**Track**: Slime season Ft. lil30
 
-Last updated at 4/5/2026, 8:51:06 AM
+Last updated at 4/5/2026, 8:52:08 AM
