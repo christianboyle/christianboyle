@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/drumette-2?in=saxurn/sets/panicpit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osT7j6TCsKYCypMp-BVtR9Q-t500x500.jpg">](https://soundcloud.com/pukmusic/thinking-bout-you-puk-remix-final-v2?in=saxurn/sets/panicpit)
 
-**Artist**: Destrata 
+**Artist**: PUK 
 
-**Track**: Drumette
+**Track**: THINKING ABOUT YOU - TRANCE REMIX
 
-Last updated at 4/5/2026, 2:22:45 PM
+Last updated at 4/5/2026, 2:27:40 PM
