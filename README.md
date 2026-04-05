@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EmoKn0uaPGwF8NdH-AzFRtg-t500x500.png">](https://soundcloud.com/kuhlosulmusic/josh-guru-project-klaas-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dtT6uU0bWpEfauyp-n6yuTg-t500x500.jpg">](https://soundcloud.com/froggore/hop-n-drop-vol-one)
 
-**Artist**: 𝕶𝖚𝖍𝖑𝖔𝖘𝖚𝖑 
+**Artist**: FROGGORE 
 
-**Track**: Josh Guru Project & Klaas - Infinity 2026 (Kuhlosul Flip) (Free DL)
+**Track**: APRIL FOOLS - HOP N DROP VOL. 1
 
-Last updated at 4/4/2026, 10:11:39 PM
+Last updated at 4/4/2026, 10:12:54 PM
