@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wpIFxycM0Kv5NoOT-KOzhqw-t500x500.jpg">](https://soundcloud.com/xdbrdj/charli-xcx-claws-xdbr-flip?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AwVrvLVCBTccEMWP-z3N6IQ-t500x500.png">](https://soundcloud.com/krypttofficial/crastinate-guerillas-kryptt-1?in=saxurn/sets/bossed-up)
 
-**Artist**: XDBR 
+**Artist**: KRYPTT 
 
-**Track**: CHARLI XCX - CLAWS (XDBR FLIP) [FREE DL]
+**Track**: CRASTINATE - GUERRILLAS (KRYPTT FLIP)
 
-Last updated at 4/4/2026, 7:36:36 PM
+Last updated at 4/4/2026, 7:41:02 PM
