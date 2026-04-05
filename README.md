@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jzmyu5qmsnygws3u-nWbizg-t500x500.png">](https://soundcloud.com/grayshift/skin-on-skin-burn-dem-bridges)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yT3ZNbtkIoH15Elf-wj8khg-t500x500.png">](https://soundcloud.com/iammanada/foolmeonce)
 
-**Artist**: grayshift 
+**Artist**: MANADA 
 
-**Track**: skin on skin - burn dem bridges (hellrazer x grayshift remix)
+**Track**: FOOL ME ONCE
 
-Last updated at 4/5/2026, 8:11:35 AM
+Last updated at 4/5/2026, 8:43:06 AM
