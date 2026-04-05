@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dtT6uU0bWpEfauyp-n6yuTg-t500x500.jpg">](https://soundcloud.com/froggore/hop-n-drop-vol-one)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qlbiEC9eZ3J0Subj-hj2lMA-t500x500.png">](https://soundcloud.com/3thosmusic/3thos-x-gabriel-eli-bury-me)
 
-**Artist**: FROGGORE 
+**Artist**: 3THOS, Gabriel Eli 
 
-**Track**: APRIL FOOLS - HOP N DROP VOL. 1
+**Track**: 3THOS x Gabriel Eli - Bury Me
 
-Last updated at 4/4/2026, 10:12:54 PM
+Last updated at 4/4/2026, 10:13:54 PM
