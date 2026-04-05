@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7g0NzgTz0Ypva4sK-cTC3QQ-t500x500.jpg">](https://soundcloud.com/officialflozone/lyny-hitz-flozone-flip-1?in=saxurn/sets/panicpit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W04gcqsHrmUuEll8-p2IXQQ-t500x500.png">](https://soundcloud.com/launchsixmusic/avicii-levels-launchsix-remix?in=saxurn/sets/panicpit)
 
-**Artist**: flozone 
+**Artist**: Avicii, LaunchSix 
 
-**Track**: LYNY - HITZ (flozone flip)
+**Track**: Avicii - Levels (LaunchSix Remix)
 
-Last updated at 4/5/2026, 3:26:37 PM
+Last updated at 4/5/2026, 3:28:57 PM
