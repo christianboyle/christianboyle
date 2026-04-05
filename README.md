@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I7N8SXv7n0fU5iGG-vnbQjw-t500x500.png">](https://soundcloud.com/shortcvke_bass/research-test)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIaiJ2fa8vSPDuIS-nWOFyg-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/onsummon-interfere)
 
-**Artist**: shortcvke 
+**Artist**: Onsummon 
 
-**Track**: Research Test
+**Track**: Onsummon - Interfere
 
-Last updated at 4/4/2026, 10:16:14 PM
+Last updated at 4/4/2026, 10:17:19 PM
