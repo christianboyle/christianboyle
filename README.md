@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGsj8jqwhb9pAlOb-XCZmug-t500x500.jpg">](https://soundcloud.com/marlonhoffstadt/fred-again-blanco-solo-marlon?in=saxurn/sets/roomy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iP0BSjKtgJUy210N-cpYDrw-t500x500.png">](https://soundcloud.com/marlonhoffstadt/breathe-extended-version)
 
 **Artist**: Marlon Hoffstadt 
 
-**Track**: Fred Again.. Blanco - Solo (Marlon Hoffstadt Edit)
+**Track**: Breathe (Extended Version)
 
-Last updated at 4/4/2026, 7:59:35 PM
+Last updated at 4/4/2026, 8:05:01 PM
