@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lMDePh33Ke4Cgh7F-SzW3rg-t500x500.png">](https://soundcloud.com/wearemir/sunriseedit?in=saxurn/sets/bossed-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-57f5plyXzgUytT0G-w5uFvA-t500x500.jpg">](https://soundcloud.com/cruseyyyy/threwit?in=saxurn/sets/bossed-up)
 
-**Artist**: MIR 
+**Artist**: crusey 
 
-**Track**: SUNRISE [ MIR EDIT]
+**Track**: threw it away ft. akkiro (wish, advxrse)
 
-Last updated at 4/4/2026, 7:46:18 PM
+Last updated at 4/4/2026, 7:50:58 PM
