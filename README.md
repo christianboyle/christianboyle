@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AgapX5WMzUZifDLK-KiXCXQ-t500x500.png">](https://soundcloud.com/oddlanguage/answer-all-my-prayers-odd-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKrXmZzH7jUSpiUZ-j5jlBQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/thootie-1?in=saxurn/sets/panicpit)
 
-**Artist**: odd language 
+**Artist**: Star Monster 
 
-**Track**: PEEKABOO, Nitepunk, LYNY, SAYAK DAS - Answer All My Prayers (feat. Nick Smith)  [Odd Language Remix]
+**Track**: Thootie
 
-Last updated at 4/5/2026, 4:18:31 PM
+Last updated at 4/5/2026, 4:21:42 PM
