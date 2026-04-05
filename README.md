@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W04gcqsHrmUuEll8-p2IXQQ-t500x500.png">](https://soundcloud.com/launchsixmusic/avicii-levels-launchsix-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WiLE6LzsZQ6y3oEV-eCuM5A-t500x500.png">](https://soundcloud.com/officialdoil/turn-up)
 
-**Artist**: Avicii, LaunchSix 
+**Artist**: DOIL 
 
-**Track**: Avicii - Levels (LaunchSix Remix)
+**Track**: TURN UP
 
-Last updated at 4/5/2026, 8:46:46 AM
+Last updated at 4/5/2026, 8:51:06 AM
