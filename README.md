@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8mBIvTBdUXVmZrV-cJmBeQ-t500x500.png">](https://soundcloud.com/purityleech/just-let-go-d-b-mix?in=saxurn/sets/crashn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yzNOTt50vJjdT3eG-icesFQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-neo-dj-morky-technical-1?in=saxurn/sets/crashn)
 
-**Artist**: purityleech 
+**Artist**: DJ Neo & DJ Morky 
 
-**Track**: just let go (D&B Mix)
+**Track**: DJ Neo & DJ Morky - Technical Problem Club Mix
 
-Last updated at 4/4/2026, 7:03:47 PM
+Last updated at 4/4/2026, 7:06:27 PM
