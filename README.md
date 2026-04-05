@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qlbiEC9eZ3J0Subj-hj2lMA-t500x500.png">](https://soundcloud.com/3thosmusic/3thos-x-gabriel-eli-bury-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0RdylQtDxfTytYAG-INe3wA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/m-stic-sensate-hit-a-lick-1)
 
-**Artist**: 3THOS, Gabriel Eli 
+**Artist**: M?STIC, SENSATE, WIFISFUNERAL 
 
-**Track**: 3THOS x Gabriel Eli - Bury Me
+**Track**: M?STIC & SENSATE - HIT A LICK (FEAT. WIFISFUNERAL)
 
-Last updated at 4/4/2026, 10:13:54 PM
+Last updated at 4/4/2026, 10:15:14 PM
