@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AgapX5WMzUZifDLK-KiXCXQ-t500x500.png">](https://soundcloud.com/oddlanguage/answer-all-my-prayers-odd-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k7cxZiZgYrKVvx2q-DVeaVw-t500x500.png">](https://soundcloud.com/austinsloud/eventually-austinsloud-remix)
 
-**Artist**: odd language 
+**Artist**: Tame Impala ,AUSTINSLOUD 
 
-**Track**: PEEKABOO, Nitepunk, LYNY, SAYAK DAS - Answer All My Prayers (feat. Nick Smith)  [Odd Language Remix]
+**Track**: Eventually - AUSTINSLOUD Remix
 
-Last updated at 4/5/2026, 8:42:34 PM
+Last updated at 4/5/2026, 8:46:10 PM
