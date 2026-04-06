@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKrXmZzH7jUSpiUZ-j5jlBQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/thootie-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tol8bTb8WQxzPjI6-x6Laqw-t500x500.jpg">](https://soundcloud.com/itskoptic/daft-punk-technologic-koptic)
 
-**Artist**: Star Monster 
+**Artist**: KOPTIC 
 
-**Track**: Thootie
+**Track**: Daft Punk - Technologic (KOPTIC 140 Flip)
 
-Last updated at 4/6/2026, 5:16:39 PM
+Last updated at 4/6/2026, 5:19:15 PM
