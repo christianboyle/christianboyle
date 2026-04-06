@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKrXmZzH7jUSpiUZ-j5jlBQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/thootie-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QaGsUKydJXNCUyPy-brlnfg-t500x500.png">](https://soundcloud.com/destratavan/drumette-2?in=saxurn/sets/panicpit)
 
-**Artist**: Star Monster 
+**Artist**: Destrata 
 
-**Track**: Thootie
+**Track**: Drumette
 
-Last updated at 4/6/2026, 5:45:32 PM
+Last updated at 4/6/2026, 5:49:08 PM
