@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osT7j6TCsKYCypMp-BVtR9Q-t500x500.jpg">](https://soundcloud.com/pukmusic/thinking-bout-you-puk-remix-final-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIzfU71yzF3dOFyG-z1wP5A-t500x500.jpg">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-48-hours-cruising)
 
-**Artist**: PUK 
+**Artist**: Charlie Bosh 
 
-**Track**: THINKING ABOUT YOU - TRANCE REMIX
+**Track**: Charlie Bosh - 48 Hours Cruising
 
-Last updated at 4/6/2026, 6:34:29 AM
+Last updated at 4/6/2026, 5:05:33 PM
