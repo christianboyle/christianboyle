@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eRsNOHyJfJWI7xBo-u8J9NA-t500x500.png">](https://soundcloud.com/1crusey/doucare?in=saxurn/sets/mergency)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osT7j6TCsKYCypMp-BVtR9Q-t500x500.jpg">](https://soundcloud.com/pukmusic/thinking-bout-you-puk-remix-final-v2)
 
-**Artist**: crusey 
+**Artist**: PUK 
 
-**Track**: do u care? ft. lynU & Alyx Trick
+**Track**: THINKING ABOUT YOU - TRANCE REMIX
 
-Last updated at 4/6/2026, 8:46:33 PM
+Last updated at 4/7/2026, 7:12:21 AM
