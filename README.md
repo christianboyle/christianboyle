@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D2ckb1M5tjpp-0-t500x500.jpg">](https://soundcloud.com/oneseventy/letting-go?in=saxurn/sets/crashn)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6l7YvQypKzj5WQ0-OzzC7g-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/premiere-dj-pacifier-cure-for?in=saxurn/sets/rrrrip)
 
-**Artist**: Technikore, Steve Hill 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Letting Go
+**Track**: PREMIERE: DJ Pacifier - Cure for Hiccups
 
-Last updated at 4/6/2026, 8:24:09 PM
+Last updated at 4/6/2026, 8:26:39 PM
