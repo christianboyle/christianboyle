@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6l7YvQypKzj5WQ0-OzzC7g-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/premiere-dj-pacifier-cure-for?in=saxurn/sets/rrrrip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZL6AnYj5bQLEzkQt-hCGE0Q-t500x500.png">](https://soundcloud.com/misterkushboy/like-im-jason?in=saxurn/sets/rrrrip)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Mr. KushBoy 
 
-**Track**: PREMIERE: DJ Pacifier - Cure for Hiccups
+**Track**: Like Im Jason w/ C4pri & 1Crusafix (Prod Me)
 
-Last updated at 4/6/2026, 8:26:39 PM
+Last updated at 4/6/2026, 8:30:40 PM
