@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C6a3tcKgztlpy5yI-yzhQHg-t500x500.jpg">](https://soundcloud.com/sihk66/owl-city-fireflies-sihk-90s-happy-hardcore-remix-free-dl?in=saxurn/sets/fr-tho)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GdI7AzWdlmosXt9-nLjs7Q-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-you-were)
 
-**Artist**: SIHK 
+**Artist**: TNT, Darren Styles 
 
-**Track**: Owl City - Fireflies (Sihk 90's Happy Hardcore Remix) FREE DL
+**Track**: TNT & Darren Styles  - You Were Never Mine
 
-Last updated at 4/7/2026, 7:29:52 AM
+Last updated at 4/8/2026, 5:52:59 AM
