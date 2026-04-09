@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K52jZ0lPM24HXkFO-wQ5tzg-t500x500.jpg">](https://soundcloud.com/djmatty-o/mc-stompin-legacy-the-venue-v1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4W8XeKT62Gz3Rltz-O72Drw-t500x500.png">](https://soundcloud.com/noir-sound-berlinn/provoc-when-the-bass-drops-noir-sound-o-berlin-1)
 
-**Artist**: Matty Owers, MC Stompin 
+**Artist**: NOIR SOUND Ø BERLIN 
 
-**Track**: The Venue - Legacy Part 1
+**Track**: Provøc - When The Bass Drops [NOIR SOUND Ø BERLIN]
 
-Last updated at 4/9/2026, 6:03:20 AM
+Last updated at 4/9/2026, 6:06:36 AM
