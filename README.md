@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6uSGN59RcOPTcwL3-pxzcfQ-t500x500.png">](https://soundcloud.com/sevee1/hardcore-happy-as-can-be-vol4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fA4o2IQDzmTmFhrd-3rmCMw-t500x500.png">](https://soundcloud.com/grrrreatdane/lightninginabottle2023set)
 
-**Artist**: Sevee 
+**Artist**: Great Dane 
 
-**Track**: Hardcore Happy As Can Be vol4
+**Track**: Lightning in a Bottle 2023 Set
 
-Last updated at 4/8/2026, 7:23:40 PM
+Last updated at 4/8/2026, 8:43:01 PM
