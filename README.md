@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9XSYE1Yi7pyyzLjg-nbEjMQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-baugruppe90-revamp)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dwsykd3oDCmuxqiz-Pp3awg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/coone-trippin-on-that)
 
-**Artist**: HATE, BAUGRUPPE90 
+**Artist**: Coone 
 
-**Track**: Premiere: BAUGRUPPE90 — Revamp [MLKL047]
+**Track**: Coone - Trippin On That Oldschool
 
-Last updated at 4/9/2026, 5:59:10 AM
+Last updated at 4/9/2026, 6:00:45 AM
