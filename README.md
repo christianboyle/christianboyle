@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9XC1jyTxpit6x93-cmNiBw-t500x500.png">](https://soundcloud.com/n4c/temper-city-self-aware-n4c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-30yaqYuqrIF8td6V-fSlUGQ-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/jesse-jax-for-the-last-time)
 
-**Artist**: Temper City, N4C 
+**Artist**: Jesse Jax 
 
-**Track**: Temper City - Self Aware (N4C HARD TECHNO REMIX)
+**Track**: Jesse Jax - For The Last Time
 
-Last updated at 4/9/2026, 8:19:33 AM
+Last updated at 4/9/2026, 8:23:39 AM
