@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a6v8btFk0Fr42Hv9-kHKbhQ-t500x500.jpg">](https://soundcloud.com/oxxidee/no-etiquette-control-oxide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIhHrOzIt9ue1NfK-gUfV2A-t500x500.png">](https://soundcloud.com/ghostinreallife/the-veronicas-untouched-ghost)
 
-**Artist**: OXIDE 
+**Artist**: Ghost in Real Life 
 
-**Track**: No Etiquette - Control (OXIDE FLIP)
+**Track**: The Veronicas - Untouched (Ghost in Real Life Remix)
 
-Last updated at 4/9/2026, 8:12:13 AM
+Last updated at 4/9/2026, 8:15:28 AM
