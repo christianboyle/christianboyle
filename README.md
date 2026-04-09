@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HnBZkiaFvMFNZcZk-EDTuZg-t500x500.png">](https://soundcloud.com/sourdieseldubs/ai-detected)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIzfU71yzF3dOFyG-z1wP5A-t500x500.jpg">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-48-hours-cruising)
 
-**Artist**: Sour Diesel 
+**Artist**: Charlie Bosh 
 
-**Track**: AI Detected (Cancelled Digital - 015)
+**Track**: Charlie Bosh - 48 Hours Cruising
 
-Last updated at 4/9/2026, 7:23:19 AM
+Last updated at 4/9/2026, 7:25:50 AM
