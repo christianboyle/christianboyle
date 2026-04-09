@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DCPOfBJ4MPQjMoX5-P0aJeA-t500x500.png">](https://soundcloud.com/burna1/yup-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uLOggD28pIwdgrAR-NECQpw-t500x500.png">](https://soundcloud.com/bncybncy/bbz-hold-me-now)
 
-**Artist**: Burna 
+**Artist**: BBZ 
 
-**Track**: Yup
+**Track**: BBZ - Hold me now
 
-Last updated at 4/9/2026, 8:29:59 AM
+Last updated at 4/9/2026, 8:34:15 AM
