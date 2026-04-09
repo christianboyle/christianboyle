@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dwsykd3oDCmuxqiz-Pp3awg-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/coone-trippin-on-that)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K52jZ0lPM24HXkFO-wQ5tzg-t500x500.jpg">](https://soundcloud.com/djmatty-o/mc-stompin-legacy-the-venue-v1)
 
-**Artist**: Coone 
+**Artist**: Matty Owers, MC Stompin 
 
-**Track**: Coone - Trippin On That Oldschool
+**Track**: The Venue - Legacy Part 1
 
-Last updated at 4/9/2026, 6:00:45 AM
+Last updated at 4/9/2026, 6:03:20 AM
