@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Nb76Ao9li7wg0TS-CzBI4w-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/des-vs-mark-kb-the-journey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K52jZ0lPM24HXkFO-wQ5tzg-t500x500.jpg">](https://soundcloud.com/djmatty-o/mc-stompin-legacy-the-venue-v1)
 
-**Artist**: Dj Des 
+**Artist**: Matty Owers, MC Stompin 
 
-**Track**: Des Vs Mark KB ...... The Journey Continues
+**Track**: The Venue - Legacy Part 1
 
-Last updated at 4/8/2026, 7:19:49 PM
+Last updated at 4/8/2026, 7:21:29 PM
