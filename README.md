@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3AabyPZmITS5OQRk-ylKvNA-t500x500.jpg">](https://soundcloud.com/lilyeat/lifted-prod-rio-x-biinx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix)
 
-**Artist**: YEAT 
+**Artist**: Fatal Energy Records 
 
-**Track**: Liftëd (prod. Rio X Biinx)
+**Track**: LJH - XTC (Original Mix)
 
-Last updated at 4/9/2026, 6:18:12 AM
+Last updated at 4/9/2026, 6:21:58 AM
