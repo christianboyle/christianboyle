@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKrXmZzH7jUSpiUZ-j5jlBQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/thootie-1)
 
-**Artist**: lilCee3 
+**Artist**: Star Monster 
 
-**Track**: Slime season Ft. lil30
+**Track**: Thootie
 
-Last updated at 4/9/2026, 7:34:35 AM
+Last updated at 4/9/2026, 7:37:26 AM
