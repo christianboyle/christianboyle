@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oabkyGUEnqAX1ezA-u2bzzA-t500x500.png">](https://soundcloud.com/stylusdamage/our-last-kiss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season)
 
-**Artist**: Stylus Damage, sg lily, buffalobang, spira me 
+**Artist**: lilCee3 
 
-**Track**: OUR LAST KISS (STYLUS DAMAGE RMX)
+**Track**: Slime season Ft. lil30
 
-Last updated at 4/9/2026, 7:31:25 AM
+Last updated at 4/9/2026, 7:34:35 AM
