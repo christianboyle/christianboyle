@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YtD3W3wVq5F7TOlb-v4DwzQ-t500x500.png">](https://soundcloud.com/ocho8music/wedontcare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAWaR8uLMLJAPYdD-c6oWhg-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/whisper)
 
-**Artist**: Ocho 
+**Artist**: ALEA 
 
-**Track**: We Don't Care (Ocho Edit) - Akon
+**Track**: Whisper
 
-Last updated at 4/9/2026, 6:11:37 AM
+Last updated at 4/9/2026, 6:15:47 AM
