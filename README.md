@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qltGo3Lsu7eDqCGD-CZwzZw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oggy-be-there-for-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9XSYE1Yi7pyyzLjg-nbEjMQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-baugruppe90-revamp)
 
-**Artist**: DJ Oggy 
+**Artist**: HATE, BAUGRUPPE90 
 
-**Track**: DJ Oggy - Be There For You
+**Track**: Premiere: BAUGRUPPE90 — Revamp [MLKL047]
 
-Last updated at 4/9/2026, 5:58:10 AM
+Last updated at 4/9/2026, 5:59:10 AM
