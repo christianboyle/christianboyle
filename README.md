@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a0TtdbxlywIhWhv0-yudngQ-t500x500.png">](https://soundcloud.com/iseeusound/lamb-overkill-iseeu-remix)
 
-**Artist**: Fatal Energy Records 
+**Artist**: ISEEU, Lamb 
 
-**Track**: LJH - XTC (Original Mix)
+**Track**: Lamb- overkill (ISEEU Remix)
 
-Last updated at 4/8/2026, 9:48:13 PM
+Last updated at 4/9/2026, 5:48:57 AM
