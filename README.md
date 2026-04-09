@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a6v8btFk0Fr42Hv9-kHKbhQ-t500x500.jpg">](https://soundcloud.com/oxxidee/no-etiquette-control-oxide)
 
-**Artist**: Fatal Energy Records 
+**Artist**: OXIDE 
 
-**Track**: LJH - XTC (Original Mix)
+**Track**: No Etiquette - Control (OXIDE FLIP)
 
-Last updated at 4/9/2026, 6:21:58 AM
+Last updated at 4/9/2026, 6:26:33 AM
