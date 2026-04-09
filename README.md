@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osT7j6TCsKYCypMp-BVtR9Q-t500x500.jpg">](https://soundcloud.com/pukmusic/thinking-bout-you-puk-remix-final-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7g0NzgTz0Ypva4sK-cTC3QQ-t500x500.jpg">](https://soundcloud.com/officialflozone/lyny-hitz-flozone-flip-1)
 
-**Artist**: PUK 
+**Artist**: flozone 
 
-**Track**: THINKING ABOUT YOU - TRANCE REMIX
+**Track**: LYNY - HITZ (flozone flip)
 
-Last updated at 4/9/2026, 7:44:06 AM
+Last updated at 4/9/2026, 7:48:07 AM
