@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4W8XeKT62Gz3Rltz-O72Drw-t500x500.png">](https://soundcloud.com/noir-sound-berlinn/provoc-when-the-bass-drops-noir-sound-o-berlin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YtD3W3wVq5F7TOlb-v4DwzQ-t500x500.png">](https://soundcloud.com/ocho8music/wedontcare)
 
-**Artist**: NOIR SOUND Ø BERLIN 
+**Artist**: Ocho 
 
-**Track**: Provøc - When The Bass Drops [NOIR SOUND Ø BERLIN]
+**Track**: We Don't Care (Ocho Edit) - Akon
 
-Last updated at 4/9/2026, 6:06:36 AM
+Last updated at 4/9/2026, 6:11:37 AM
