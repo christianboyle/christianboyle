@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vAWaR8uLMLJAPYdD-c6oWhg-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/whisper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIhHrOzIt9ue1NfK-gUfV2A-t500x500.png">](https://soundcloud.com/ghostinreallife/the-veronicas-untouched-ghost)
 
-**Artist**: ALEA 
+**Artist**: Ghost in Real Life 
 
-**Track**: Whisper
+**Track**: The Veronicas - Untouched (Ghost in Real Life Remix)
 
-Last updated at 4/9/2026, 6:15:47 AM
+Last updated at 4/9/2026, 6:16:47 AM
