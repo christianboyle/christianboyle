@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0GdI7AzWdlmosXt9-nLjs7Q-t500x500.png">](https://soundcloud.com/dirtyworkzofficial/tnt-darren-styles-you-were)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8nS5C6yUCYYiYPpL-YNeqbw-t500x500.png">](https://soundcloud.com/strtrpack/read-my-keine-1)
 
-**Artist**: TNT, Darren Styles 
+**Artist**: STRTRPACK 
 
-**Track**: TNT & Darren Styles  - You Were Never Mine
+**Track**: Read My Keine
 
-Last updated at 4/8/2026, 5:52:59 AM
+Last updated at 4/8/2026, 7:07:26 PM
