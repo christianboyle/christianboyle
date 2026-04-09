@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyJG54pnnK07i9KW-T4tySQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-born-for-this-out-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HnBZkiaFvMFNZcZk-EDTuZg-t500x500.png">](https://soundcloud.com/sourdieseldubs/ai-detected)
 
-**Artist**: DRIFT 
+**Artist**: Sour Diesel 
 
-**Track**: DRIFT - BORN FOR THIS (OUT NOW)
+**Track**: AI Detected (Cancelled Digital - 015)
 
-Last updated at 4/9/2026, 7:19:04 AM
+Last updated at 4/9/2026, 7:23:19 AM
