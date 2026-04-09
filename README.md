@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8nS5C6yUCYYiYPpL-YNeqbw-t500x500.png">](https://soundcloud.com/strtrpack/read-my-keine-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EM73mDuyPjWMr9jT-GCnhxQ-t500x500.jpg">](https://soundcloud.com/niminomusic/you-got-the-love-nimino-remix?in=strtrpack/sets/youre-good-2025)
 
-**Artist**: STRTRPACK 
+**Artist**: nimino 
 
-**Track**: Read My Keine
+**Track**: You Got The Love - nimino Remix
 
-Last updated at 4/8/2026, 7:07:26 PM
+Last updated at 4/8/2026, 7:09:18 PM
