@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIzfU71yzF3dOFyG-z1wP5A-t500x500.jpg">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-48-hours-cruising)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-wyis0oUxdd7HocTR-0IYQ0Q-t500x500.jpg">](https://soundcloud.com/1nugzhardcore/insomniac-1nugz-mastered)
 
-**Artist**: Charlie Bosh 
+**Artist**: 1Nugz 
 
-**Track**: Charlie Bosh - 48 Hours Cruising
+**Track**: Insomniac
 
-Last updated at 4/9/2026, 7:25:50 AM
+Last updated at 4/9/2026, 7:28:45 AM
