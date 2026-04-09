@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uIhHrOzIt9ue1NfK-gUfV2A-t500x500.png">](https://soundcloud.com/ghostinreallife/the-veronicas-untouched-ghost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9XC1jyTxpit6x93-cmNiBw-t500x500.png">](https://soundcloud.com/n4c/temper-city-self-aware-n4c)
 
-**Artist**: Ghost in Real Life 
+**Artist**: Temper City, N4C 
 
-**Track**: The Veronicas - Untouched (Ghost in Real Life Remix)
+**Track**: Temper City - Self Aware (N4C HARD TECHNO REMIX)
 
-Last updated at 4/9/2026, 8:15:28 AM
+Last updated at 4/9/2026, 8:19:33 AM
