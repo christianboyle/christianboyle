@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uivsCBZLHF8GnP7i-BygRzg-t500x500.png">](https://soundcloud.com/jaenga/waka-flocka-no-hands-jaenga)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DCPOfBJ4MPQjMoX5-P0aJeA-t500x500.png">](https://soundcloud.com/burna1/yup-4)
 
-**Artist**: Jaenga 
+**Artist**: Burna 
 
-**Track**: Waka Flocka - No Hands (Jaenga Remix)
+**Track**: Yup
 
-Last updated at 4/9/2026, 6:41:20 AM
+Last updated at 4/9/2026, 6:44:25 AM
