@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H5DxAzWmidy5tGp4-XNuPQg-t500x500.png">](https://soundcloud.com/nullrecuk/buscas-base-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PnQzfApsVYnIJWzC-sRxZhA-t500x500.jpg">](https://soundcloud.com/darn84/dj-synergy-only-love-96)
 
-**Artist**: NullRec 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: Danny Eclipse - Buscas Base
+**Track**: DJ Synergy - Only Love '96 - Explosive Records (1996)
 
-Last updated at 4/11/2026, 9:59:54 AM
+Last updated at 4/11/2026, 10:03:29 AM
