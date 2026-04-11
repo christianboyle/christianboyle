@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9XC1jyTxpit6x93-cmNiBw-t500x500.png">](https://soundcloud.com/n4c/temper-city-self-aware-n4c)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p7kRTpx75cAGIPFE-oD0eSg-t500x500.jpg">](https://soundcloud.com/me-yomusic/meyo-x-lykwid-lunar-phasing-v1)
 
-**Artist**: Temper City, N4C 
+**Artist**: Me-Yo, Lykwid 
 
-**Track**: Temper City - Self Aware (N4C HARD TECHNO REMIX)
+**Track**: Lunar Phasing (Ft. Lykwid)
 
-Last updated at 4/10/2026, 7:14:22 PM
+Last updated at 4/10/2026, 7:15:22 PM
