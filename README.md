@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-buIy3KGKiY0JZs1a-9Q6ypA-t500x500.jpg">](https://soundcloud.com/72crash/money-exchange)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cpgrm53alwapzD9p-jI78jQ-t500x500.jpg">](https://soundcloud.com/user-208321675/kwex-n-company-practice-run)
 
-**Artist**: 72crash 
+**Artist**: DJKUSKEE 
 
-**Track**: Money Exchange, Or: How I Learned to Stop Worrying and Love the Burning
+**Track**: FULLY LOADED VS FATGOOSE KUSKEE
 
-Last updated at 4/11/2026, 7:26:10 AM
+Last updated at 4/11/2026, 7:57:53 AM
