@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2piKwgPpYDRyGuR-aCZ0Qw-t500x500.png">](https://soundcloud.com/zzzoey808/68b54a36-17d3-4901-8a35-e13259cf120b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RumegfwjOH4Xmpix-HhWumA-t500x500.png">](https://soundcloud.com/luzyx/gravity-inside)
 
-**Artist**: Zoey808 
+**Artist**: Luzyx, Yhoshi 
 
-**Track**: A MILLI (Zoey's Version)
+**Track**: GRAVITY INSIDE [FREE DL]
 
-Last updated at 4/11/2026, 7:08:23 AM
+Last updated at 4/11/2026, 7:25:10 AM
