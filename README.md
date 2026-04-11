@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9EkzfDCwlPNh24c-q6IyaQ-t500x500.jpg">](https://soundcloud.com/darn84/sub-source-hardcore-euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H5DxAzWmidy5tGp4-XNuPQg-t500x500.png">](https://soundcloud.com/nullrecuk/buscas-base-3)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: NullRec 
 
-**Track**: Sub Source - Hardcore Euphoria - Evolution Records  (1995)
+**Track**: Danny Eclipse - Buscas Base
 
-Last updated at 4/11/2026, 8:19:48 AM
+Last updated at 4/11/2026, 9:59:54 AM
