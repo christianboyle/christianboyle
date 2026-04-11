@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xjz5MZj7yDIzCx7O-gUrRCg-t500x500.jpg">](https://soundcloud.com/david-bain-124331031/djs-factory-lets-get-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9XC1jyTxpit6x93-cmNiBw-t500x500.png">](https://soundcloud.com/n4c/temper-city-self-aware-n4c)
 
-**Artist**: David Bain (DJB19) (Djs Factory) 
+**Artist**: Temper City, N4C 
 
-**Track**: DJs Factory - Let's Get It Started [sample]
+**Track**: Temper City - Self Aware (N4C HARD TECHNO REMIX)
 
-Last updated at 4/10/2026, 5:53:44 AM
+Last updated at 4/10/2026, 7:14:22 PM
