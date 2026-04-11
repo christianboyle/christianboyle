@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RumegfwjOH4Xmpix-HhWumA-t500x500.png">](https://soundcloud.com/luzyx/gravity-inside)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-buIy3KGKiY0JZs1a-9Q6ypA-t500x500.jpg">](https://soundcloud.com/72crash/money-exchange)
 
-**Artist**: Luzyx, Yhoshi 
+**Artist**: 72crash 
 
-**Track**: GRAVITY INSIDE [FREE DL]
+**Track**: Money Exchange, Or: How I Learned to Stop Worrying and Love the Burning
 
-Last updated at 4/11/2026, 7:25:10 AM
+Last updated at 4/11/2026, 7:26:10 AM
