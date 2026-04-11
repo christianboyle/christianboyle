@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5zVhf2DzTPtUNlLV-brHt1g-t500x500.png">](https://soundcloud.com/djdougster-gibson/cathedral-of-the-glen)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9EkzfDCwlPNh24c-q6IyaQ-t500x500.jpg">](https://soundcloud.com/darn84/sub-source-hardcore-euphoria)
 
-**Artist**: djdougster gibson 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: CATHEDRAL OF THE GLEN
+**Track**: Sub Source - Hardcore Euphoria - Evolution Records  (1995)
 
-Last updated at 4/11/2026, 8:17:13 AM
+Last updated at 4/11/2026, 8:19:48 AM
