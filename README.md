@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfPfBHur3Rjjoj29-Uh68Yg-t500x500.jpg">](https://soundcloud.com/user-959556578/recording-2026-04-10-22-15)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YSPnYmTymJAlG8Uo-ShkGDg-t500x500.png">](https://soundcloud.com/david-cruickshanks/hell-of-a-bounce-episode-35)
 
-**Artist**: DJ KAYDEN ATCHA 
+**Artist**: SHANKS 
 
-**Track**: PURE DONK VOLUME 3
+**Track**: HELL OF A BOUNCE EPISODE 35
 
-Last updated at 4/12/2026, 12:58:18 PM
+Last updated at 4/12/2026, 1:39:01 PM
