@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy0j4UFdB6PpjQsc-JfZ6Lg-t500x500.jpg">](https://soundcloud.com/scott-hoy/scott-hoy-confession-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cfPfBHur3Rjjoj29-Uh68Yg-t500x500.jpg">](https://soundcloud.com/user-959556578/recording-2026-04-10-22-15)
 
-**Artist**: Scott Hoy/Gen 92 
+**Artist**: DJ KAYDEN ATCHA 
 
-**Track**: Scott Hoy - Confession
+**Track**: PURE DONK VOLUME 3
 
-Last updated at 4/12/2026, 12:56:18 PM
+Last updated at 4/12/2026, 12:58:18 PM
