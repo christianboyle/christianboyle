@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l15KV3FKML1Edidx-X4Z0eQ-t500x500.png">](https://soundcloud.com/evalutionmusic/darwinism5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8S8fqVedgWwX1u69-JKQrzw-t500x500.png">](https://soundcloud.com/ltbounceofficial/its-you-radio-edit)
 
-**Artist**: EVALUTION 
+**Artist**: LT BOUNCE 
 
-**Track**: DARWINISM VOL. 5
+**Track**: IT'S YOU (RADIO EDIT)
 
-Last updated at 4/12/2026, 1:49:17 PM
+Last updated at 4/12/2026, 1:50:27 PM
