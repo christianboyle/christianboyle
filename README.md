@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YSPnYmTymJAlG8Uo-ShkGDg-t500x500.png">](https://soundcloud.com/david-cruickshanks/hell-of-a-bounce-episode-35)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6WpmSn2Hrh5loDi-gJgeyA-t500x500.png">](https://soundcloud.com/david-doak/bbz-angels-sample)
 
-**Artist**: SHANKS 
+**Artist**: Doaky & Dj Jas L (BBZ) 
 
-**Track**: HELL OF A BOUNCE EPISODE 35
+**Track**: BBZ - Angels (sample)
 
-Last updated at 4/12/2026, 1:39:01 PM
+Last updated at 4/12/2026, 1:40:41 PM
