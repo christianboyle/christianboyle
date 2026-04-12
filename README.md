@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-d6WpmSn2Hrh5loDi-gJgeyA-t500x500.png">](https://soundcloud.com/david-doak/bbz-angels-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WGmki5rJyriaxvJb-9weWTg-t500x500.jpg">](https://soundcloud.com/darn84/squad-e-rr-summer-slammer-the)
 
-**Artist**: Doaky & Dj Jas L (BBZ) 
+**Artist**: Hardcore Hooligan™️ 
 
-**Track**: BBZ - Angels (sample)
+**Track**: Squad-E @ RR - Summer Slammer - The Southcoast Invasion '14 (05/07/2014)
 
-Last updated at 4/12/2026, 1:40:41 PM
+Last updated at 4/12/2026, 1:42:41 PM
