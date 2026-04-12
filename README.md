@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PnQzfApsVYnIJWzC-sRxZhA-t500x500.jpg">](https://soundcloud.com/darn84/dj-synergy-only-love-96)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2piKwgPpYDRyGuR-aCZ0Qw-t500x500.png">](https://soundcloud.com/zzzoey808/68b54a36-17d3-4901-8a35-e13259cf120b)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Zoey808 
 
-**Track**: DJ Synergy - Only Love '96 - Explosive Records (1996)
+**Track**: A MILLI (Zoey's Version)
 
-Last updated at 4/11/2026, 10:03:29 AM
+Last updated at 4/12/2026, 7:00:46 AM
