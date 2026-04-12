@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6TEO49nDW6N12SLq-lMTEEw-t500x500.png">](https://soundcloud.com/theviktorsen/nightmare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pxyh8dxEE78WcS3S-6zCAxg-t500x500.png">](https://soundcloud.com/petiedj/satellite)
 
-**Artist**: Viktor Sen 
+**Artist**: petie 
 
-**Track**: NIGHTMARE!
+**Track**: Don Toliver - SATELLITE (PETIE Remix)
 
-Last updated at 4/12/2026, 11:45:31 AM
+Last updated at 4/12/2026, 11:48:17 AM
