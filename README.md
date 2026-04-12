@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FeQNQwQIhmTCkHVe-q2NMXg-t500x500.png">](https://soundcloud.com/matthew-williams-119/recall)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yy0j4UFdB6PpjQsc-JfZ6Lg-t500x500.jpg">](https://soundcloud.com/scott-hoy/scott-hoy-confession-sample)
 
-**Artist**: (DJ) Matt Williams 
+**Artist**: Scott Hoy/Gen 92 
 
-**Track**: recall bounce comp
+**Track**: Scott Hoy - Confession
 
-Last updated at 4/12/2026, 12:53:23 PM
+Last updated at 4/12/2026, 12:56:18 PM
