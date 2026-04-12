@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-y2piKwgPpYDRyGuR-aCZ0Qw-t500x500.png">](https://soundcloud.com/zzzoey808/68b54a36-17d3-4901-8a35-e13259cf120b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QyJG54pnnK07i9KW-T4tySQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-born-for-this-out-now)
 
-**Artist**: Zoey808 
+**Artist**: DRIFT 
 
-**Track**: A MILLI (Zoey's Version)
+**Track**: DRIFT - BORN FOR THIS (OUT NOW)
 
-Last updated at 4/12/2026, 7:00:46 AM
+Last updated at 4/12/2026, 8:18:24 AM
