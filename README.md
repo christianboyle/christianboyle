@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8S8fqVedgWwX1u69-JKQrzw-t500x500.png">](https://soundcloud.com/ltbounceofficial/its-you-radio-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HbA7VvHAKe660z3z-ga2q5w-t500x500.jpg">](https://soundcloud.com/hate_music/arnaud-le-texier-hate-podcast)
 
-**Artist**: LT BOUNCE 
+**Artist**: HATE, Arnaud Le Texier 
 
-**Track**: IT'S YOU (RADIO EDIT)
+**Track**: Arnaud Le Texier — HATE Podcast 483
 
-Last updated at 4/12/2026, 1:50:27 PM
+Last updated at 4/12/2026, 1:56:57 PM
