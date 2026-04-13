@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season?in=saxurn/sets/panicpit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hKrXmZzH7jUSpiUZ-j5jlBQ-t500x500.png">](https://soundcloud.com/starmonsterofficial/thootie-1?in=saxurn/sets/panicpit)
 
-**Artist**: lilCee3 
+**Artist**: Star Monster 
 
-**Track**: Slime season Ft. lil30
+**Track**: Thootie
 
-Last updated at 4/13/2026, 6:01:21 PM
+Last updated at 4/13/2026, 6:03:41 PM
