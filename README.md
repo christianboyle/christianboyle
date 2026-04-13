@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epkgcV92K0FVuw6d-MME7qw-t500x500.png">](https://soundcloud.com/psychocybinrec/bigmoodfullsend2025?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ucEWC9AytupiAZIO-4vBXng-t500x500.jpg">](https://soundcloud.com/hendy2017/div-forrest-ella-my-whole-wide?in=saxurn/sets/choc-chip-drip/)
 
-**Artist**: TRON3X & Sporeprint 
+**Artist**: DJ Hendy 
 
-**Track**: TRON3X - Big Mood, Full Send (Sporeprint Remix) [2025 Remaster]
+**Track**: Div Forrest - Ella my whole wide world
 
-Last updated at 4/13/2026, 5:25:48 PM
+Last updated at 4/13/2026, 5:30:13 PM
