@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIzfU71yzF3dOFyG-z1wP5A-t500x500.jpg">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-48-hours-cruising?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWdR7oGEuHPnPGVz-7pzLqQ-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/wilson-my-own-true-north/s-WqG3WPqq84e?in=saxurn/sets/choc-chip-drip/)
 
-**Artist**: Charlie Bosh 
+**Artist**: Dj Wilson (official) 
 
-**Track**: Charlie Bosh - 48 Hours Cruising
+**Track**: Wilson - My Own True North sample
 
-Last updated at 4/13/2026, 5:47:25 PM
+Last updated at 4/13/2026, 5:50:20 PM
