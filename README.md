@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWdR7oGEuHPnPGVz-7pzLqQ-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/wilson-my-own-true-north/s-WqG3WPqq84e?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9XC1jyTxpit6x93-cmNiBw-t500x500.png">](https://soundcloud.com/n4c/temper-city-self-aware-n4c?in=saxurn/sets/choc-chip-drip/)
 
-**Artist**: Dj Wilson (official) 
+**Artist**: Temper City, N4C 
 
-**Track**: Wilson - My Own True North sample
+**Track**: Temper City - Self Aware (N4C HARD TECHNO REMIX)
 
-Last updated at 4/13/2026, 5:50:20 PM
+Last updated at 4/13/2026, 5:52:40 PM
