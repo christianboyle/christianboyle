@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-your-love-sample?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000262035605-06npjt-t500x500.jpg">](https://soundcloud.com/0-angel/complicated/s-WqG3WPqq84e?in=saxurn/sets/choc-chip-drip/)
 
-**Artist**: JGS, INTENT 
+**Artist**: 0% ANGEL 
 
-**Track**: JGS & INTENT - Your Love (Sample)
+**Track**: complicated
 
-Last updated at 4/13/2026, 5:37:54 PM
+Last updated at 4/13/2026, 5:43:04 PM
