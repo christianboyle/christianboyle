@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000262035605-06npjt-t500x500.jpg">](https://soundcloud.com/0-angel/complicated/s-WqG3WPqq84e?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIzfU71yzF3dOFyG-z1wP5A-t500x500.jpg">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-48-hours-cruising?in=saxurn/sets/choc-chip-drip/)
 
-**Artist**: 0% ANGEL 
+**Artist**: Charlie Bosh 
 
-**Track**: complicated
+**Track**: Charlie Bosh - 48 Hours Cruising
 
-Last updated at 4/13/2026, 5:43:04 PM
+Last updated at 4/13/2026, 5:47:25 PM
