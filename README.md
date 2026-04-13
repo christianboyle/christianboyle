@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r9jkzsYmIqEhCqHz-TsNr8A-t500x500.jpg">](https://soundcloud.com/lilcee3/slime-season?in=saxurn/sets/panicpit)
 
-**Artist**: Fatal Energy Records 
+**Artist**: lilCee3 
 
-**Track**: LJH - XTC (Original Mix)
+**Track**: Slime season Ft. lil30
 
-Last updated at 4/13/2026, 5:56:46 PM
+Last updated at 4/13/2026, 6:01:21 PM
