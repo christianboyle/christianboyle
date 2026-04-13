@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaOTYg01ajk8Urc8-bn1X2Q-t500x500.png">](https://soundcloud.com/dnzrecords/larj-are-we-dreaming?in=saxurn/sets/choc-chip-drip/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epkgcV92K0FVuw6d-MME7qw-t500x500.png">](https://soundcloud.com/psychocybinrec/bigmoodfullsend2025?in=saxurn/sets/choc-chip-drip/)
 
-**Artist**: LARJ 
+**Artist**: TRON3X & Sporeprint 
 
-**Track**: LARJ - Are We Dreaming
+**Track**: TRON3X - Big Mood, Full Send (Sporeprint Remix) [2025 Remaster]
 
-Last updated at 4/13/2026, 5:22:47 PM
+Last updated at 4/13/2026, 5:25:48 PM
