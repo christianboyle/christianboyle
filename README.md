@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq7dH2dWXE16Pyce-3so9sQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got?in=saxurn/sets/splitzo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aihubXHwKvrAvTFC-lP4htQ-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-time-2-1)
 
 **Artist**: DRIFT 
 
-**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
+**Track**: DRIFT & STEVEN STRAUB - TIME 2 WONDER (OUT NOW)
 
-Last updated at 4/14/2026, 5:19:27 PM
+Last updated at 4/14/2026, 5:30:45 PM
