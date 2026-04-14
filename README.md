@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VQClnqr00yWCxXgm-5FQA6Q-t500x500.png">](https://soundcloud.com/xxlifeline/osa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1FkNuiyztzKTQd6p-cXsMRA-t500x500.jpg">](https://soundcloud.com/lostkaneki/friction)
 
-**Artist**: lifeline 
+**Artist**: LOST KANEKI 
 
-**Track**: vis, girlsynth - osa (luca, attic, sydney)
+**Track**: FRICTION
 
-Last updated at 4/14/2026, 5:37:40 PM
+Last updated at 4/14/2026, 6:10:19 PM
