@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVbfd3Z9Fz2iTH8Z-GerGSA-t500x500.png">](https://soundcloud.com/kritikalmassmusic/kritikal-mass-coming-back-to?in=saxurn/sets/geezah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-your-love-sample?in=saxurn/sets/geezah)
 
-**Artist**: Kritikal Mass Music 
+**Artist**: JGS, INTENT 
 
-**Track**: Kritikal Mass - Coming Back To You (Radio Edit)
+**Track**: JGS & INTENT - Your Love (Sample)
 
-Last updated at 4/14/2026, 7:35:48 AM
+Last updated at 4/14/2026, 7:39:03 AM
