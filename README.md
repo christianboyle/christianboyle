@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix?in=saxurn/sets/geezah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ucEWC9AytupiAZIO-4vBXng-t500x500.jpg">](https://soundcloud.com/hendy2017/div-forrest-ella-my-whole-wide?in=saxurn/sets/geezah/)
 
-**Artist**: Fatal Energy Records 
+**Artist**: DJ Hendy 
 
-**Track**: LJH - XTC (Original Mix)
+**Track**: Div Forrest - Ella my whole wide world
 
-Last updated at 4/13/2026, 8:49:42 PM
+Last updated at 4/13/2026, 9:41:29 PM
