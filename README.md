@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000262035605-06npjt-t500x500.jpg">](https://soundcloud.com/0-angel/complicated?in=saxurn/sets/geezah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sIzfU71yzF3dOFyG-z1wP5A-t500x500.jpg">](https://soundcloud.com/charliebosh-cgx/charlie-bosh-48-hours-cruising?in=saxurn/sets/geezah)
 
-**Artist**: 0% ANGEL 
+**Artist**: Charlie Bosh 
 
-**Track**: complicated
+**Track**: Charlie Bosh - 48 Hours Cruising
 
-Last updated at 4/14/2026, 8:09:04 AM
+Last updated at 4/14/2026, 8:13:24 AM
