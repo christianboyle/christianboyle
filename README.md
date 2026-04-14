@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tol8bTb8WQxzPjI6-x6Laqw-t500x500.jpg">](https://soundcloud.com/itskoptic/daft-punk-technologic-koptic?in=saxurn/sets/panicpit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix?in=saxurn/sets/geezah)
 
-**Artist**: KOPTIC 
+**Artist**: Fatal Energy Records 
 
-**Track**: Daft Punk - Technologic (KOPTIC 140 Flip)
+**Track**: LJH - XTC (Original Mix)
 
-Last updated at 4/13/2026, 6:06:21 PM
+Last updated at 4/13/2026, 8:49:42 PM
