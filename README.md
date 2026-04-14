@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m9XC1jyTxpit6x93-cmNiBw-t500x500.png">](https://soundcloud.com/n4c/temper-city-self-aware-n4c?in=saxurn/sets/geezah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-njsKKt3yoFbrhL2H-SOdf7g-t500x500.png">](https://soundcloud.com/fatalenergyrecords/ljh-xtc-original-mix?in=saxurn/sets/geezah)
 
-**Artist**: Temper City, N4C 
+**Artist**: Fatal Energy Records 
 
-**Track**: Temper City - Self Aware (N4C HARD TECHNO REMIX)
+**Track**: LJH - XTC (Original Mix)
 
-Last updated at 4/14/2026, 8:18:34 AM
+Last updated at 4/14/2026, 8:22:40 AM
