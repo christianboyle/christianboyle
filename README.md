@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ucEWC9AytupiAZIO-4vBXng-t500x500.jpg">](https://soundcloud.com/hendy2017/div-forrest-ella-my-whole-wide?in=saxurn/sets/geezah/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-your-love-sample?in=saxurn/sets/geezah/)
 
-**Artist**: DJ Hendy 
+**Artist**: JGS, INTENT 
 
-**Track**: Div Forrest - Ella my whole wide world
+**Track**: JGS & INTENT - Your Love (Sample)
 
-Last updated at 4/13/2026, 9:41:29 PM
+Last updated at 4/13/2026, 9:43:54 PM
