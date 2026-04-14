@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KeRcznORn7By4gTf-xQRX6w-t500x500.png">](https://soundcloud.com/thewolf-829777791/a-nos-souvenirs-x-savez-vous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VQClnqr00yWCxXgm-5FQA6Q-t500x500.png">](https://soundcloud.com/xxlifeline/osa)
 
-**Artist**: djthewolf 
+**Artist**: lifeline 
 
-**Track**: a nos souvenirs  x savez vous planter les choux
+**Track**: vis, girlsynth - osa (luca, attic, sydney)
 
-Last updated at 4/14/2026, 5:34:45 PM
+Last updated at 4/14/2026, 5:37:40 PM
