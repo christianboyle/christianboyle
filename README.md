@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H50q3R38FuGyGnQJ-HASEzQ-t500x500.png">](https://soundcloud.com/djfinny1/dj-finny-maniac)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTDslKEI8z1psNcZ-jNIkew-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-hadone-bite-the-hand)
 
-**Artist**: djfinny1 (Darren Finlayson) 
+**Artist**: HATE, Hadone 
 
-**Track**: Dj Finny - Maniac
+**Track**: Premiere: Hadone — Bite The Hand That Feeds You [PI12]
 
-Last updated at 4/15/2026, 6:28:47 AM
+Last updated at 4/15/2026, 6:48:30 AM
