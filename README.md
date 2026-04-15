@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Azz65ydRhSZT3gW1-HzSdJw-t500x500.png">](https://soundcloud.com/maisonnmusic/gigi-dagostino-lamour-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XqZf2iWaCjaAH0yb-3VpPKw-t500x500.jpg">](https://soundcloud.com/jeffofficial/katy-perry-dark-horse-jeff-remix)
 
-**Artist**: MAISONN 
+**Artist**: JEFF?! 
 
-**Track**: gigi d'agostino-l'amour toujours-maisonn remix
+**Track**: Katy Perry - Dark Horse (JEFF?! Remix)
 
-Last updated at 4/15/2026, 7:13:58 AM
+Last updated at 4/15/2026, 7:16:23 AM
