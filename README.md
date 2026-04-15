@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FCLJ1zzXGL6RKt7g-WGWXUQ-t500x500.jpg">](https://soundcloud.com/3eight9/parasite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IwK5gcVLGQCQMaFm-bVVuag-t500x500.png">](https://soundcloud.com/h3artch3rades/birds-that-can-fly)
 
-**Artist**: kay, starry, noakid 
+**Artist**: h3artch3rades 
 
-**Track**: parasite w/ starry, noakid‎ ‎ ‎ ‎ ‎ *lyn, kay
+**Track**: birds that can fly FT. lynu (prod.awe)
 
-Last updated at 4/14/2026, 8:41:52 PM
+Last updated at 4/14/2026, 8:42:56 PM
