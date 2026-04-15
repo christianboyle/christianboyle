@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IwK5gcVLGQCQMaFm-bVVuag-t500x500.png">](https://soundcloud.com/h3artch3rades/birds-that-can-fly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/sfam-eenie-meenie)
 
-**Artist**: h3artch3rades 
+**Artist**: sfam 
 
-**Track**: birds that can fly FT. lynu (prod.awe)
+**Track**: sfam - Eenie Meenie | Subsidia
 
-Last updated at 4/14/2026, 8:42:56 PM
+Last updated at 4/14/2026, 8:45:52 PM
