@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VQClnqr00yWCxXgm-5FQA6Q-t500x500.png">](https://soundcloud.com/xxlifeline/osa)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J2TUnrZHDvgiOrvV-jOQD8g-t500x500.jpg">](https://soundcloud.com/roadtriptoanywhere/highschool?in=1crusafix/sets/roadtrip-to-anywhere)
 
-**Artist**: lifeline 
+**Artist**: roadtrip to anywhere 
 
-**Track**: vis, girlsynth - osa (luca, attic, sydney)
+**Track**: The end of high school (Demo)
 
-Last updated at 4/14/2026, 8:24:48 PM
+Last updated at 4/14/2026, 8:26:13 PM
