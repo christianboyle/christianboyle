@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Dx0vyGxrO2jmuj2K-S5fAOA-t500x500.png">](https://soundcloud.com/neo_trance/late28-taste-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0SPeeudWtjOfg40u-QPlZ7w-t500x500.png">](https://soundcloud.com/dnzrecords/phil-anderson-bodders-holding)
 
-**Artist**: LATE28 
+**Artist**: Phil Anderson & Bodders 
 
-**Track**: LATE28 - Taste You
+**Track**: Phil Anderson & Bodders - Holding The Light
 
-Last updated at 4/15/2026, 7:27:49 AM
+Last updated at 4/15/2026, 7:31:39 AM
