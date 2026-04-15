@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/twstd-zoo-youngwolf-jumpin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Azz65ydRhSZT3gW1-HzSdJw-t500x500.png">](https://soundcloud.com/maisonnmusic/gigi-dagostino-lamour-2)
 
-**Artist**: TWSTD ZOO, YoungWolf 
+**Artist**: MAISONN 
 
-**Track**: TWSTD ZOO & YoungWolf - Jumpin | Subsidia
+**Track**: gigi d'agostino-l'amour toujours-maisonn remix
 
-Last updated at 4/15/2026, 7:10:58 AM
+Last updated at 4/15/2026, 7:13:58 AM
