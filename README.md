@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTDslKEI8z1psNcZ-jNIkew-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-hadone-bite-the-hand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GkOUOyMInSo5l5pR-9yYRhw-t500x500.png">](https://soundcloud.com/hirohiro_hrhr/hirohiro-live-on-zeke04-2026-4)
 
-**Artist**: HATE, Hadone 
+**Artist**: HiroHiro 
 
-**Track**: Premiere: Hadone — Bite The Hand That Feeds You [PI12]
+**Track**: HiroHiro Live on #ZEKE04 [2026.4.11]
 
-Last updated at 4/15/2026, 6:48:30 AM
+Last updated at 4/15/2026, 7:06:42 AM
