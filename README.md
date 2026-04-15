@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq7dH2dWXE16Pyce-3so9sQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got?in=saxurn/sets/splitzo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epkgcV92K0FVuw6d-MME7qw-t500x500.png">](https://soundcloud.com/psychocybinrec/bigmoodfullsend2025?in=saxurn/sets/geezah)
 
-**Artist**: DRIFT 
+**Artist**: TRON3X & Sporeprint 
 
-**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
+**Track**: TRON3X - Big Mood, Full Send (Sporeprint Remix) [2025 Remaster]
 
-Last updated at 4/14/2026, 8:57:23 PM
+Last updated at 4/14/2026, 9:00:28 PM
