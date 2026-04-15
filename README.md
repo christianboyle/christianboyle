@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-J2TUnrZHDvgiOrvV-jOQD8g-t500x500.jpg">](https://soundcloud.com/roadtriptoanywhere/highschool?in=1crusafix/sets/roadtrip-to-anywhere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nytdvbTA2OAkv2um-O7BQtQ-t500x500.jpg">](https://soundcloud.com/1crusafix/fairytale)
 
-**Artist**: roadtrip to anywhere 
+**Artist**: crusafix 
 
-**Track**: The end of high school (Demo)
+**Track**: fairytale w/ trustt + isai + c4pri (tcl)
 
-Last updated at 4/14/2026, 8:26:13 PM
+Last updated at 4/14/2026, 8:27:15 PM
