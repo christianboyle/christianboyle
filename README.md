@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5hujmS8v9D1XKy0-X7xMIg-t500x500.png">](https://soundcloud.com/monta-musica/assault-default)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oMFroXXAWin2z7NN-zEYOiw-t500x500.jpg">](https://soundcloud.com/ravvenmusik/premiere-illarion-shrine-1)
 
-**Artist**: Monta Musica 
+**Artist**: Raven Musik 
 
-**Track**: Assault - Default
+**Track**: PREMIERE: Illarion - Shrine (Surreal Self Remix) [NuHouse]
 
-Last updated at 4/15/2026, 5:35:44 PM
+Last updated at 4/15/2026, 5:38:04 PM
