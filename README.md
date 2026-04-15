@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sq7dH2dWXE16Pyce-3so9sQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-aliikore-weve-got?in=saxurn/sets/splitzo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRBrJugqMQ1Ml62B-YxEz1A-t500x500.png">](https://soundcloud.com/melodicdancemusic/free-dl-oliver-strance-moving)
 
-**Artist**: DRIFT 
+**Artist**: Oliver Strance 
 
-**Track**: DRIFT & ALIIKORE - WEVE GOT SOMETHING COOL (RADIO EDIT)
+**Track**: FREE DL: Oliver Strance - Moving Low  (Original Mix)
 
-Last updated at 4/14/2026, 7:44:02 PM
+Last updated at 4/14/2026, 8:11:47 PM
