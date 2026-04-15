@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GXrlUU4hJya9C9cq-0WGPPA-t500x500.jpg">](https://soundcloud.com/lynyou/want-you-gone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FCLJ1zzXGL6RKt7g-WGWXUQ-t500x500.jpg">](https://soundcloud.com/3eight9/parasite)
 
-**Artist**: lynU 
+**Artist**: kay, starry, noakid 
 
-**Track**: Want you gone [cover] 10.23.25
+**Track**: parasite w/ starry, noakid‎ ‎ ‎ ‎ ‎ *lyn, kay
 
-Last updated at 4/14/2026, 8:30:21 PM
+Last updated at 4/14/2026, 8:41:52 PM
