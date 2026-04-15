@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aAR7msxxaHB09gjf-rUPJeg-t500x500.jpg">](https://soundcloud.com/bncybncy/bncy-af-vol-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rDxQhI8PCnBr5tAp-ZCoa5A-t500x500.jpg">](https://soundcloud.com/froggore/lilypadvillage)
 
-**Artist**: BAD 
+**Artist**: FROGGORE 
 
-**Track**: BNCY AF Vol 4 | New & Exclusive
+**Track**: FROGGORE - LILY PAD VILLAGE
 
-Last updated at 4/15/2026, 6:09:32 PM
+Last updated at 4/15/2026, 6:10:32 PM
