@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zdtAzpt06qzMFLoD-OEhQng-t500x500.png">](https://soundcloud.com/flawx/open-your-eyes?in=saxurn/sets/splitzo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhFMBRLTl10JGooF-m91HDA-t500x500.png">](https://soundcloud.com/dj-ste-willo/asha-jjs-tribute-ste-willo)
 
-**Artist**: FLAWX, IXAKT, DIYU 
+**Artist**: Ste Willo 
 
-**Track**: OPEN YOUR EYES [FREE DL]
+**Track**: Asha - JJ's Tribute (Ste Willo Remix) ***Free Download***
 
-Last updated at 4/14/2026, 8:20:23 PM
+Last updated at 4/14/2026, 8:21:32 PM
