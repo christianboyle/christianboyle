@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/revive-djs-star-sample?in=revolution-records-uk/sets/new-releases-coming-soon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i5hujmS8v9D1XKy0-X7xMIg-t500x500.png">](https://soundcloud.com/monta-musica/assault-default)
 
-**Artist**: Revolution-Records UK 
+**Artist**: Monta Musica 
 
-**Track**: Revive DJ's - Star (Sample)
+**Track**: Assault - Default
 
-Last updated at 4/15/2026, 5:32:48 PM
+Last updated at 4/15/2026, 5:35:44 PM
