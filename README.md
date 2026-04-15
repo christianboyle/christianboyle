@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nytdvbTA2OAkv2um-O7BQtQ-t500x500.jpg">](https://soundcloud.com/1crusafix/fairytale)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FwCgxPzNqPE0zGUk-gO3VWw-t500x500.jpg">](https://soundcloud.com/c4v/guap)
 
-**Artist**: crusafix 
+**Artist**: c4pri 
 
-**Track**: fairytale w/ trustt + isai + c4pri (tcl)
+**Track**: mr. guap getter
 
-Last updated at 4/14/2026, 8:27:15 PM
+Last updated at 4/14/2026, 8:28:30 PM
