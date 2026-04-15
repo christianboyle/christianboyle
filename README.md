@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zTOKQWACFfRrwPlr-WGXSmw-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/all-night-with-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UUsuV2yKOT9VMrcN-MRbKAw-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-soap-radio)
 
-**Artist**: SHAUNA HILLS 
+**Artist**: DRIFT & STEVEN STRAUB 
 
-**Track**: “All Night With You” 🤘
+**Track**: DRIFT & STEVEN STRAUB - SOAP (RADIO EDIT)
 
-Last updated at 4/15/2026, 7:35:05 AM
+Last updated at 4/15/2026, 7:46:21 AM
