@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uivsCBZLHF8GnP7i-BygRzg-t500x500.png">](https://soundcloud.com/jaenga/waka-flocka-no-hands-jaenga?in=saxurn/sets/glassius/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KtVLFFyFGHttsCSG-Avba3g-t500x500.png">](https://soundcloud.com/410107/wig-split)
 
-**Artist**: Jaenga 
+**Artist**: WOOK APPRUVD 
 
-**Track**: Waka Flocka - No Hands (Jaenga Remix)
+**Track**: WIG SPLIT
 
-Last updated at 4/15/2026, 8:50:39 PM
+Last updated at 4/15/2026, 8:53:45 PM
