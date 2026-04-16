@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rll3h1t1ILzVGsTw-jYALyQ-t500x500.png">](https://soundcloud.com/enso_reords/rose_funk-28)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ANndJnlfqF60AoMT-fKwLVQ-t500x500.png">](https://soundcloud.com/gazsummers/gaz-summers-you-and-i-on-the)
 
-**Artist**: RIO VIBE 
+**Artist**: Gaz Summers (uk hardcore dj/producer) 
 
-**Track**: ROSE_FUNK
+**Track**: Gaz Summers -You And I On The Dancefloor
 
-Last updated at 4/16/2026, 5:26:49 PM
+Last updated at 4/16/2026, 5:28:40 PM
