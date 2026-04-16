@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z728PkNaeg5omT7Z-Fq92Yg-t500x500.png">](https://soundcloud.com/subcietypresents/beholder?in=sqwurl/sets/beholder-subciety-presents)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLTqmMHyaUNkWnmL-xI9Wzg-t500x500.jpg">](https://soundcloud.com/lynyou/take-a-chance?in=saxurn/sets/glassius/)
 
-**Artist**: SQWURL 
+**Artist**: lynU 
 
-**Track**: Beholder
+**Track**: Take a chance
 
-Last updated at 4/15/2026, 6:14:42 PM
+Last updated at 4/15/2026, 7:22:20 PM
