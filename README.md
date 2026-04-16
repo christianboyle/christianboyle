@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLTqmMHyaUNkWnmL-xI9Wzg-t500x500.jpg">](https://soundcloud.com/lynyou/take-a-chance?in=saxurn/sets/glassius/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/sfam-eenie-meenie?in=saxurn/sets/glassius/)
 
-**Artist**: lynU 
+**Artist**: sfam 
 
-**Track**: Take a chance
+**Track**: sfam - Eenie Meenie | Subsidia
 
-Last updated at 4/15/2026, 7:22:20 PM
+Last updated at 4/15/2026, 7:24:21 PM
