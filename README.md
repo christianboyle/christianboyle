@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tahI1p7vyH6T1YF9-EytNcg-t500x500.jpg">](https://soundcloud.com/xxlifeline/donutrolls?in=saxurn/sets/glassius/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n334TOVWlj3ikVsw-WT6vgA-t500x500.png">](https://soundcloud.com/xsourcex-code-103847723/ambivalence?in=saxurn/sets/glassius/)
 
-**Artist**: lifeline 
+**Artist**: 🧙‍♂️XSOURCEX-CODE🪬👁Productions👁🎧 
 
-**Track**: oko, akkiro, stomping plastic - donut rolls (bmolly)
+**Track**: Ambivalence
 
-Last updated at 4/15/2026, 8:35:13 PM
+Last updated at 4/15/2026, 8:37:28 PM
