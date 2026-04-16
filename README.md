@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ANndJnlfqF60AoMT-fKwLVQ-t500x500.png">](https://soundcloud.com/gazsummers/gaz-summers-you-and-i-on-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cevmDiiHcSdP-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/beautiful-liar)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: Klubfiller 
 
-**Track**: Gaz Summers -You And I On The Dancefloor
+**Track**: Beautiful Liar
 
-Last updated at 4/16/2026, 5:28:40 PM
+Last updated at 4/16/2026, 5:30:50 PM
