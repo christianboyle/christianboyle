@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n334TOVWlj3ikVsw-WT6vgA-t500x500.png">](https://soundcloud.com/xsourcex-code-103847723/ambivalence?in=saxurn/sets/glassius/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-the-original?in=saxurn/sets/glassius/)
 
-**Artist**: 🧙‍♂️XSOURCEX-CODE🪬👁Productions👁🎧 
+**Artist**: V-Bounce 
 
-**Track**: Ambivalence
+**Track**: V-Bounce - The Original
 
-Last updated at 4/15/2026, 8:37:28 PM
+Last updated at 4/15/2026, 8:43:24 PM
