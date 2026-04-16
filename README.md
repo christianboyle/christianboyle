@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KtVLFFyFGHttsCSG-Avba3g-t500x500.png">](https://soundcloud.com/410107/wig-split)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLTqmMHyaUNkWnmL-xI9Wzg-t500x500.jpg">](https://soundcloud.com/lynyou/take-a-chance?in=saxurn/sets/glassius/)
 
-**Artist**: WOOK APPRUVD 
+**Artist**: lynU 
 
-**Track**: WIG SPLIT
+**Track**: Take a chance
 
-Last updated at 4/15/2026, 8:53:45 PM
+Last updated at 4/15/2026, 8:55:15 PM
