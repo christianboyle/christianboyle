@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-the-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1zXCMRlt4VyYBMz-1zvD4A-t500x500.png">](https://soundcloud.com/unchainedlabel/anotherone)
 
-**Artist**: V-Bounce 
+**Artist**: T A N E 
 
-**Track**: V-Bounce - The Original
+**Track**: Another One
 
-Last updated at 4/17/2026, 5:34:05 AM
+Last updated at 4/17/2026, 6:09:36 AM
