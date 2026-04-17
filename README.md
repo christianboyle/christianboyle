@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n334TOVWlj3ikVsw-WT6vgA-t500x500.png">](https://soundcloud.com/xsourcex-code-103847723/ambivalence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLTqmMHyaUNkWnmL-xI9Wzg-t500x500.jpg">](https://soundcloud.com/lynyou/take-a-chance)
 
-**Artist**: 🧙‍♂️XSOURCEX-CODE🪬👁Productions👁🎧 
+**Artist**: lynU 
 
-**Track**: Ambivalence
+**Track**: Take a chance
 
-Last updated at 4/17/2026, 6:46:48 PM
+Last updated at 4/17/2026, 6:52:44 PM
