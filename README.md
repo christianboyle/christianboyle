@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1KoA74O0DMmNWNgy-g52c0Q-t500x500.jpg">](https://soundcloud.com/sportmodemusic/appl-bottom-jeanz?in=saxurn/sets/glassius/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/sfam-eenie-meenie?in=saxurn/sets/glassius/)
 
-**Artist**: SPORTMODE 
+**Artist**: sfam 
 
-**Track**: Flo Rida ft. T-Pain - Low (sportmode rmx)
+**Track**: sfam - Eenie Meenie | Subsidia
 
-Last updated at 4/16/2026, 8:10:02 PM
+Last updated at 4/16/2026, 8:13:42 PM
