@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ml4Jj81cHJRauLoy-V7jYRg-t500x500.png">](https://soundcloud.com/djad83/3-2-happy-hardcore-djad-a-good)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsysWrJi8Mls8bBa-R4ogBg-t500x500.jpg">](https://soundcloud.com/skinnylimbs/awesome-1)
 
-**Artist**: Djad 
+**Artist**: Skinny Limbs 
 
-**Track**: 3.2 Happy Hardcore DjAd A good mixture of tunes !
+**Track**: Awesome
 
-Last updated at 4/17/2026, 4:40:53 PM
+Last updated at 4/17/2026, 4:45:59 PM
