@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RBXYnAZO5arCn7pX-V9ht7g-t500x500.png">](https://soundcloud.com/hani-al-mandeel/gym-protocol-1237-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sgx5nNT0SQUYAtzi-3Z6dXw-t500x500.png">](https://soundcloud.com/initi8uk/initi8-feels-like-heaven)
 
-**Artist**: IRON PROTOCOL 
+**Artist**: Initi8 
 
-**Track**: GYM PROTOCOL 123.7
+**Track**: INITI8 - FEELS LIKE HEAVEN
 
-Last updated at 4/16/2026, 7:58:52 PM
+Last updated at 4/16/2026, 7:59:56 PM
