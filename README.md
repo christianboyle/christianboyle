@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cca5vwTZmkf0WrmO-dbt2hA-t500x500.png">](https://soundcloud.com/razrwav/razrwav-c-u-l-t-vol-1-mixed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1zXCMRlt4VyYBMz-1zvD4A-t500x500.png">](https://soundcloud.com/unchainedlabel/anotherone)
 
-**Artist**: RAZRWAV 
+**Artist**: T A N E 
 
-**Track**: C.U.L.T. Vol. 1
+**Track**: Another One
 
-Last updated at 4/17/2026, 5:53:14 PM
+Last updated at 4/17/2026, 6:13:00 PM
