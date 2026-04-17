@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLTqmMHyaUNkWnmL-xI9Wzg-t500x500.jpg">](https://soundcloud.com/lynyou/take-a-chance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-spaXZIQcR9NO-0-t500x500.jpg">](https://soundcloud.com/bonkers-rave/begging-me-for-more)
 
-**Artist**: lynU 
+**Artist**: Cally, MKN 
 
-**Track**: Take a chance
+**Track**: Begging Me For More
 
-Last updated at 4/17/2026, 6:52:44 PM
+Last updated at 4/17/2026, 6:54:44 PM
