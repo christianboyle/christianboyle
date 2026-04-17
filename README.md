@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1zXCMRlt4VyYBMz-1zvD4A-t500x500.png">](https://soundcloud.com/unchainedlabel/anotherone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TqyGifTX6P23VfGq-DFiDuw-t500x500.png">](https://soundcloud.com/dnzrecords/dj-chris-davies-naked-passion)
 
-**Artist**: T A N E 
+**Artist**: DJ Chris Davies 
 
-**Track**: Another One
+**Track**: DJ Chris Davies - Naked Passion
 
-Last updated at 4/17/2026, 6:09:36 AM
+Last updated at 4/17/2026, 6:13:56 AM
