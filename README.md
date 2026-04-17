@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/twstd-zoo-youngwolf-jumpin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a3GcecR8loYkPaMq-AOpTNw-t500x500.jpg">](https://soundcloud.com/billythekiddub/becky-hill-chase-status)
 
-**Artist**: TWSTD ZOO, YoungWolf 
+**Artist**: BILLYTHEKID 
 
-**Track**: TWSTD ZOO & YoungWolf - Jumpin | Subsidia
+**Track**: Becky Hill & Chase & Status - Disconnect (BILLYTHEKID BOOTLEG)
 
-Last updated at 4/17/2026, 4:52:09 PM
+Last updated at 4/17/2026, 4:55:15 PM
