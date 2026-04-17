@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srenP66YhGz3-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/miracle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n334TOVWlj3ikVsw-WT6vgA-t500x500.png">](https://soundcloud.com/xsourcex-code-103847723/ambivalence)
 
-**Artist**: Klubfiller 
+**Artist**: 🧙‍♂️XSOURCEX-CODE🪬👁Productions👁🎧 
 
-**Track**: Miracle
+**Track**: Ambivalence
 
-Last updated at 4/17/2026, 6:43:13 PM
+Last updated at 4/17/2026, 6:46:48 PM
