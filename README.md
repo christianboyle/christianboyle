@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tahI1p7vyH6T1YF9-EytNcg-t500x500.jpg">](https://soundcloud.com/xxlifeline/donutrolls)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qaOTYg01ajk8Urc8-bn1X2Q-t500x500.png">](https://soundcloud.com/dnzrecords/larj-are-we-dreaming)
 
-**Artist**: lifeline 
+**Artist**: LARJ 
 
-**Track**: oko, akkiro, stomping plastic - donut rolls (bmolly)
+**Track**: LARJ - Are We Dreaming
 
-Last updated at 4/17/2026, 7:03:55 PM
+Last updated at 4/17/2026, 7:06:10 PM
