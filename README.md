@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOPmkz7SQmfEGo9K-EgBklA-t500x500.png">](https://soundcloud.com/deckheadzuk/bcxd-dancing-in-the-dark-dj?in=saxurn/sets/glassius)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1KoA74O0DMmNWNgy-g52c0Q-t500x500.jpg">](https://soundcloud.com/sportmodemusic/appl-bottom-jeanz?in=saxurn/sets/glassius)
 
-**Artist**: DeckHead 
+**Artist**: SPORTMODE 
 
-**Track**: BCXD (Ben Critic X Deckhead) - Dancing In The Dark - DJ Edit
+**Track**: Flo Rida ft. T-Pain - Low (sportmode rmx)
 
-Last updated at 4/18/2026, 6:21:23 PM
+Last updated at 4/18/2026, 6:25:13 PM
