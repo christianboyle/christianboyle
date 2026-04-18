@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsysWrJi8Mls8bBa-R4ogBg-t500x500.jpg">](https://soundcloud.com/skinnylimbs/awesome-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/sfam-eenie-meenie?in=saxurn/sets/glassius/)
 
-**Artist**: Skinny Limbs 
+**Artist**: sfam 
 
-**Track**: Awesome
+**Track**: sfam - Eenie Meenie | Subsidia
 
-Last updated at 4/18/2026, 9:21:40 AM
+Last updated at 4/18/2026, 10:40:17 AM
