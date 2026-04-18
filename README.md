@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-epkgcV92K0FVuw6d-MME7qw-t500x500.png">](https://soundcloud.com/psychocybinrec/bigmoodfullsend2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wVbfd3Z9Fz2iTH8Z-GerGSA-t500x500.png">](https://soundcloud.com/kritikalmassmusic/kritikal-mass-coming-back-to)
 
-**Artist**: TRON3X & Sporeprint 
+**Artist**: Kritikal Mass Music 
 
-**Track**: TRON3X - Big Mood, Full Send (Sporeprint Remix) [2025 Remaster]
+**Track**: Kritikal Mass - Coming Back To You (Radio Edit)
 
-Last updated at 4/17/2026, 7:09:10 PM
+Last updated at 4/17/2026, 7:13:32 PM
