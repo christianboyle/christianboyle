@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ucEWC9AytupiAZIO-4vBXng-t500x500.jpg">](https://soundcloud.com/hendy2017/div-forrest-ella-my-whole-wide)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgq3yguJpvpp4U7u-zmZ5Hw-t500x500.png">](https://soundcloud.com/viperactive/junglebae)
 
-**Artist**: DJ Hendy 
+**Artist**: Viperactive 
 
-**Track**: Div Forrest - Ella my whole wide world
+**Track**: JUNGLE BAE REMIX
 
-Last updated at 4/17/2026, 7:16:51 PM
+Last updated at 4/17/2026, 8:16:55 PM
