@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgq3yguJpvpp4U7u-zmZ5Hw-t500x500.png">](https://soundcloud.com/viperactive/junglebae?in=saxurn/sets/glassius)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOPmkz7SQmfEGo9K-EgBklA-t500x500.png">](https://soundcloud.com/deckheadzuk/bcxd-dancing-in-the-dark-dj?in=saxurn/sets/glassius)
 
-**Artist**: Viperactive 
+**Artist**: DeckHead 
 
-**Track**: JUNGLE BAE REMIX
+**Track**: BCXD (Ben Critic X Deckhead) - Dancing In The Dark - DJ Edit
 
-Last updated at 4/18/2026, 6:18:37 PM
+Last updated at 4/18/2026, 6:21:23 PM
