@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ANndJnlfqF60AoMT-fKwLVQ-t500x500.png">](https://soundcloud.com/gazsummers/gaz-summers-you-and-i-on-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-srenP66YhGz3-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/miracle)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: Klubfiller 
 
-**Track**: Gaz Summers -You And I On The Dancefloor
+**Track**: Miracle
 
-Last updated at 4/17/2026, 9:06:00 PM
+Last updated at 4/17/2026, 9:08:15 PM
