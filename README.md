@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R1zXCMRlt4VyYBMz-1zvD4A-t500x500.png">](https://soundcloud.com/unchainedlabel/anotherone)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KsysWrJi8Mls8bBa-R4ogBg-t500x500.jpg">](https://soundcloud.com/skinnylimbs/awesome-1)
 
-**Artist**: T A N E 
+**Artist**: Skinny Limbs 
 
-**Track**: Another One
+**Track**: Awesome
 
-Last updated at 4/17/2026, 8:38:47 PM
+Last updated at 4/17/2026, 8:42:17 PM
