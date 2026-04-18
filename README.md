@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyF0qmIudWhzdxPG-XpRcBw-t500x500.png">](https://soundcloud.com/fluxcollective/komet99-you-slowly-disappear-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1Yj3zhJ5M4sK6fGt-cjhfRA-t500x500.jpg">](https://soundcloud.com/initi8uk/stella-lefty-boston-initi8)
 
-**Artist**: Flux Collective 
+**Artist**: Initi8 
 
-**Track**: Komet99 -  You Slowly Disappear (Astral Bandit Remix)
+**Track**: Stella Lefty - Boston - Initi8 Remix
 
-Last updated at 4/17/2026, 8:50:33 PM
+Last updated at 4/17/2026, 8:57:49 PM
