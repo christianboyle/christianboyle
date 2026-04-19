@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tNMeVdGnsVQD9vcu-zR5yAg-t500x500.png">](https://soundcloud.com/godvliet-records/baseline-havoc-4-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jpYiUMUsc7jfQqJn-Jrl9zQ-t500x500.jpg">](https://soundcloud.com/tejvirjogani/hit-me-where-it-hurts-x-tej)
 
-**Artist**: Neon Phantoms 
+**Artist**: Skrillex, Dylan Brady, Caroline Pochak, Tej 
 
-**Track**: Baseline Havoc (4)
+**Track**: hit me where it hurts x  (TEJ FLIP) [FREE DL]
 
-Last updated at 4/19/2026, 10:11:00 AM
+Last updated at 4/19/2026, 10:13:25 AM
