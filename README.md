@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BrjEzW1imOZ6vUd-yvMNug-t500x500.png">](https://soundcloud.com/jaxonwild/choparezz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7dn5QxcQO7zWztCv-qzmg6w-t500x500.png">](https://soundcloud.com/scullionmusic/fuckthespeakerzupflip)
 
-**Artist**: Jaxon Wild 
+**Artist**: ISOxo 
 
-**Track**: CHOPAREZ
+**Track**: FUCK THE SPEAKERZ UP (SCULLION FLIP)
 
-Last updated at 4/19/2026, 10:33:09 AM
+Last updated at 4/19/2026, 10:36:25 AM
