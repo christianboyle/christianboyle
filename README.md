@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTaOXngbBCzW1C5V-Oz0cEQ-t500x500.jpg">](https://soundcloud.com/veiledeyemusic/bring-it-back-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qId7VOMXdTo3L0hi-DRVK8w-t500x500.jpg">](https://soundcloud.com/contrahq/poosha)
 
-**Artist**: Veiled Eye 
+**Artist**: Skrillex, Nitepunk & DJ Smokey 
 
-**Track**: BRING IT BACK UP
+**Track**: Skrillex, Nitepunk & DJ Smokey - POOSHA
 
-Last updated at 4/19/2026, 11:05:33 AM
+Last updated at 4/19/2026, 11:08:38 AM
