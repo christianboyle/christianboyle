@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jXxXkGxiLGqUKYTs-WgKZcg-t500x500.png">](https://soundcloud.com/hmewrkmusic/isoxo_voxcutr_remix_w_aydo8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wt3UBqpn9dwvZHEH-JLJctA-t500x500.png">](https://soundcloud.com/rickyremedy/voltage)
 
-**Artist**: HMEWRK. 
+**Artist**: Remedy 
 
-**Track**: ISOxo - VOXCUTR (AYDO8 x HMEWRK. Remix)
+**Track**: VOLTAGE (RICKY REMEDY FLIP)
 
-Last updated at 4/19/2026, 10:42:20 AM
+Last updated at 4/19/2026, 10:45:56 AM
