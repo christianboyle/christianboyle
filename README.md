@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0J0H4D65S5JH9S66-zFAMsA-t500x500.png">](https://soundcloud.com/basstrip8455/fuck-the-subwoofer-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RRnTyvOVw7qcepkk-hS4qaQ-t500x500.png">](https://soundcloud.com/jpky/pinkpanthress-stateside-zara)
 
-**Artist**: BASSTRIP 
+**Artist**: JPKy 
 
-**Track**: FUCK THE SUBWOOFER UP
+**Track**: pinkpanthress - stateside + zara larsson (jpky flip)
 
-Last updated at 4/19/2026, 9:59:59 AM
+Last updated at 4/19/2026, 10:03:04 AM
