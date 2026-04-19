@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgq3yguJpvpp4U7u-zmZ5Hw-t500x500.png">](https://soundcloud.com/viperactive/junglebae?in=saxurn/sets/glassius)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udCGKak5UqMyaDeZ-mwCLlg-t500x500.jpg">](https://soundcloud.com/virusmafiamusic/virus-is-bored-gold-remix)
 
-**Artist**: Viperactive 
+**Artist**: Virus Mafia, JWLS, Wiwek 
 
-**Track**: JUNGLE BAE REMIX
+**Track**: IM BORED
 
-Last updated at 4/19/2026, 9:49:48 AM
+Last updated at 4/19/2026, 9:51:53 AM
