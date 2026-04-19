@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kdQ2w2Bso4ehjijh-thOHxA-t500x500.png">](https://soundcloud.com/mayetrix/spiral)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6zvXIwuBcUG5i8i-BKAcOQ-t500x500.png">](https://soundcloud.com/capshun/shiftfreq-animals-remix)
 
-**Artist**: MAYETRIX 
+**Artist**:  shiftFREQ, capshun, pryzms, 
 
-**Track**: ISOxo & Brutalismus 3000 - SPIRAL (MAYETRIX Flip)
+**Track**: shiftFREQ - ANIMALS REMIX
 
-Last updated at 4/19/2026, 10:05:29 AM
+Last updated at 4/19/2026, 10:07:40 AM
