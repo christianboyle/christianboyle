@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-udCGKak5UqMyaDeZ-mwCLlg-t500x500.jpg">](https://soundcloud.com/virusmafiamusic/virus-is-bored-gold-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJGm5qaKfy9mdvtY-3Ub4MA-t500x500.png">](https://soundcloud.com/enso_reords/final_rage_v55-35)
 
-**Artist**: Virus Mafia, JWLS, Wiwek 
+**Artist**: RIO VIBE 
 
-**Track**: IM BORED
+**Track**: FINAL_RAGE_v5.5
 
-Last updated at 4/19/2026, 9:51:53 AM
+Last updated at 4/19/2026, 9:54:58 AM
