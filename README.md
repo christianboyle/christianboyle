@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6zvXIwuBcUG5i8i-BKAcOQ-t500x500.png">](https://soundcloud.com/capshun/shiftfreq-animals-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tNMeVdGnsVQD9vcu-zR5yAg-t500x500.png">](https://soundcloud.com/godvliet-records/baseline-havoc-4-4)
 
-**Artist**:  shiftFREQ, capshun, pryzms, 
+**Artist**: Neon Phantoms 
 
-**Track**: shiftFREQ - ANIMALS REMIX
+**Track**: Baseline Havoc (4)
 
-Last updated at 4/19/2026, 10:19:43 AM
+Last updated at 4/19/2026, 10:22:59 AM
