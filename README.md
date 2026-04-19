@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzLVUNsdNbJhfybf-sumKGw-t500x500.png">](https://soundcloud.com/mayetrix/hitmewhereithurts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BTaOXngbBCzW1C5V-Oz0cEQ-t500x500.jpg">](https://soundcloud.com/veiledeyemusic/bring-it-back-up)
 
-**Artist**: MAYETRIX 
+**Artist**: Veiled Eye 
 
-**Track**: Skrillex, Dylan Brady & Caroline Polachek - hit me where it hurts x (MAYETRIX Flip)
+**Track**: BRING IT BACK UP
 
-Last updated at 4/19/2026, 11:03:23 AM
+Last updated at 4/19/2026, 11:05:33 AM
