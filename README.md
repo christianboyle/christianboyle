@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X7ZfzDxHaR8WRoaI-STCtTg-t500x500.png">](https://soundcloud.com/mayetrix/bassdhol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpzySmX3Ytg6Baxt-MwFbmw-t500x500.png">](https://soundcloud.com/basstrip8455/applebottombass)
 
-**Artist**: MAYETRIX, Endless 
+**Artist**: BASSTRIP 
 
-**Track**: Skrillex, Ahadadream & Raf Saperra - Bass Dhol (MAYETRIX & Endless Flip)
+**Track**: APPLE BOTTOM BASS
 
-Last updated at 4/19/2026, 10:27:54 AM
+Last updated at 4/19/2026, 10:30:49 AM
