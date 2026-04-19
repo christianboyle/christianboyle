@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OyQmxZWHR2kiuG90-g9B0IA-t500x500.png">](https://soundcloud.com/joytimecollective/killmatter-automail)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63iOo8hlcPyF2jIj-VCK4QQ-t500x500.jpg">](https://soundcloud.com/thisislodien/reconnect-lodien-kat-flip)
 
-**Artist**: KILLMATTER 
+**Artist**: Virtual Riot 
 
-**Track**: KILLMATTER - AUTOMAIL
+**Track**: Reconnect (LODIEN & KAT FLIP)
 
-Last updated at 4/19/2026, 10:49:11 AM
+Last updated at 4/19/2026, 10:53:47 AM
