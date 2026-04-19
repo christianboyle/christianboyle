@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yzyd6fbxKwVLVb62-QH9tSw-t500x500.png">](https://soundcloud.com/mayetrix/delilahpullmeoutofthis)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0J0H4D65S5JH9S66-zFAMsA-t500x500.png">](https://soundcloud.com/basstrip8455/fuck-the-subwoofer-up)
 
-**Artist**: MAYETRIX 
+**Artist**: BASSTRIP 
 
-**Track**: Fred again.. - Delilah (pull me out of this) [MAYETRIX Flip]
+**Track**: FUCK THE SUBWOOFER UP
 
-Last updated at 4/19/2026, 9:57:54 AM
+Last updated at 4/19/2026, 9:59:59 AM
