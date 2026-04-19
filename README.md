@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-63iOo8hlcPyF2jIj-VCK4QQ-t500x500.jpg">](https://soundcloud.com/thisislodien/reconnect-lodien-kat-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VSh5tz7mYIk93O4g-kyzNrg-t500x500.png">](https://soundcloud.com/jpky/zedd-spectrum-jpky-flip)
 
-**Artist**: Virtual Riot 
+**Artist**: jpky 
 
-**Track**: Reconnect (LODIEN & KAT FLIP)
+**Track**: zedd - spectrum (jpky flip)
 
-Last updated at 4/19/2026, 10:53:47 AM
+Last updated at 4/19/2026, 10:57:02 AM
