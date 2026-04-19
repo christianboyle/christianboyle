@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X8a240OzDjJ57a42-YHmMYQ-t500x500.png">](https://soundcloud.com/saint-karst/ghost-cache-memory-16)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQyGwx9ohhTNOxv3-Us8Hrg-t500x500.png">](https://soundcloud.com/remkmusic/give-me-everything-remk)
 
-**Artist**: SAINt Karst 
+**Artist**: RemK 
 
-**Track**: Ghost Cache Memory
+**Track**: Give Me Everything (RemK Remix)
 
-Last updated at 4/19/2026, 2:07:25 PM
+Last updated at 4/19/2026, 2:09:55 PM
