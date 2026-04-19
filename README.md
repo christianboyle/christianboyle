@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uOPmkz7SQmfEGo9K-EgBklA-t500x500.png">](https://soundcloud.com/deckheadzuk/bcxd-dancing-in-the-dark-dj?in=saxurn/sets/glassius)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RLTqmMHyaUNkWnmL-xI9Wzg-t500x500.jpg">](https://soundcloud.com/lynyou/take-a-chance?in=saxurn/sets/glassius)
 
-**Artist**: DeckHead 
+**Artist**: lynU 
 
-**Track**: BCXD (Ben Critic X Deckhead) - Dancing In The Dark - DJ Edit
+**Track**: Take a chance
 
-Last updated at 4/18/2026, 6:28:48 PM
+Last updated at 4/19/2026, 9:21:01 AM
