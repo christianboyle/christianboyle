@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpzySmX3Ytg6Baxt-MwFbmw-t500x500.png">](https://soundcloud.com/basstrip8455/applebottombass)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BrjEzW1imOZ6vUd-yvMNug-t500x500.png">](https://soundcloud.com/jaxonwild/choparezz)
 
-**Artist**: BASSTRIP 
+**Artist**: Jaxon Wild 
 
-**Track**: APPLE BOTTOM BASS
+**Track**: CHOPAREZ
 
-Last updated at 4/19/2026, 10:30:49 AM
+Last updated at 4/19/2026, 10:33:09 AM
