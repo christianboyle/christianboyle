@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CZzkRcbXrVzGKkSW-ztM25g-t500x500.jpg">](https://soundcloud.com/welcome2bishu/trap-queen-bishu-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MzLVUNsdNbJhfybf-sumKGw-t500x500.png">](https://soundcloud.com/mayetrix/hitmewhereithurts)
 
-**Artist**: Bishu 
+**Artist**: MAYETRIX 
 
-**Track**: TRAP QUEEN (BISHU REMIX)
+**Track**: Skrillex, Dylan Brady & Caroline Polachek - hit me where it hurts x (MAYETRIX Flip)
 
-Last updated at 4/19/2026, 11:00:52 AM
+Last updated at 4/19/2026, 11:03:23 AM
