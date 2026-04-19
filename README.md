@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jpYiUMUsc7jfQqJn-Jrl9zQ-t500x500.jpg">](https://soundcloud.com/tejvirjogani/hit-me-where-it-hurts-x-tej)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q6zvXIwuBcUG5i8i-BKAcOQ-t500x500.png">](https://soundcloud.com/capshun/shiftfreq-animals-remix)
 
-**Artist**: Skrillex, Dylan Brady, Caroline Pochak, Tej 
+**Artist**:  shiftFREQ, capshun, pryzms, 
 
-**Track**: hit me where it hurts x  (TEJ FLIP) [FREE DL]
+**Track**: shiftFREQ - ANIMALS REMIX
 
-Last updated at 4/19/2026, 10:13:25 AM
+Last updated at 4/19/2026, 10:18:33 AM
