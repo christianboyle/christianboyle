@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qId7VOMXdTo3L0hi-DRVK8w-t500x500.jpg">](https://soundcloud.com/contrahq/poosha)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bfhz8uyZpCy5cYN0-yKcV4w-t500x500.png">](https://soundcloud.com/crwth/light-it-up)
 
-**Artist**: Skrillex, Nitepunk & DJ Smokey 
+**Artist**: CRWTH 
 
-**Track**: Skrillex, Nitepunk & DJ Smokey - POOSHA
+**Track**: LIGHT IT UP!
 
-Last updated at 4/19/2026, 11:08:38 AM
+Last updated at 4/19/2026, 2:05:55 PM
