@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VSh5tz7mYIk93O4g-kyzNrg-t500x500.png">](https://soundcloud.com/jpky/zedd-spectrum-jpky-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zJGm5qaKfy9mdvtY-3Ub4MA-t500x500.png">](https://soundcloud.com/enso_reords/iron_fist_808-11)
 
-**Artist**: jpky 
+**Artist**: RIO VIBE 
 
-**Track**: zedd - spectrum (jpky flip)
+**Track**: IRON_FIST_808
 
-Last updated at 4/19/2026, 10:57:02 AM
+Last updated at 4/19/2026, 10:59:22 AM
