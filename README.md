@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6l7YvQypKzj5WQ0-OzzC7g-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/premiere-dj-pacifier-cure-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvTf4bf5qwaRbJja-4bI3vg-t500x500.png">](https://soundcloud.com/subsidia/sfam-eenie-meenie?in=saxurn/sets/glassius)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: sfam 
 
-**Track**: PREMIERE: DJ Pacifier - Cure for Hiccups
+**Track**: sfam - Eenie Meenie | Subsidia
 
-Last updated at 4/20/2026, 6:41:19 AM
+Last updated at 4/20/2026, 6:43:29 AM
