@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQyGwx9ohhTNOxv3-Us8Hrg-t500x500.png">](https://soundcloud.com/remkmusic/give-me-everything-remk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L6l7YvQypKzj5WQ0-OzzC7g-t500x500.jpg">](https://soundcloud.com/nightcore4totalsluts/premiere-dj-pacifier-cure-for)
 
-**Artist**: RemK 
+**Artist**: nightcore4totalsluts 
 
-**Track**: Give Me Everything (RemK Remix)
+**Track**: PREMIERE: DJ Pacifier - Cure for Hiccups
 
-Last updated at 4/19/2026, 2:09:55 PM
+Last updated at 4/20/2026, 6:41:19 AM
