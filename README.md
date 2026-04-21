@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyF0qmIudWhzdxPG-XpRcBw-t500x500.png">](https://soundcloud.com/fluxcollective/komet99-you-slowly-disappear-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ivdbv9QqFSrt6huF-xahsmw-t500x500.jpg">](https://soundcloud.com/user-415548850/euro-trance-handz-up-anthems)
 
-**Artist**: Flux Collective 
+**Artist**: Dj Ganty  
 
-**Track**: Komet99 -  You Slowly Disappear (Astral Bandit Remix)
+**Track**: Euro-Trance Handz Up Anthems
 
-Last updated at 4/21/2026, 6:01:42 AM
+Last updated at 4/21/2026, 6:05:58 AM
