@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CZzkRcbXrVzGKkSW-ztM25g-t500x500.jpg">](https://soundcloud.com/welcome2bishu/trap-queen-bishu-remix?in=saxurn/sets/curb-apeel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jXxXkGxiLGqUKYTs-WgKZcg-t500x500.png">](https://soundcloud.com/hmewrkmusic/isoxo_voxcutr_remix_w_aydo8?in=saxurn/sets/curb-apeel)
 
-**Artist**: Bishu 
+**Artist**: HMEWRK. 
 
-**Track**: TRAP QUEEN (BISHU REMIX)
+**Track**: ISOxo - VOXCUTR (AYDO8 x HMEWRK. Remix)
 
-Last updated at 4/22/2026, 5:46:20 PM
+Last updated at 4/22/2026, 5:48:51 PM
