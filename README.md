@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQyGwx9ohhTNOxv3-Us8Hrg-t500x500.png">](https://soundcloud.com/remkmusic/give-me-everything-remk?in=saxurn/sets/curb-apeel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ANndJnlfqF60AoMT-fKwLVQ-t500x500.png">](https://soundcloud.com/gazsummers/gaz-summers-you-and-i-on-the?in=saxurn/sets/curb-apeel)
 
-**Artist**: RemK 
+**Artist**: Gaz Summers (uk hardcore dj/producer) 
 
-**Track**: Give Me Everything (RemK Remix)
+**Track**: Gaz Summers -You And I On The Dancefloor
 
-Last updated at 4/22/2026, 5:41:45 PM
+Last updated at 4/22/2026, 5:44:05 PM
