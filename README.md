@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kwiop0X8r2652GOT-O7IjwQ-t500x500.jpg">](https://soundcloud.com/bax-roo/3oh-3?in=saxurn/sets/curb-apeel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPfmkXXkdUlaQ3Q6-xXxG1g-t500x500.jpg">](https://soundcloud.com/hexed-official/bake-sale-flip?in=saxurn/sets/curb-apeel)
 
-**Artist**: bax2 
+**Artist**: HEXED 
 
-**Track**: 3oh!3 2025
+**Track**: WIZ KHALIFA - BAKE SALE (HEXED X $LUTCHK FLIP)
 
-Last updated at 4/22/2026, 5:33:34 PM
+Last updated at 4/22/2026, 5:35:54 PM
