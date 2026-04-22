@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GC4WCZXybZ6JWzsl-zdfXow-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-i-close-my-eyes-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cukP4rqePHuqWUt0-D9a9Qw-t500x500.png">](https://soundcloud.com/itsdemotapes/end-of-time-with-clearcast)
 
-**Artist**: GZMO 
+**Artist**: demotapes 
 
-**Track**: GZMO - I Close My Eyes (BOUNCE)
+**Track**: END OF TIME (with Clearcast)
 
-Last updated at 4/22/2026, 6:26:02 AM
+Last updated at 4/22/2026, 6:27:27 AM
