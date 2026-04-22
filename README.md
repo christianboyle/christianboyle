@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZ67D4gVq9KzIPe1-aiPtGg-t500x500.png">](https://soundcloud.com/scarreddigital-com/sd250)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbm9m4ZHO2QsUsgq-djMiqA-t500x500.png">](https://soundcloud.com/starmonsterofficial/nle-choppa-camelot-flip-1?in=saxurn/sets/1a1/)
 
-**Artist**: scarreddigital 
+**Artist**: Star Monster 
 
-**Track**: SD250 Kaylene Sc@r - Illogical Song. Release 26/12/2025
+**Track**: NLE Choppa- Camelot Flip
 
-Last updated at 4/22/2026, 7:09:44 AM
+Last updated at 4/22/2026, 7:12:29 AM
