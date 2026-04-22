@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WTmBKEHOP2XCQELv-voRsAQ-t500x500.png">](https://soundcloud.com/vinceedward/punky-brewstar-best-of-2025?in=scarreddigital-com/sets/scarred-digital-best-of-2025)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZ67D4gVq9KzIPe1-aiPtGg-t500x500.png">](https://soundcloud.com/scarreddigital-com/sd250)
 
-**Artist**: Punky Brewstar/Vince Edward/vin-E/Pathfinder/VEC 
+**Artist**: scarreddigital 
 
-**Track**: Punky Brewstar BEST OF 2025 Scarred Digital COMPETITION
+**Track**: SD250 Kaylene Sc@r - Illogical Song. Release 26/12/2025
 
-Last updated at 4/22/2026, 7:06:43 AM
+Last updated at 4/22/2026, 7:09:44 AM
