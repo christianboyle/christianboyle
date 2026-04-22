@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQ0KUkjobncOOcjD-4zUxYA-t500x500.png">](https://soundcloud.com/djkenty/dj-kenty-this-is-bounce-uk-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GC4WCZXybZ6JWzsl-zdfXow-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-i-close-my-eyes-bounce)
 
-**Artist**: DJ Kenty 
+**Artist**: GZMO 
 
-**Track**: DJ Kenty - This Is Bounce UK x Corruption Bounce @ Bowlers Promo Mix
+**Track**: GZMO - I Close My Eyes (BOUNCE)
 
-Last updated at 4/22/2026, 6:25:02 AM
+Last updated at 4/22/2026, 6:26:02 AM
