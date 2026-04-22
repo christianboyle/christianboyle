@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbm9m4ZHO2QsUsgq-djMiqA-t500x500.png">](https://soundcloud.com/starmonsterofficial/nle-choppa-camelot-flip-1?in=saxurn/sets/curb-apeel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bYtyZwQEmNF5jL3-ucmKlA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/m-stic-medicated?in=saxurn/sets/curb-apeel)
 
-**Artist**: Star Monster 
+**Artist**: M?STIC 
 
-**Track**: NLE Choppa- Camelot Flip
+**Track**: M?STIC - MEDICATED
 
-Last updated at 4/22/2026, 5:26:39 PM
+Last updated at 4/22/2026, 5:28:59 PM
