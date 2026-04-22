@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPfmkXXkdUlaQ3Q6-xXxG1g-t500x500.jpg">](https://soundcloud.com/hexed-official/bake-sale-flip?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WiFcjRBIvmYJX9aN-BHzCrw-t500x500.png">](https://soundcloud.com/yunique-734770999/marshmello-khalid-silence-yunique-remix/s-9tuYoN6B8jB?in=saxurn/sets/1a1/)
 
-**Artist**: HEXED 
+**Artist**: YUNIQUE. 
 
-**Track**: WIZ KHALIFA - BAKE SALE (HEXED X $LUTCHK FLIP)
+**Track**: Marshmello, Khalid - Silence (YUNIQUE. Remix)
 
-Last updated at 4/22/2026, 7:21:45 AM
+Last updated at 4/22/2026, 7:25:00 AM
