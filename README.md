@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IFIZFr9QTpgkrfjM-aFYA5Q-t500x500.png">](https://soundcloud.com/madjestickasual/mk-los-angelicoid-mix-live-dj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4G2be9Oat8i1zbV-tg8KHw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/this-is-100-notorious-vinyl)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Dj Des 
 
-**Track**: MK: "LOS ANGELICOID" Mix — Live DJ for Uniting Entity ~ via Dublab Radio
+**Track**: This is 100% Notorious Vinyl .... Part 1 ( of 2 )
 
-Last updated at 4/22/2026, 5:39:03 AM
+Last updated at 4/22/2026, 5:54:57 AM
