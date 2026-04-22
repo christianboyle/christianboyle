@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ivdbv9QqFSrt6huF-xahsmw-t500x500.jpg">](https://soundcloud.com/user-415548850/euro-trance-handz-up-anthems)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7965C7JlePqRX9go-B3FlJw-t500x500.png">](https://soundcloud.com/richard-riley-221418899/live-for-bounce-vol-14)
 
-**Artist**: Dj Ganty  
+**Artist**: DJ Riley 
 
-**Track**: Euro-Trance Handz Up Anthems
+**Track**: Live For Bounce Vol 14
 
-Last updated at 4/21/2026, 6:05:58 AM
+Last updated at 4/22/2026, 5:36:58 AM
