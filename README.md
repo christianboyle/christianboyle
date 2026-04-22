@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bYtyZwQEmNF5jL3-ucmKlA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/m-stic-medicated?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kwiop0X8r2652GOT-O7IjwQ-t500x500.jpg">](https://soundcloud.com/bax-roo/3oh-3?in=saxurn/sets/1a1/)
 
-**Artist**: M?STIC 
+**Artist**: bax2 
 
-**Track**: M?STIC - MEDICATED
+**Track**: 3oh!3 2025
 
-Last updated at 4/22/2026, 7:14:49 AM
+Last updated at 4/22/2026, 7:19:24 AM
