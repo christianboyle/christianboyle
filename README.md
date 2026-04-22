@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K4G2be9Oat8i1zbV-tg8KHw-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/this-is-100-notorious-vinyl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PQ0KUkjobncOOcjD-4zUxYA-t500x500.png">](https://soundcloud.com/djkenty/dj-kenty-this-is-bounce-uk-x)
 
-**Artist**: Dj Des 
+**Artist**: DJ Kenty 
 
-**Track**: This is 100% Notorious Vinyl .... Part 1 ( of 2 )
+**Track**: DJ Kenty - This Is Bounce UK x Corruption Bounce @ Bowlers Promo Mix
 
-Last updated at 4/22/2026, 5:54:57 AM
+Last updated at 4/22/2026, 6:25:02 AM
