@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WiFcjRBIvmYJX9aN-BHzCrw-t500x500.png">](https://soundcloud.com/yunique-734770999/marshmello-khalid-silence-yunique-remix?in=saxurn/sets/curb-apeel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQyGwx9ohhTNOxv3-Us8Hrg-t500x500.png">](https://soundcloud.com/remkmusic/give-me-everything-remk?in=saxurn/sets/curb-apeel)
 
-**Artist**: YUNIQUE. 
+**Artist**: RemK 
 
-**Track**: Marshmello, Khalid - Silence (YUNIQUE. Remix)
+**Track**: Give Me Everything (RemK Remix)
 
-Last updated at 4/22/2026, 5:39:10 PM
+Last updated at 4/22/2026, 5:41:45 PM
