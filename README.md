@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4brLGihyfBLXXzdI-E2Ku2Q-t500x500.png">](https://soundcloud.com/dani-kenii/kenii011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zX2zHFCiyFoqPsjN-e4vuhA-t500x500.jpg">](https://soundcloud.com/lisahigham81/01-rec-2026-04-22)
 
-**Artist**: Dani Kenii 
+**Artist**: Yes ii  
 
-**Track**: Dani Kenii - Gipsy Woman
+**Track**: Yes ii presents The Bounce Generation vol 78 feat MAXI 🔥🔥
 
-Last updated at 4/23/2026, 6:36:40 AM
+Last updated at 4/23/2026, 6:37:40 AM
