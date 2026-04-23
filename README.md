@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KnugiFdyvMxDG2qC-rDJygw-t500x500.png">](https://soundcloud.com/radarmusic909/virtual-self-ghost-voices)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-07v1zt5p4C0jnkc9-WYoyFQ-t500x500.jpg">](https://soundcloud.com/ryan3138-885309451/mess-about-2)
 
-**Artist**: RADAR 
+**Artist**: 🎧Sparky🎧 
 
-**Track**: Virtual Self - Ghost Voices (RADAR Closing Edit)
+**Track**: Bounce Bangers 9
 
-Last updated at 4/23/2026, 6:50:27 AM
+Last updated at 4/23/2026, 6:51:27 AM
