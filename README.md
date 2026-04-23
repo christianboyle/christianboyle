@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RXFJdwnb7BNa9Mn1-k89y4A-t500x500.jpg">](https://soundcloud.com/sadie923/rec003-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BykpYh72QCRQKD4-aanC7g-t500x500.jpg">](https://soundcloud.com/user-853939101/run-loemps)
 
-**Artist**: SADIEBABY 
+**Artist**: LØEMPS 
 
-**Track**: SADIEBABY - DONK MIX 2
+**Track**: RUN! - LØEMPS
 
-Last updated at 4/23/2026, 6:34:40 AM
+Last updated at 4/23/2026, 6:35:39 AM
