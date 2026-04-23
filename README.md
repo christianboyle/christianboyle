@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0BykpYh72QCRQKD4-aanC7g-t500x500.jpg">](https://soundcloud.com/user-853939101/run-loemps)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4brLGihyfBLXXzdI-E2Ku2Q-t500x500.png">](https://soundcloud.com/dani-kenii/kenii011)
 
-**Artist**: LØEMPS 
+**Artist**: Dani Kenii 
 
-**Track**: RUN! - LØEMPS
+**Track**: Dani Kenii - Gipsy Woman
 
-Last updated at 4/23/2026, 6:35:39 AM
+Last updated at 4/23/2026, 6:36:40 AM
