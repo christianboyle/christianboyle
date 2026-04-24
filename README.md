@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS5YPjqzBQ44LSlZ-0hW1Qg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-more-of-this-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpQJxrXutpxwfzQU-2Gu9BA-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-dont-speak)
 
-**Artist**: Jimmy Pé 
+**Artist**:  LUBO 
 
-**Track**: Jimmy Pé - More Of This
+**Track**: LUBO - Dont Speak
 
-Last updated at 4/24/2026, 7:00:01 AM
+Last updated at 4/24/2026, 7:01:16 AM
