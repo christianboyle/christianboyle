@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GDYYJFcrcExHpcH3-SNIJZQ-t500x500.jpg">](https://soundcloud.com/nanoghost/sun-comes-up-nanoghost-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIp4SmaS9WZIsoIZ-nJaelQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-neo-dj-morky-im-free)
 
-**Artist**: NANOGHOST 
+**Artist**: DJ Neo & DJ Morky 
 
-**Track**: DISCLOSURE - SUN COMES UP (NANOGHOST FLIP) (FREE D/L)
+**Track**: DJ Neo & DJ Morky - I'm Free
 
-Last updated at 4/23/2026, 5:15:17 PM
+Last updated at 4/24/2026, 5:53:21 AM
