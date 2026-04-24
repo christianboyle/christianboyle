@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nRINzBlir12Yc0AB-uT1WQw-t500x500.png">](https://soundcloud.com/taiki-nulight-uk/neverrefix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000256582091-1m78xx-t500x500.jpg">](https://soundcloud.com/previews2014/dj-rankin-this-is-barlinnie)
 
-**Artist**: J.I.D, Taiki Nulight, borne 
+**Artist**: DJ Rankin 
 
-**Track**: Never (Taiki Nulight & borne Refix)
+**Track**: DJ Rankin - This Is Barlinnie
 
-Last updated at 4/24/2026, 6:49:25 AM
+Last updated at 4/24/2026, 6:51:41 AM
