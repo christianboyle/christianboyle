@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EIp4SmaS9WZIsoIZ-nJaelQ-t500x500.png">](https://soundcloud.com/dnzrecords/dj-neo-dj-morky-im-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nRINzBlir12Yc0AB-uT1WQw-t500x500.png">](https://soundcloud.com/taiki-nulight-uk/neverrefix)
 
-**Artist**: DJ Neo & DJ Morky 
+**Artist**: J.I.D, Taiki Nulight, borne 
 
-**Track**: DJ Neo & DJ Morky - I'm Free
+**Track**: Never (Taiki Nulight & borne Refix)
 
-Last updated at 4/24/2026, 5:53:21 AM
+Last updated at 4/24/2026, 6:49:25 AM
