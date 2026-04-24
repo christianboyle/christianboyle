@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000256582091-1m78xx-t500x500.jpg">](https://soundcloud.com/previews2014/dj-rankin-this-is-barlinnie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS5YPjqzBQ44LSlZ-0hW1Qg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-vellore-1)
 
-**Artist**: DJ Rankin 
+**Artist**: Jimmy Pé 
 
-**Track**: DJ Rankin - This Is Barlinnie
+**Track**: Jimmy Pé - Vellore
 
-Last updated at 4/24/2026, 6:51:41 AM
+Last updated at 4/24/2026, 6:53:16 AM
