@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QcBwcYoERyPEYlnW-l2tBMA-t500x500.png">](https://soundcloud.com/the_bounce_brothers/10-03-2026-dnz-recordstakeover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpQJxrXutpxwfzQU-2Gu9BA-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-dont-speak)
 
-**Artist**: The Bounce Brothers / R4Y V 
+**Artist**:  LUBO 
 
-**Track**: 10.03.2026 DNZ RecordsTakeover by CrazyKaos Crank this right up !!!!
+**Track**: LUBO - Dont Speak
 
-Last updated at 4/24/2026, 7:29:26 AM
+Last updated at 4/24/2026, 7:32:56 AM
