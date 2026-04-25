@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ig1M7FLZ970AF9iU-yioDOA-t500x500.png">](https://soundcloud.com/1gutter/dumb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-just-emotions)
 
-**Artist**: beowulf, 00sev 
+**Artist**: V-Bounce Hypasonic 
 
-**Track**: r u dumb❓(Ner0uN! + cr1sis)
+**Track**: V-Bounce  - Just Emotions (Original Mix) [Radio Edit]
 
-Last updated at 4/25/2026, 8:55:19 AM
+Last updated at 4/25/2026, 8:58:24 AM
