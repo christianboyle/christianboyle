@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TYuoWFe5eiyPt1hg-Zeonwg-t500x500.jpg">](https://soundcloud.com/user743518617/cloud-9-sample-by-the-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpQJxrXutpxwfzQU-2Gu9BA-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-dont-speak)
 
-**Artist**: dj moca 
+**Artist**:  LUBO 
 
-**Track**: Cloud 9 [Sample]  by the bounce brothers & moca
+**Track**: LUBO - Dont Speak
 
-Last updated at 4/25/2026, 9:15:24 AM
+Last updated at 4/25/2026, 9:18:19 AM
