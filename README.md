@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0fJJJ8x28K2ZQu4n-eKUKgg-t500x500.jpg">](https://soundcloud.com/yilomugen/dissolution)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yPIRAYMLuTNmyYLM-12FhXw-t500x500.jpg">](https://soundcloud.com/djrikshaw/bouncd87)
 
-**Artist**: YILO 
+**Artist**: Rik Shaw 
 
-**Track**: Explorer
+**Track**: BOUNC'D (Eighty Seven) **FREE DOWNLOAD**
 
-Last updated at 4/25/2026, 6:54:05 PM
+Last updated at 4/25/2026, 6:57:10 PM
