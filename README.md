@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS5YPjqzBQ44LSlZ-0hW1Qg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-vellore-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROcMHUjP2vpOCdTa-flgbzA-t500x500.jpg">](https://soundcloud.com/shokuofficial/sennoh-beat-2-with-drop-v2)
 
-**Artist**: Jimmy Pé 
+**Artist**: Shoku 
 
-**Track**: Jimmy Pé - Vellore
+**Track**: Sennoh - a thousand miles (Shoku Edit)
 
-Last updated at 4/25/2026, 8:41:59 AM
+Last updated at 4/25/2026, 8:44:14 AM
