@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O9brBj5QqF9f4RD3-YZe5tQ-t500x500.jpg">](https://soundcloud.com/lysrgix/esdeekid-4raws)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LqxEYl6MLruyvzyf-ajsiyw-t500x500.png">](https://soundcloud.com/monta-musica/taggy-hold-me-closer)
 
-**Artist**: Lysrgix 
+**Artist**: Monta Musica 
 
-**Track**: EsDeeKid ft. Timothée Chalamet - 4 RAWS (lysrgix remix)
+**Track**: Taggy - Hold Me Closer
 
-Last updated at 4/25/2026, 8:13:14 AM
+Last updated at 4/25/2026, 8:16:29 AM
