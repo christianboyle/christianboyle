@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0XBKI9GBru5x2C2C-Z8c8og-t500x500.png">](https://soundcloud.com/subcietypresents/lampwerk-elastics)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BhmXjI99kx43f3ql-dfZjFQ-t500x500.png">](https://soundcloud.com/chassimusic/playtime)
 
-**Artist**: Innervines 
+**Artist**: Chassi, HEXXA 
 
-**Track**: Lampwerk Elastics
+**Track**: Chassi x HEXXA - PLAY TIME
 
-Last updated at 4/25/2026, 3:33:51 PM
+Last updated at 4/25/2026, 6:47:50 PM
