@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4neeXmOzq3b2qnuU-uLJyXg-t500x500.jpg">](https://soundcloud.com/ravenscoon/say-it-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS5YPjqzBQ44LSlZ-0hW1Qg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-vellore-1)
 
-**Artist**: Ravenscoon 
+**Artist**: Jimmy Pé 
 
-**Track**: Flume - Say It ft. Tove Lo (RAVENSCOON FLIP)
+**Track**: Jimmy Pé - Vellore
 
-Last updated at 4/25/2026, 8:38:09 AM
+Last updated at 4/25/2026, 8:41:59 AM
