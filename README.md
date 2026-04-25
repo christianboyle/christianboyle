@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QpQJxrXutpxwfzQU-2Gu9BA-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-dont-speak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeaZ2bd1fXPQHP1c-Om9KFA-t500x500.jpg">](https://soundcloud.com/djrikouk/ryk-its-a-dream-riko-remix)
 
-**Artist**:  LUBO 
+**Artist**: RYK 
 
-**Track**: LUBO - Dont Speak
+**Track**: RYK - It's A Dream (Riko Remix)
 
-Last updated at 4/25/2026, 10:16:22 AM
+Last updated at 4/25/2026, 10:19:52 AM
