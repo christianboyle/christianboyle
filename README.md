@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olvII7CaBM98Pg33-dzJ4Qg-t500x500.png">](https://soundcloud.com/dj-oggy-1/strings-broken-tide-mark-james)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvSabyZvWFVcMR3A-IIbqJA-t500x500.jpg">](https://soundcloud.com/k4rson/mag-dump-w-arid)
 
-**Artist**: DJ MARK JAMES (PROJECT HAVOC - BOUNCE ADDICTS ) 
+**Artist**: karson, arid 
 
-**Track**: STRINGS - BROKEN TIDE ( MARK JAMES REMIX )
+**Track**: mag dump w/ arid (rel)
 
-Last updated at 4/25/2026, 8:46:54 AM
+Last updated at 4/25/2026, 8:49:54 AM
