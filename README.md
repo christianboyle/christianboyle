@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROcMHUjP2vpOCdTa-flgbzA-t500x500.jpg">](https://soundcloud.com/shokuofficial/sennoh-beat-2-with-drop-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TYuoWFe5eiyPt1hg-Zeonwg-t500x500.jpg">](https://soundcloud.com/user743518617/cloud-9-sample-by-the-bounce)
 
-**Artist**: Shoku 
+**Artist**: dj moca 
 
-**Track**: Sennoh - a thousand miles (Shoku Edit)
+**Track**: Cloud 9 [Sample]  by the bounce brothers & moca
 
-Last updated at 4/24/2026, 5:27:47 PM
+Last updated at 4/25/2026, 6:32:44 AM
