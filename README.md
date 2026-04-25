@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvSabyZvWFVcMR3A-IIbqJA-t500x500.jpg">](https://soundcloud.com/k4rson/mag-dump-w-arid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myKzEhsLd8DzqQzm-ww6twg-t500x500.png">](https://soundcloud.com/dripsyncmusic/thatsnotmeremix)
 
-**Artist**: karson, arid 
+**Artist**: Drip Sync 
 
-**Track**: mag dump w/ arid (rel)
+**Track**: Skepta - Thats Not Me (Drip Flip)
 
-Last updated at 4/25/2026, 7:38:21 AM
+Last updated at 4/25/2026, 7:40:36 AM
