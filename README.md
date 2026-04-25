@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lkWQzBccApQ6nb4y-lvMGxQ-t500x500.png">](https://soundcloud.com/pete-smyth-362848572/bidi-bidi-do-you-wanna-dance)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000012440821-bmrgyr-t500x500.jpg">](https://soundcloud.com/general-base/11-bidi-bidi-do-you-wanna)
 
-**Artist**: General Base 
+**Artist**: general base 
 
-**Track**: Bidi, Bidi, Do You Wanna Dance (Remix)
+**Track**: 1992: general base - Bidi, Bidi - Do you wanna dance
 
-Last updated at 4/25/2026, 7:31:39 AM
+Last updated at 4/25/2026, 7:32:49 AM
