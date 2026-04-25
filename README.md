@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROcMHUjP2vpOCdTa-flgbzA-t500x500.jpg">](https://soundcloud.com/shokuofficial/sennoh-beat-2-with-drop-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olvII7CaBM98Pg33-dzJ4Qg-t500x500.png">](https://soundcloud.com/dj-oggy-1/strings-broken-tide-mark-james)
 
-**Artist**: Shoku 
+**Artist**: DJ MARK JAMES (PROJECT HAVOC - BOUNCE ADDICTS ) 
 
-**Track**: Sennoh - a thousand miles (Shoku Edit)
+**Track**: STRINGS - BROKEN TIDE ( MARK JAMES REMIX )
 
-Last updated at 4/25/2026, 8:44:14 AM
+Last updated at 4/25/2026, 8:46:54 AM
