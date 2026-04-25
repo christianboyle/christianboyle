@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS5YPjqzBQ44LSlZ-0hW1Qg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-vellore-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvSabyZvWFVcMR3A-IIbqJA-t500x500.jpg">](https://soundcloud.com/k4rson/mag-dump-w-arid)
 
-**Artist**: Jimmy Pé 
+**Artist**: karson, arid 
 
-**Track**: Jimmy Pé - Vellore
+**Track**: mag dump w/ arid (rel)
 
-Last updated at 4/25/2026, 10:30:43 AM
+Last updated at 4/25/2026, 10:33:53 AM
