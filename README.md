@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-myKzEhsLd8DzqQzm-ww6twg-t500x500.png">](https://soundcloud.com/dripsyncmusic/thatsnotmeremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-72gXyg0c7BjSyzWr-o2jZ3A-t500x500.jpg">](https://soundcloud.com/wibezz/stuckinadream)
 
-**Artist**: Drip Sync 
+**Artist**: WibeZz 
 
-**Track**: Skepta - Thats Not Me (Drip Flip)
+**Track**: Stuck in a Dream
 
-Last updated at 4/25/2026, 7:28:19 AM
+Last updated at 4/25/2026, 7:29:29 AM
