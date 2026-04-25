@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-just-emotions)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vc2yuyk0Ku4dVzZO-t74oEQ-t500x500.jpg">](https://soundcloud.com/iilori/csgo)
 
-**Artist**: V-Bounce Hypasonic 
+**Artist**: ilori 
 
-**Track**: V-Bounce  - Just Emotions (Original Mix) [Radio Edit]
+**Track**: Counter-Strike ft mason p. cr1sis
 
-Last updated at 4/25/2026, 7:46:56 AM
+Last updated at 4/25/2026, 8:08:19 AM
