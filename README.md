@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEeNZWylMIojiASs-xS6PBQ-t500x500.png">](https://soundcloud.com/monta-musica/assault-a-trip-to-avalon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sL6GrhCJyeyBYwld-6o8hUg-t500x500.png">](https://soundcloud.com/monta-musica/breakdown-lxve-reason-to-love)
 
 **Artist**: Monta Musica 
 
-**Track**: Assault - A Trip To Avalon
+**Track**: Breakdown & LXVE - Reason To Love
 
-Last updated at 4/25/2026, 10:54:08 AM
+Last updated at 4/25/2026, 10:56:18 AM
