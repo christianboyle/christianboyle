@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ys0aH3LAYe3mDrzH-JU4yPA-t500x500.jpg">](https://soundcloud.com/sprkbeets/about-the-money-flip-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0XBKI9GBru5x2C2C-Z8c8og-t500x500.png">](https://soundcloud.com/subcietypresents/lampwerk-elastics)
 
-**Artist**: SPRK 
+**Artist**: Innervines 
 
-**Track**: T.I. ft. YOUNG THUG - ABOUT THE MONEY [SPRK FLIP]
+**Track**: Lampwerk Elastics
 
-Last updated at 4/25/2026, 3:31:27 PM
+Last updated at 4/25/2026, 3:33:51 PM
