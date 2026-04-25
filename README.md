@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wgP6oPDjnEJH7yZl-EMjtfw-t500x500.jpg">](https://soundcloud.com/monkerbonk/vondoo-x-monkerbonk-got-that-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-277ZsfTcfNPu0gOn-D7FFiQ-t500x500.png">](https://soundcloud.com/gangsta-house-rowdy/unknown-sweat)
 
-**Artist**: Monkerbonk, Vondoo 
+**Artist**: UηκηΘωN 
 
-**Track**: VONDOO & MONKERBONK - GOT THAT
+**Track**: UηκηΘωN - Sweat
 
-Last updated at 4/25/2026, 7:08:31 AM
+Last updated at 4/25/2026, 7:09:31 AM
