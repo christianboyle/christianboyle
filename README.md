@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rMTNGmRCS8qQnqz-45hj9A-t500x500.jpg">](https://soundcloud.com/brainwavedubs/unk-walk-it-out-brnwve-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvSabyZvWFVcMR3A-IIbqJA-t500x500.jpg">](https://soundcloud.com/k4rson/mag-dump-w-arid)
 
-**Artist**: BRNWVE 
+**Artist**: karson, arid 
 
-**Track**: UNK - WALK IT OUT (BRNWVE FLIP)
+**Track**: mag dump w/ arid (rel)
 
-Last updated at 4/26/2026, 10:20:54 AM
+Last updated at 4/26/2026, 10:24:04 AM
