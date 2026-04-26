@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rMTNGmRCS8qQnqz-45hj9A-t500x500.jpg">](https://soundcloud.com/brainwavedubs/unk-walk-it-out-brnwve-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeaZ2bd1fXPQHP1c-Om9KFA-t500x500.jpg">](https://soundcloud.com/djrikouk/ryk-its-a-dream-riko-remix)
 
-**Artist**: BRNWVE 
+**Artist**: RYK 
 
-**Track**: UNK - WALK IT OUT (BRNWVE FLIP)
+**Track**: RYK - It's A Dream (Riko Remix)
 
-Last updated at 4/26/2026, 10:32:10 AM
+Last updated at 4/26/2026, 12:58:53 PM
