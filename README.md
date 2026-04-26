@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeaZ2bd1fXPQHP1c-Om9KFA-t500x500.jpg">](https://soundcloud.com/djrikouk/ryk-its-a-dream-riko-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xiClSYbK8Xv2Pahz-yfdvSQ-t500x500.jpg">](https://soundcloud.com/ortisei/eunoia-23-continuous-mix)
 
-**Artist**: RYK 
+**Artist**: ortisei, Róża Miller, Nechee 
 
-**Track**: RYK - It's A Dream (Riko Remix)
+**Track**: Eunoia [23’ Continuous Mix]
 
-Last updated at 4/26/2026, 6:48:00 PM
+Last updated at 4/26/2026, 6:49:10 PM
