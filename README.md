@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GWsiTPgEAfutOE8-UEOthA-t500x500.png">](https://soundcloud.com/usbc/ygor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-trCfjdJ6eZFPdsfW-nkmLoQ-t500x500.jpg">](https://soundcloud.com/ragebot/joey-valence-brae-pushthepipe)
 
-**Artist**: cratre 
+**Artist**: Rage-Bot 
 
-**Track**: you're going on reddit
+**Track**: Joey Valence & Brae - pushthepipe (Rage-Bot Remix) [FREE DL]
 
-Last updated at 4/25/2026, 9:17:27 PM
+Last updated at 4/25/2026, 9:18:52 PM
