@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-trGRSyQCjm1ix62y-xrvR9g-t500x500.jpg">](https://soundcloud.com/liamcook/01-one-foot-in-da-rave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VVdOoZz3MHvAyhkh-qdht1Q-t500x500.jpg">](https://soundcloud.com/cookseyyuk/cooksey-clarki3-new-rules)
 
-**Artist**: DJ COOK-E Uber Beatz 
+**Artist**: CookseyUK 
 
-**Track**: 01 ONE FOOT IN DA RAVE
+**Track**: Cooksey & Clarki3 - New Rules
 
-Last updated at 4/25/2026, 8:01:01 PM
+Last updated at 4/25/2026, 9:14:11 PM
