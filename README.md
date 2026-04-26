@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-liY3myaYwlzcRU5Y-yRPGEw-t500x500.jpg">](https://soundcloud.com/bnub/shit-that-we-was-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGAigFTIBCTGnMeP-DRyiMw-t500x500.jpg">](https://soundcloud.com/logan-17222564/anounce-of-bounce-vol-59)
 
-**Artist**: Bnub 
+**Artist**: L2GXN (LOGI-B) - S.B.L - PROJECT HAVOC 
 
-**Track**: Shit That We Was On
+**Track**: An'Ounce Of Bounce Vol 59
 
-Last updated at 4/26/2026, 5:15:38 PM
+Last updated at 4/26/2026, 5:16:38 PM
