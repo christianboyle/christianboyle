@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GKTiOe5OsLfyF7Xo-fGQWww-t500x500.png">](https://soundcloud.com/yerbownik/starsalign04)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wvxEImPWUVBQCGuf-ixfAdQ-t500x500.jpg">](https://soundcloud.com/ortisei/live-london-mot-venue-6112025)
 
-**Artist**: yerbby 
+**Artist**: ortisei 
 
-**Track**: Stars Align 04
+**Track**: Live @ London, M.O.T [6.11.2025]
 
-Last updated at 4/26/2026, 6:54:03 PM
+Last updated at 4/26/2026, 6:55:48 PM
