@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4WyZiwrd5ycPhOUH-WkZu7g-t500x500.jpg">](https://soundcloud.com/lostageless/timeshift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1E1fSaW4LJcZLOjw-nFx4Hw-t500x500.jpg">](https://soundcloud.com/lostageless/eon-echoes)
 
 **Artist**: lostageless 
 
-**Track**: timeshift
+**Track**: eon echoes
 
-Last updated at 4/26/2026, 6:50:14 PM
+Last updated at 4/26/2026, 6:52:44 PM
