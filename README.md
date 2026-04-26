@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VVdOoZz3MHvAyhkh-qdht1Q-t500x500.jpg">](https://soundcloud.com/cookseyyuk/cooksey-clarki3-new-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeaZ2bd1fXPQHP1c-Om9KFA-t500x500.jpg">](https://soundcloud.com/djrikouk/ryk-its-a-dream-riko-remix)
 
-**Artist**: CookseyUK 
+**Artist**: RYK 
 
-**Track**: Cooksey & Clarki3 - New Rules
+**Track**: RYK - It's A Dream (Riko Remix)
 
-Last updated at 4/26/2026, 5:17:53 PM
+Last updated at 4/26/2026, 6:48:00 PM
