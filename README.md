@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VVdOoZz3MHvAyhkh-qdht1Q-t500x500.jpg">](https://soundcloud.com/cookseyyuk/cooksey-clarki3-new-rules)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7GWsiTPgEAfutOE8-UEOthA-t500x500.png">](https://soundcloud.com/usbc/ygor)
 
-**Artist**: CookseyUK 
+**Artist**: cratre 
 
-**Track**: Cooksey & Clarki3 - New Rules
+**Track**: you're going on reddit
 
-Last updated at 4/25/2026, 9:14:11 PM
+Last updated at 4/25/2026, 9:17:27 PM
