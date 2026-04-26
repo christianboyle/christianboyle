@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aGAigFTIBCTGnMeP-DRyiMw-t500x500.jpg">](https://soundcloud.com/logan-17222564/anounce-of-bounce-vol-59)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VVdOoZz3MHvAyhkh-qdht1Q-t500x500.jpg">](https://soundcloud.com/cookseyyuk/cooksey-clarki3-new-rules)
 
-**Artist**: L2GXN (LOGI-B) - S.B.L - PROJECT HAVOC 
+**Artist**: CookseyUK 
 
-**Track**: An'Ounce Of Bounce Vol 59
+**Track**: Cooksey & Clarki3 - New Rules
 
-Last updated at 4/26/2026, 5:16:38 PM
+Last updated at 4/26/2026, 5:17:53 PM
