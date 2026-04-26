@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOmVy8sELuCG4Erz-EjAEaA-t500x500.png">](https://soundcloud.com/actuation/jordan-irwin-24-7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rMTNGmRCS8qQnqz-45hj9A-t500x500.jpg">](https://soundcloud.com/brainwavedubs/unk-walk-it-out-brnwve-flip)
 
-**Artist**: Actuation 
+**Artist**: BRNWVE 
 
-**Track**: Jordan Irwin - 24/7
+**Track**: UNK - WALK IT OUT (BRNWVE FLIP)
 
-Last updated at 4/26/2026, 10:28:55 AM
+Last updated at 4/26/2026, 10:32:10 AM
