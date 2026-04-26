@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IeaZ2bd1fXPQHP1c-Om9KFA-t500x500.jpg">](https://soundcloud.com/djrikouk/ryk-its-a-dream-riko-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEeNZWylMIojiASs-xS6PBQ-t500x500.png">](https://soundcloud.com/monta-musica/assault-a-trip-to-avalon)
 
-**Artist**: RYK 
+**Artist**: Monta Musica 
 
-**Track**: RYK - It's A Dream (Riko Remix)
+**Track**: Assault - Trip To Avalon
 
-Last updated at 4/26/2026, 12:58:53 PM
+Last updated at 4/26/2026, 1:02:15 PM
