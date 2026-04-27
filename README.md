@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hr25kYN3KtfzIqTK-T8esTw-t500x500.jpg">](https://soundcloud.com/paracek/paracek-unordnungsamt-crazy-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JthKN8rN6mBE1zgf-gpto2Q-t500x500.jpg">](https://soundcloud.com/fangshuiofficial/king-von-took-her-to-the-o)
 
-**Artist**: Paraçek, UNORDNUNGSAMT 
+**Artist**: Fang Shui 
 
-**Track**: Paraçek, UNORDNUNGSAMT - So Crazy (In Love) [FREE DOWNLOAD]
+**Track**: King Von - Took her to the O (Fang Shui Flip) - FREE DL
 
-Last updated at 4/27/2026, 7:23:31 AM
+Last updated at 4/27/2026, 7:26:21 AM
