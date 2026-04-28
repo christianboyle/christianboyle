@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCYBTqpxwrpMTZDE-u4NbkQ-t500x500.png">](https://soundcloud.com/hellgnar/swapwme-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vc2yuyk0Ku4dVzZO-t74oEQ-t500x500.jpg">](https://soundcloud.com/iilori/csgo?in=saxurn/sets/gods-eye-view/)
 
-**Artist**: HELLGNAR 
+**Artist**: ilori 
 
-**Track**: SWAPWME
+**Track**: Counter-Strike ft mason p. cr1sis
 
-Last updated at 4/28/2026, 7:47:05 AM
+Last updated at 4/28/2026, 6:32:03 PM
