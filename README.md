@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MHyX5e0SXtRziQhX-UzNCfA-t500x500.png">](https://soundcloud.com/jordanirwin/around-the-bend?in=saxurn/sets/gods-eye-view/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fOmVy8sELuCG4Erz-EjAEaA-t500x500.png">](https://soundcloud.com/actuation/jordan-irwin-24-7?in=saxurn/sets/gods-eye-view/)
 
-**Artist**: Jordan Irwin 
+**Artist**: Actuation 
 
-**Track**: Around The Bend
+**Track**: Jordan Irwin - 24/7
 
-Last updated at 4/28/2026, 6:42:58 PM
+Last updated at 4/28/2026, 6:45:28 PM
