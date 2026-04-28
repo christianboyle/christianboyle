@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4AfQ50fbctDCYZRX-uKOJ7A-t500x500.png">](https://soundcloud.com/thefinesttechno/tft-records-dylus-through-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NZkEyFB707SCkyMO-xvWLWw-t500x500.png">](https://soundcloud.com/macova/freakin-1)
 
-**Artist**: DYLUS 
+**Artist**: Macova 
 
-**Track**: 8 DAYS FREE DL | DYLUS - THROUGH MY MIND [TFT050]
+**Track**: Freakin'
 
-Last updated at 4/28/2026, 7:33:39 AM
+Last updated at 4/28/2026, 7:36:49 AM
