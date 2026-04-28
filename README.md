@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ai2pKOwncoLRhgwW-PTy4zg-t500x500.png">](https://soundcloud.com/mugic_us/representer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tc0EHUAJYLirHEHS-eVfM9g-t500x500.png">](https://soundcloud.com/scafettamusic/i-knew-you-were-trouble-1)
 
-**Artist**: KAVRA 
+**Artist**: ScAℲeTtA_Music 
 
-**Track**: KAVRA - Representer [MUG011] (FREE DOWNLOAD)
+**Track**: I knew you were trouble ( Scafetta Remix)
 
-Last updated at 4/28/2026, 7:25:54 AM
+Last updated at 4/28/2026, 7:26:54 AM
