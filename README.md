@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTDslKEI8z1psNcZ-jNIkew-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-hadone-break-your?in=saxurn/sets/gods-eye-view/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MHyX5e0SXtRziQhX-UzNCfA-t500x500.png">](https://soundcloud.com/jordanirwin/around-the-bend?in=saxurn/sets/gods-eye-view/)
 
-**Artist**: HATE, Hadone 
+**Artist**: Jordan Irwin 
 
-**Track**: Premiere: Hadone — Break Your Toys [PI12]
+**Track**: Around The Bend
 
-Last updated at 4/28/2026, 6:38:18 PM
+Last updated at 4/28/2026, 6:42:58 PM
