@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eb5r1IusRAmhBRPh-2PQvnA-t500x500.jpg">](https://soundcloud.com/bnub/on-go-rough-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCYBTqpxwrpMTZDE-u4NbkQ-t500x500.png">](https://soundcloud.com/hellgnar/swapwme-3)
 
-**Artist**: Bnub 
+**Artist**: HELLGNAR 
 
-**Track**: On Go Rough Mix
+**Track**: SWAPWME
 
-Last updated at 4/28/2026, 7:45:49 AM
+Last updated at 4/28/2026, 7:47:05 AM
