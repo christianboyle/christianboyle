@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TYuoWFe5eiyPt1hg-Zeonwg-t500x500.jpg">](https://soundcloud.com/user743518617/cloud-9-sample-by-the-bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvSabyZvWFVcMR3A-IIbqJA-t500x500.jpg">](https://soundcloud.com/k4rson/mag-dump-w-arid)
 
-**Artist**: dj moca 
+**Artist**: karson, arid 
 
-**Track**: Cloud 9 [Sample]  by the bounce brothers & moca
+**Track**: mag dump w/ arid (rel)
 
-Last updated at 4/28/2026, 8:01:30 PM
+Last updated at 4/29/2026, 5:38:28 AM
