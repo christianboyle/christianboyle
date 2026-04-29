@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olvII7CaBM98Pg33-dzJ4Qg-t500x500.png">](https://soundcloud.com/dj-oggy-1/strings-broken-tide-mark-james?in=saxurn/sets/gods-eye-view)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JthKN8rN6mBE1zgf-gpto2Q-t500x500.jpg">](https://soundcloud.com/fangshuiofficial/king-von-took-her-to-the-o?in=saxurn/sets/gods-eye-view)
 
-**Artist**: DJ MARK JAMES (PROJECT HAVOC - BOUNCE ADDICTS ) 
+**Artist**: Fang Shui 
 
-**Track**: STRINGS - BROKEN TIDE ( MARK JAMES REMIX )
+**Track**: King Von - Took her to the O (Fang Shui Flip) - FREE DL
 
-Last updated at 4/28/2026, 7:18:44 PM
+Last updated at 4/28/2026, 7:21:39 PM
