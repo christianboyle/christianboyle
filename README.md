@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vc2yuyk0Ku4dVzZO-t74oEQ-t500x500.jpg">](https://soundcloud.com/iilori/csgo?in=saxurn/sets/gods-eye-view)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TYuoWFe5eiyPt1hg-Zeonwg-t500x500.jpg">](https://soundcloud.com/user743518617/cloud-9-sample-by-the-bounce)
 
-**Artist**: ilori 
+**Artist**: dj moca 
 
-**Track**: Counter-Strike ft mason p. cr1sis
+**Track**: Cloud 9 [Sample]  by the bounce brothers & moca
 
-Last updated at 4/28/2026, 8:00:30 PM
+Last updated at 4/28/2026, 8:01:30 PM
