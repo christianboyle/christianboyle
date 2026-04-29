@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JthKN8rN6mBE1zgf-gpto2Q-t500x500.jpg">](https://soundcloud.com/fangshuiofficial/king-von-took-her-to-the-o?in=saxurn/sets/gods-eye-view)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5rMTNGmRCS8qQnqz-45hj9A-t500x500.jpg">](https://soundcloud.com/brainwavedubs/unk-walk-it-out-brnwve-flip?in=saxurn/sets/gods-eye-view)
 
-**Artist**: Fang Shui 
+**Artist**: BRNWVE 
 
-**Track**: King Von - Took her to the O (Fang Shui Flip) - FREE DL
+**Track**: UNK - WALK IT OUT (BRNWVE FLIP)
 
-Last updated at 4/28/2026, 7:21:39 PM
+Last updated at 4/28/2026, 7:24:35 PM
