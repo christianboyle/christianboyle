@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xvSabyZvWFVcMR3A-IIbqJA-t500x500.jpg">](https://soundcloud.com/k4rson/mag-dump-w-arid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCYBTqpxwrpMTZDE-u4NbkQ-t500x500.png">](https://soundcloud.com/hellgnar/swapwme-3?in=saxurn/sets/gods-eye-view)
 
-**Artist**: karson, arid 
+**Artist**: HELLGNAR 
 
-**Track**: mag dump w/ arid (rel)
+**Track**: SWAPWME
 
-Last updated at 4/29/2026, 5:38:28 AM
+Last updated at 4/29/2026, 6:54:44 AM
