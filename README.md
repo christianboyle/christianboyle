@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PRyn9ZH7sj5AfQxW-dM8sKw-t500x500.png">](https://soundcloud.com/beetlejuke/sbct?in=saxurn/sets/gods-eye-view)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtSRpdXQIXkkOOD1-4HVcOA-t500x500.png">](https://soundcloud.com/nyptane-official/off-my-back?in=saxurn/sets/gods-eye-view)
 
-**Artist**: Beetlejuke, Funk Doc, OSLØVE 
+**Artist**: Nyptane & RISK 
 
-**Track**: Beetlejuke & Funk Doc - SnapBack CrackThat Feat. OSLØVE (FREE DOWNLOAD)
+**Track**: OFF MY BACK
 
-Last updated at 4/28/2026, 7:27:30 PM
+Last updated at 4/28/2026, 7:31:00 PM
