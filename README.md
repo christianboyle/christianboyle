@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCYBTqpxwrpMTZDE-u4NbkQ-t500x500.png">](https://soundcloud.com/hellgnar/swapwme-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ROcMHUjP2vpOCdTa-flgbzA-t500x500.jpg">](https://soundcloud.com/shokuofficial/sennoh-beat-2-with-drop-v2)
 
-**Artist**: HELLGNAR 
+**Artist**: Shoku 
 
-**Track**: SWAPWME
+**Track**: Sennoh - a thousand miles (Shoku Edit)
 
-Last updated at 4/29/2026, 7:34:26 AM
+Last updated at 4/30/2026, 5:58:57 AM
