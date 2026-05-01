@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vwMOuHMsvvY2SDMB-hG8snQ-t500x500.jpg">](https://soundcloud.com/darn84/carl-cox-the-eclipse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5QMQYaBFbyzBVECm-7VGyMw-t500x500.jpg">](https://soundcloud.com/technowereld/tw-podcasst-164-militsa)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: Techno Wereld, Militsa 
 
-**Track**: Carl Cox @ The Eclipse- Highlander - (November 1991)
+**Track**: TW PODCAST 164 - Militsa
 
-Last updated at 4/30/2026, 7:56:51 PM
+Last updated at 4/30/2026, 7:58:02 PM
