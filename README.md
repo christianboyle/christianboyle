@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wtLSn8SiK5GAGMzK-juz9uw-t500x500.png">](https://soundcloud.com/declan-lee-49046122/minibounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OMzcMyZKGWzeXodg-z8zv8A-t500x500.jpg">](https://soundcloud.com/saint-baek/smoke-flip-1)
 
-**Artist**: DJDec X HeadzUp 
+**Artist**: skrillex , isoxo  
 
-**Track**: Mini Bounce Bangerz DJDec X HeadzUp
+**Track**: smoke (flip)
 
-Last updated at 4/30/2026, 7:45:21 PM
+Last updated at 4/30/2026, 7:47:47 PM
