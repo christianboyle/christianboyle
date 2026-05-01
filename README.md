@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Pz6ZZLdO5ePkUzZX-L0cLuw-t500x500.jpg">](https://soundcloud.com/asure2001/asure2001-x-aiei-call-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000048397332-fam0kp-t500x500.jpg">](https://soundcloud.com/hiep612/mortal-kombat-theme-song-original)
 
-**Artist**: ASURE2001, AIEI  
+**Artist**: Đoàn Thế Hiệp 
 
-**Track**: ASURE2001 x AIEI - Call, The Beyond
+**Track**: Mortal Kombat Theme Song Original
 
-Last updated at 4/30/2026, 8:02:17 PM
+Last updated at 4/30/2026, 8:03:21 PM
