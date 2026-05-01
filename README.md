@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PejTgd0XiYBKCB5T-zlX2hA-t500x500.png">](https://soundcloud.com/saint-baek/where-are-u-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCYBTqpxwrpMTZDE-u4NbkQ-t500x500.png">](https://soundcloud.com/hellgnar/swapwme-3)
 
-**Artist**: justin bieber 
+**Artist**: HELLGNAR 
 
-**Track**: Where Are Ü Now
+**Track**: SWAPWME
 
-Last updated at 4/30/2026, 8:13:02 PM
+Last updated at 4/30/2026, 8:15:47 PM
