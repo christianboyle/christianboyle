@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oDghyAxnSLaZY6h8-JycqTg-t500x500.png">](https://soundcloud.com/aspirehighermusic/deadclou-belnour-dub-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Pz6ZZLdO5ePkUzZX-L0cLuw-t500x500.jpg">](https://soundcloud.com/asure2001/asure2001-x-aiei-call-the)
 
-**Artist**: deadclou 
+**Artist**: ASURE2001, AIEI  
 
-**Track**: deadclou - BELNOUR DUB feat. Dallo (AH Tune Tuesday)
+**Track**: ASURE2001 x AIEI - Call, The Beyond
 
-Last updated at 4/30/2026, 8:01:12 PM
+Last updated at 4/30/2026, 8:02:17 PM
