@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-back-in-the-uk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wtLSn8SiK5GAGMzK-juz9uw-t500x500.png">](https://soundcloud.com/declan-lee-49046122/minibounce)
 
-**Artist**: JGS, INTENT 
+**Artist**: DJDec X HeadzUp 
 
-**Track**: JGS & INTENT - Back In The UK (Sample)
+**Track**: Mini Bounce Bangerz DJDec X HeadzUp
 
-Last updated at 4/30/2026, 7:44:21 PM
+Last updated at 4/30/2026, 7:45:21 PM
