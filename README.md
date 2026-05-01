@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ReshQjxPCp2A7X6g-zG1GKw-t500x500.png">](https://soundcloud.com/rikirikidub/stromae-alors-on-danse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DdaGa7InyvDUA072-UkDIsg-t500x500.png">](https://soundcloud.com/mickjay67/mickjay-back-to-earth-makina-4)
 
-**Artist**: RikiRiki 
+**Artist**: MickJay 
 
-**Track**: Stromae - Alors On Danse (RikiRiki Edit) [FREE DOWNLOAD]
+**Track**: MickJay - Back To Earth (Makina)
 
-Last updated at 4/30/2026, 7:52:46 PM
+Last updated at 4/30/2026, 7:53:46 PM
