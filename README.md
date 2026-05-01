@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HCYBTqpxwrpMTZDE-u4NbkQ-t500x500.png">](https://soundcloud.com/hellgnar/swapwme-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-chasing-dreams)
 
-**Artist**: HELLGNAR 
+**Artist**: Revolution-Records UK 
 
-**Track**: SWAPWME
+**Track**: GEE - CHASING DREAMS
 
-Last updated at 4/30/2026, 8:15:47 PM
+Last updated at 4/30/2026, 8:18:07 PM
