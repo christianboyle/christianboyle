@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cc4D8NEEHgt4XyzU-zgwwGQ-t500x500.png">](https://soundcloud.com/dnzrecords/sparksy-to-the-sky)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HBWUgyKkK2peAVX3-qUCVWQ-t500x500.png">](https://soundcloud.com/further-609232334/dafd70a2-17a1-4ab5-8ddc-424ca490ffed)
 
-**Artist**: Sparksy 
+**Artist**: FURTHER 
 
-**Track**: Sparksy - To The Sky
+**Track**: Duality
 
-Last updated at 5/1/2026, 6:56:18 AM
+Last updated at 5/1/2026, 7:00:38 AM
