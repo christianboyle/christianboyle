@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LC1P76O6ozeRnuz0-RToQXw-t500x500.png">](https://soundcloud.com/rhythmcityco/subarashi-curse-of-10)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Op9n7jzTyDO8CjO4-OGKpfw-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/la-vibra-owe-you-nothing)
 
-**Artist**: Rhythm City Collective 
+**Artist**: Rewired Records 
 
-**Track**: Subarashi - Curse Of
+**Track**: La Vibra - Owe You Nothing
 
-Last updated at 4/30/2026, 7:39:01 PM
+Last updated at 4/30/2026, 7:40:26 PM
