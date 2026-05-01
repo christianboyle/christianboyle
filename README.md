@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yepba7ShU9VP4pPy-8qKQPQ-t500x500.png">](https://soundcloud.com/rewiredrecordsuk/missuebishi-come-take-my-hand)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lutHiKOmOW9d6js7-kzlv6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-back-in-the-uk)
 
-**Artist**: Rewired Records 
+**Artist**: JGS, INTENT 
 
-**Track**: Missuebishi  - COME TAKE MY HAND
+**Track**: JGS & INTENT - Back In The UK (Sample)
 
-Last updated at 4/30/2026, 7:42:46 PM
+Last updated at 4/30/2026, 7:44:21 PM
