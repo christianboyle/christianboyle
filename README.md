@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rhx6hpmH9RQWsXpQ-C4pZMw-t500x500.png">](https://soundcloud.com/markslamma/dj-demo-ur-mine-slamma-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yFzjoTBhNOponWzo-zmYnSw-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/fletxher-evl66-b1b1-2?in=nightcore4totalsluts/sets/fletxher-bedroom-club-toolz-v1)
 
-**Artist**: SLAMMA 
+**Artist**: nightcore4totalsluts 
 
-**Track**: dj demo -  UR MINE  - SLAMMA remix
+**Track**: FLETXHER & evl66 - B1B1
 
-Last updated at 4/30/2026, 8:37:22 PM
+Last updated at 5/1/2026, 6:54:08 AM
