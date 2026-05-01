@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DdaGa7InyvDUA072-UkDIsg-t500x500.png">](https://soundcloud.com/mickjay67/mickjay-back-to-earth-makina-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lpdlTSUMR0bIs2V-gfKgfg-t500x500.jpg">](https://soundcloud.com/bairdmusic/whoops-baird-schranz-remix-djm)
 
-**Artist**: MickJay 
+**Artist**: BAIRD 
 
-**Track**: MickJay - Back To Earth (Makina)
+**Track**: WHOOPS [BAIRD SCHRANZ REMIX]
 
-Last updated at 4/30/2026, 7:53:46 PM
+Last updated at 4/30/2026, 7:54:46 PM
