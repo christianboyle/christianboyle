@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HBWUgyKkK2peAVX3-qUCVWQ-t500x500.png">](https://soundcloud.com/further-609232334/dafd70a2-17a1-4ab5-8ddc-424ca490ffed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZAsMnLJqGLVdlsL4-ioWwmQ-t500x500.jpg">](https://soundcloud.com/industrialsounds/argy-massano-wait-extended-mix)
 
-**Artist**: FURTHER 
+**Artist**: Argy, Massano 
 
-**Track**: Duality
+**Track**: Argy, Massano - WAIT (Extended Mix) [Simulate Recordings]
 
-Last updated at 5/1/2026, 7:00:38 AM
+Last updated at 5/1/2026, 7:05:09 AM
