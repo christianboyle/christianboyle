@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2lpdlTSUMR0bIs2V-gfKgfg-t500x500.jpg">](https://soundcloud.com/bairdmusic/whoops-baird-schranz-remix-djm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7uYD2RNnQ0klVjHI-41ewAQ-t500x500.png">](https://soundcloud.com/satireclub/memories)
 
-**Artist**: BAIRD 
+**Artist**: satire 
 
-**Track**: WHOOPS [BAIRD SCHRANZ REMIX]
+**Track**: memories ft. twentyfifth (yashio, moz)
 
-Last updated at 4/30/2026, 7:54:46 PM
+Last updated at 4/30/2026, 7:55:46 PM
