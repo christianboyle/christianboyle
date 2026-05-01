@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-thnyIe0Gyc1o0lOw-EXIOXg-t500x500.png">](https://soundcloud.com/lowke_official/justin-beiber-beauty-and-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dPfmkXXkdUlaQ3Q6-xXxG1g-t500x500.jpg">](https://soundcloud.com/hexed-official/bake-sale-flip)
 
-**Artist**: Lowke 
+**Artist**: HEXED 
 
-**Track**: Justin Bieber - Beauty And A Beat (Lowke Remix)FREE DOWNLOAD
+**Track**: WIZ KHALIFA - BAKE SALE (HEXED X $LUTCHK FLIP)
 
-Last updated at 4/30/2026, 7:59:07 PM
+Last updated at 4/30/2026, 8:00:07 PM
