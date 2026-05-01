@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-chasing-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-faLrmLBK2yX3tkpb-90h3VQ-t500x500.png">](https://soundcloud.com/wearestudio/fake-two-piece-machinist)
 
-**Artist**: Revolution-Records UK 
+**Artist**: STUDIO, Fake Two Piece 
 
-**Track**: GEE - CHASING DREAMS
+**Track**: Fake Two Piece - Machinist [Premiere]
 
-Last updated at 4/30/2026, 8:18:07 PM
+Last updated at 4/30/2026, 8:20:52 PM
