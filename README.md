@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3F6AyEZwVaigjUR-oJWo5g-t500x500.jpg">](https://soundcloud.com/bairdmusic/influenceur-baird-schranz-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bl4fZwY13UEVdYnI-4ByhLA-t500x500.png">](https://soundcloud.com/djnktr/summer-dream-of-love-nktr-drip-dimitri-vegas-x-darren-styles)
 
-**Artist**: BAIRD 
+**Artist**: Dimitri Vegas & Darren Styles 
 
-**Track**: INFLUENCER | ASCENDANT VIERGE [BAIRD SCHRANZ REMIX]
+**Track**: Summer Dream Of Love (NKTR Drip) - Dimitri Vegas X Darren Styles
 
-Last updated at 4/30/2026, 8:30:47 PM
+Last updated at 4/30/2026, 8:34:17 PM
