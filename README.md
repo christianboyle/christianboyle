@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yFzjoTBhNOponWzo-zmYnSw-t500x500.png">](https://soundcloud.com/nightcore4totalsluts/fletxher-evl66-sadlapple-eye-pod-touch-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/gee-chasing-dreams)
 
-**Artist**: nightcore4totalsluts 
+**Artist**: Revolution-Records UK 
 
-**Track**: FLETXHER, evl66 & sadLapple - EYE POD TOUCH
+**Track**: GEE - CHASING DREAMS
 
-Last updated at 5/2/2026, 9:53:52 AM
+Last updated at 5/2/2026, 9:57:07 AM
