@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBiWWygI9pguUcbl-00z4Yg-t500x500.png">](https://soundcloud.com/princesselfbar/good-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PejTgd0XiYBKCB5T-zlX2hA-t500x500.png">](https://soundcloud.com/saint-baek/where-are-u-now)
 
-**Artist**: ✧princess elf bar✧, ANOP, chlo333e, sombra 
+**Artist**: justin bieber 
 
-**Track**: GOOD TIME  (ANOP X PRINCESS ELF BAR X CHLO333E X SOMBRA)
+**Track**: Where Are Ü Now
 
-Last updated at 5/2/2026, 9:41:08 AM
+Last updated at 5/2/2026, 9:44:13 AM
