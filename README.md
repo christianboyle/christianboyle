@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cnNsKW83gx9eITs0-Aw1Q1Q-t500x500.jpg">](https://soundcloud.com/darren-j-3/quality-bounce-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zHzB7WpNjEQDlNs-39KtdA-t500x500.png">](https://soundcloud.com/skuddofficial/i-dont-sell-molly-no-more-flip)
 
-**Artist**: Daz Mooney (Quality Bounce) 
+**Artist**: SKUDD 
 
-**Track**: Quality Bounce - Love Resurrection
+**Track**: I DON'T SELL MOLLY NO MORE FLIP
 
-Last updated at 5/2/2026, 8:52:22 AM
+Last updated at 5/2/2026, 8:54:08 AM
