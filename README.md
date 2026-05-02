@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pui13ymbTwMriXJl-IyUVdg-t500x500.jpg">](https://soundcloud.com/parallelhh/premiere-snowee-close-call-near-death-experience-free-dl?in=saxurn/sets/wanted-beliefs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7uYD2RNnQ0klVjHI-41ewAQ-t500x500.png">](https://soundcloud.com/satireclub/memories?in=saxurn/sets/wanted-beliefs)
 
-**Artist**: SNØWEE 
+**Artist**: satire 
 
-**Track**: PREMIERE /// SNØWEE - Close Call Near Death Experience (Free DL)
+**Track**: memories ft. twentyfifth (yashio, moz)
 
-Last updated at 5/2/2026, 4:34:45 PM
+Last updated at 5/2/2026, 4:40:20 PM
