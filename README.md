@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xw4Hs71qdvnNa6id-ZRxFvA-t500x500.jpg">](https://soundcloud.com/symmetrikmusic/fiji-symmetrik-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBiWWygI9pguUcbl-00z4Yg-t500x500.png">](https://soundcloud.com/princesselfbar/good-time)
 
-**Artist**: Symmetrik 
+**Artist**: ✧princess elf bar✧, ANOP, chlo333e, sombra 
 
-**Track**: Fiji (Symmetrik Remix)
+**Track**: GOOD TIME  (ANOP X PRINCESS ELF BAR X CHLO333E X SOMBRA)
 
-Last updated at 5/2/2026, 10:25:32 AM
+Last updated at 5/2/2026, 10:28:22 AM
