@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bl4fZwY13UEVdYnI-4ByhLA-t500x500.png">](https://soundcloud.com/djnktr/summer-dream-of-love-nktr-drip-dimitri-vegas-x-darren-styles?in=saxurn/sets/wanted-beliefs)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rhx6hpmH9RQWsXpQ-C4pZMw-t500x500.png">](https://soundcloud.com/markslamma/dj-demo-ur-mine-slamma-remix?in=saxurn/sets/wanted-beliefs)
 
-**Artist**: Dimitri Vegas & Darren Styles 
+**Artist**: SLAMMA 
 
-**Track**: Summer Dream Of Love (NKTR Drip) - Dimitri Vegas X Darren Styles
+**Track**: dj demo -  UR MINE  - SLAMMA remix
 
-Last updated at 5/2/2026, 4:43:32 PM
+Last updated at 5/2/2026, 4:49:58 PM
