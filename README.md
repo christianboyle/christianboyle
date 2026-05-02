@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Pui13ymbTwMriXJl-IyUVdg-t500x500.jpg">](https://soundcloud.com/parallelhh/premiere-snowee-close-call-near-death-experience-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ihUCIoQIys3QmNW-gqoUJg-t500x500.png">](https://soundcloud.com/highsynth1/drift-irwiin-trancend-out-now)
 
-**Artist**: SNØWEE 
+**Artist**: DRIFT 
 
-**Track**: PREMIERE /// SNØWEE - Close Call Near Death Experience (Free DL)
+**Track**: DRIFT & IRWIIN - TRANCEND (OUT NOW)
 
-Last updated at 5/2/2026, 8:50:08 AM
+Last updated at 5/2/2026, 8:51:07 AM
