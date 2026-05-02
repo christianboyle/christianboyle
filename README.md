@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PejTgd0XiYBKCB5T-zlX2hA-t500x500.png">](https://soundcloud.com/saint-baek/where-are-u-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U8TcatycN7aAsNnE-mcm3gw-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-x-steven-straub-read-1)
 
-**Artist**: justin bieber 
+**Artist**: DRIFT 
 
-**Track**: Where Are Ü Now
+**Track**: DRIFT X STEVEN STRAUB - READ ALL ABOUT IT Pt 11 (OUT NOW)
 
-Last updated at 5/2/2026, 9:44:13 AM
+Last updated at 5/2/2026, 9:45:13 AM
