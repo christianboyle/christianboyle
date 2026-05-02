@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bl4fZwY13UEVdYnI-4ByhLA-t500x500.png">](https://soundcloud.com/djnktr/summer-dream-of-love-nktr-drip-dimitri-vegas-x-darren-styles)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Rhx6hpmH9RQWsXpQ-C4pZMw-t500x500.png">](https://soundcloud.com/markslamma/dj-demo-ur-mine-slamma-remix)
 
-**Artist**: Dimitri Vegas & Darren Styles 
+**Artist**: SLAMMA 
 
-**Track**: Summer Dream Of Love (NKTR Drip) - Dimitri Vegas X Darren Styles
+**Track**: dj demo -  UR MINE  - SLAMMA remix
 
-Last updated at 5/2/2026, 9:17:48 AM
+Last updated at 5/2/2026, 9:20:48 AM
