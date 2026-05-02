@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LtSRpdXQIXkkOOD1-4HVcOA-t500x500.png">](https://soundcloud.com/nyptane-official/off-my-back)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-olvII7CaBM98Pg33-dzJ4Qg-t500x500.png">](https://soundcloud.com/dj-oggy-1/strings-broken-tide-mark-james)
 
-**Artist**: Nyptane & RISK 
+**Artist**: DJ MARK JAMES (PROJECT HAVOC - BOUNCE ADDICTS ) 
 
-**Track**: OFF MY BACK
+**Track**: STRINGS - BROKEN TIDE ( MARK JAMES REMIX )
 
-Last updated at 5/2/2026, 10:59:37 AM
+Last updated at 5/2/2026, 11:02:07 AM
