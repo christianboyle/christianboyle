@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2zHzB7WpNjEQDlNs-39KtdA-t500x500.png">](https://soundcloud.com/skuddofficial/i-dont-sell-molly-no-more-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynZBcp6UmVpXAocM-J0MBAg-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-think-twice)
 
-**Artist**: SKUDD 
+**Artist**: LUBO 
 
-**Track**: I DON'T SELL MOLLY NO MORE FLIP
+**Track**: LUBO - Think Twice
 
-Last updated at 5/2/2026, 8:54:08 AM
+Last updated at 5/2/2026, 8:56:33 AM
