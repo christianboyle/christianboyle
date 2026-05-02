@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000048397332-fam0kp-t500x500.jpg">](https://soundcloud.com/hiep612/mortal-kombat-theme-song-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xw4Hs71qdvnNa6id-ZRxFvA-t500x500.jpg">](https://soundcloud.com/symmetrikmusic/fiji-symmetrik-remix)
 
-**Artist**: Đoàn Thế Hiệp 
+**Artist**: Symmetrik 
 
-**Track**: Mortal Kombat Theme Song Original
+**Track**: Fiji (Symmetrik Remix)
 
-Last updated at 5/2/2026, 10:21:47 AM
+Last updated at 5/2/2026, 10:25:32 AM
