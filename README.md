@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XIEOD0KCyKAAgJyu-ag1w9A-t500x500.png">](https://soundcloud.com/lee-batchee-147371268/batchee-2-5-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-px1SrVkYYIdAPQBV-O8akpA-t500x500.png">](https://soundcloud.com/nick-hughes-9/nick-hughes-chris-j-catch-the)
 
-**Artist**: batchee 
+**Artist**: Nick Hughes 
 
-**Track**: BATCHEE..2.5.26
+**Track**: Nick Hughes Chris J Catch The Light#
 
-Last updated at 5/3/2026, 7:05:06 AM
+Last updated at 5/3/2026, 7:08:41 AM
