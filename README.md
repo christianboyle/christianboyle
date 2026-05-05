@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YBiWWygI9pguUcbl-00z4Yg-t500x500.png">](https://soundcloud.com/princesselfbar/good-time)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ig1M7FLZ970AF9iU-yioDOA-t500x500.png">](https://soundcloud.com/1gutter/dumb?in=saxurn/sets/substance-p)
 
-**Artist**: ✧princess elf bar✧, ANOP, chlo333e, sombra 
+**Artist**: beowulf, 00sev 
 
-**Track**: GOOD TIME  (ANOP X PRINCESS ELF BAR X CHLO333E X SOMBRA)
+**Track**: r u dumb❓(Ner0uN! + cr1sis)
 
-Last updated at 5/5/2026, 6:35:50 AM
+Last updated at 5/5/2026, 5:35:34 PM
