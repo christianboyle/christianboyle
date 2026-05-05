@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PejTgd0XiYBKCB5T-zlX2hA-t500x500.png">](https://soundcloud.com/saint-baek/where-are-u-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uazGo3IMS1FbHnhZ-dtu4XA-t500x500.png">](https://soundcloud.com/svitbebyink/vse-budet-zaebis)
 
-**Artist**: justin bieber 
+**Artist**: хуйня20 
 
-**Track**: Where Are Ü Now
+**Track**: ВЕРКА СЕРДЮЧКА - ВСЕ БУДЕТ ХОРОШО (HARDSTYLE)
 
-Last updated at 5/5/2026, 5:59:16 PM
+Last updated at 5/5/2026, 6:02:01 PM
