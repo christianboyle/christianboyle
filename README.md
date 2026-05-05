@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ig1M7FLZ970AF9iU-yioDOA-t500x500.png">](https://soundcloud.com/1gutter/dumb?in=saxurn/sets/substance-p)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHncorbir3d4q1FT-IEX5Kw-t500x500.png">](https://soundcloud.com/saint-baek/skrillex-smoke-flip2?in=saxurn/sets/substance-p)
 
-**Artist**: beowulf, 00sev 
+**Artist**: SAINT MILLER 
 
-**Track**: r u dumb❓(Ner0uN! + cr1sis)
+**Track**: Skrillex, ISOxo - Smoke (saint miller flip)
 
-Last updated at 5/5/2026, 5:35:34 PM
+Last updated at 5/5/2026, 5:45:36 PM
