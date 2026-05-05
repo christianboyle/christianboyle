@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PejTgd0XiYBKCB5T-zlX2hA-t500x500.png">](https://soundcloud.com/saint-baek/where-are-u-now)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DdEvs54lplfYRhia-P1G8LA-t500x500.png">](https://soundcloud.com/cristollo/rageframe)
 
-**Artist**: justin bieber 
+**Artist**: Cristollo 
 
-**Track**: Where Are Ü Now
+**Track**: RAGEFRAME
 
-Last updated at 5/5/2026, 5:48:01 PM
+Last updated at 5/5/2026, 5:50:46 PM
