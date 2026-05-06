@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-just-emotions?in=saxurn/sets/substance-p)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b2AeJouYKgtG75Oe-i0fiPQ-t500x500.jpg">](https://soundcloud.com/afterlatino/vxllain-igres-enxk-crystal)
 
-**Artist**: V-Bounce Hypasonic 
+**Artist**: Afterlatino 
 
-**Track**: V-Bounce  - Just Emotions (Original Mix) [Radio Edit]
+**Track**: VXLLAIN, iGRES, ENXK - Crystal Skies (Sped Up)  (FRASATHY RX)
 
-Last updated at 5/6/2026, 5:53:00 AM
+Last updated at 5/6/2026, 7:27:48 AM
