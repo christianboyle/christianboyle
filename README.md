@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EGcGG0HvI7urbNnS-WvHGlw-t500x500.jpg">](https://soundcloud.com/prettysweet2/subtronics-eyes-cut-deeper-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-19HMoF19JTOdQJIR-hs1CPg-t500x500.png">](https://soundcloud.com/404-e/alt-note-togetoge_rework-for)
 
-**Artist**: Pretty Sweet 
+**Artist**: uncalc  
 
-**Track**: Subtronics x Inéz - Eyes Cut Deeper (Pretty Sweet Remix)
+**Track**: alt note - TOGETOGE_REWORK FOR SOUNDCLOUD [free download]
 
-Last updated at 5/7/2026, 5:55:01 AM
+Last updated at 5/7/2026, 6:35:25 AM
