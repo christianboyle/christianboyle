@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DS5YPjqzBQ44LSlZ-0hW1Qg-t500x500.png">](https://soundcloud.com/wormhole-music-group/jimmy-pe-vellore-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8PgGKiX03fjKSTpk-1veISA-t500x500.jpg">](https://soundcloud.com/anskii/jack-wall-forever-anskii-remix)
 
-**Artist**: Jimmy Pé 
+**Artist**: Anskii 
 
-**Track**: Jimmy Pé - Vellore
+**Track**: Jack Wall - Remember Forever (Anskii Remix)
 
-Last updated at 5/6/2026, 8:38:37 PM
+Last updated at 5/6/2026, 8:39:42 PM
