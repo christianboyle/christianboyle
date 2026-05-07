@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9l80gBLLwBpKZvUq-sWaN7A-t500x500.jpg">](https://soundcloud.com/user-114302992/corefinity-production-duddy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9ziTMPoTRoSfgDj-m0pGPg-t500x500.png">](https://soundcloud.com/bncybncy/drake-liddell-ft-tayla-jai-fly)
 
-**Artist**: DANIEL DUDDY 
+**Artist**: Drake Liddell ft. Tayla Jai 
 
-**Track**: Corefinity Production Vol. 1  (DUDDY MIX)
+**Track**: Drake Liddell ft. Tayla Jai - Fly Away Today
 
-Last updated at 5/6/2026, 7:42:13 AM
+Last updated at 5/6/2026, 8:37:38 PM
