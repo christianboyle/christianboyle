@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSCiLR5Z2x8y3Tpa-VmoNhA-t500x500.png">](https://soundcloud.com/gabrielgsdj/dj-gabo-best-hard-dance-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qz1Oh1tK3yKbpXCi-K1bEzA-t500x500.png">](https://soundcloud.com/dnzrecords/crazyhutz-when-im-with-you)
 
-**Artist**: Dj Gabo 
+**Artist**: Crazyhutz 
 
-**Track**: Dj Gabo Best Hard Dance Mix Ever
+**Track**: Crazyhutz - When I'm With You
 
-Last updated at 5/7/2026, 6:37:30 AM
+Last updated at 5/7/2026, 6:38:40 AM
