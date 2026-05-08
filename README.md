@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F8Nq9h4OmvzPvPQr-Xfbdjw-t500x500.png">](https://soundcloud.com/yerbownik2/ray-of-midnight-sun)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bYtyZwQEmNF5jL3-ucmKlA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/m-stic-medicated)
 
-**Artist**: yerbby dj 
+**Artist**: M?STIC 
 
-**Track**: ray of midnight sun
+**Track**: M?STIC - MEDICATED
 
-Last updated at 5/7/2026, 6:40:40 AM
+Last updated at 5/8/2026, 5:29:54 AM
