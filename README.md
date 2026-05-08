@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8bYtyZwQEmNF5jL3-ucmKlA-t500x500.jpg">](https://soundcloud.com/soundsbymystic/m-stic-medicated)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2kRRmpzXyzW4lcqE-PmKI9A-t500x500.png">](https://soundcloud.com/cgnfuchur/dreams-are-worth-nothing)
 
-**Artist**: M?STIC 
+**Artist**: cgnfuchur 
 
-**Track**: M?STIC - MEDICATED
+**Track**: DREAMS ARE WORTH NOTHING!
 
-Last updated at 5/8/2026, 5:29:54 AM
+Last updated at 5/8/2026, 5:32:44 AM
