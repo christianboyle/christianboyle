@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pmaQequlpdv0fCPS-KpIrkg-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/boston-bounce-sessions-2026-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KS1BOvjjeGgf9yKu-9GXJ4A-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/madskies-set-me-free-free-download)
 
-**Artist**: ChunkeeMonkee_official 
+**Artist**: Madskies 
 
-**Track**: Boston Bounce sessions 2026 ILLINTENT
+**Track**: Madskies - Set Me Free [FREE DOWNLOAD]
 
-Last updated at 5/8/2026, 5:33:59 AM
+Last updated at 5/8/2026, 5:36:44 AM
