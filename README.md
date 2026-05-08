@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3zzX7uIicjW8Qkl-yfU7hQ-t500x500.png">](https://soundcloud.com/getterofficial/murda-feat-zoey808)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pMwpk79Pyz6buQ1o-o65gKg-t500x500.jpg">](https://soundcloud.com/paul-dickinson-449980311/just-tunes-vol-2)
 
-**Artist**: GETTER, ZOEY808 
+**Artist**: Dicky 
 
-**Track**: MURDA FT. ZOEY808
+**Track**: Just Tunes Vol 2
 
-Last updated at 5/8/2026, 6:30:52 PM
+Last updated at 5/8/2026, 6:56:18 PM
