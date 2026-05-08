@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9ziTMPoTRoSfgDj-m0pGPg-t500x500.png">](https://soundcloud.com/bncybncy/drake-liddell-ft-tayla-jai-fly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9L7Armdy7ysmWo3j-2IXjSw-t500x500.jpg">](https://soundcloud.com/djblerb/dark_carnival_mix)
 
-**Artist**: Drake Liddell ft. Tayla Jai 
+**Artist**: Blerb 
 
-**Track**: Drake Liddell ft. Tayla Jai - Fly Away Today
+**Track**: Dark Carnival mix
 
-Last updated at 5/8/2026, 7:09:34 AM
+Last updated at 5/8/2026, 7:12:34 AM
