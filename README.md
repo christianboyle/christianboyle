@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O569Kzxdy1z0TCnP-iHx73g-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-saag-d3-trt2050)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S9ziTMPoTRoSfgDj-m0pGPg-t500x500.png">](https://soundcloud.com/bncybncy/drake-liddell-ft-tayla-jai-fly)
 
-**Artist**: HATE, Saag 
+**Artist**: Drake Liddell ft. Tayla Jai 
 
-**Track**: Premiere: Saag — D3-TRT2050 (Marcal Remix) [MDWXLP016D]
+**Track**: Drake Liddell ft. Tayla Jai - Fly Away Today
 
-Last updated at 5/8/2026, 7:08:34 AM
+Last updated at 5/8/2026, 7:09:34 AM
