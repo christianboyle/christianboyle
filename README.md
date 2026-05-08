@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwhSQ20nFWzYkeNr-AMGd4w-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/mark-james-you?in=revolution-records-uk/sets/out-now-17543011)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LERQ0xSWbLVybIrS-OFAExQ-t500x500.jpg">](https://soundcloud.com/mark-nichols-365293004/nukleuz-records-mix)
 
-**Artist**: Revolution-Records UK 
+**Artist**: DJ Nichols78 
 
-**Track**: MARK JAMES - YOU _ OUT NOW
+**Track**: Nukleuz Records Mix
 
-Last updated at 5/8/2026, 7:03:04 AM
+Last updated at 5/8/2026, 7:06:54 AM
