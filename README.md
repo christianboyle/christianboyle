@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cJJ73yxIyECVw07z-N5FUwA-t500x500.png">](https://soundcloud.com/djroze-1/roze-adrenaline-stompers-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WwhSQ20nFWzYkeNr-AMGd4w-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/mark-james-you?in=revolution-records-uk/sets/out-now-17543011)
 
-**Artist**: Roze DJ 
+**Artist**: Revolution-Records UK 
 
-**Track**: Roze - Adrenaline Stompers 2026 Competition Entry!
+**Track**: MARK JAMES - YOU _ OUT NOW
 
-Last updated at 5/8/2026, 6:36:40 AM
+Last updated at 5/8/2026, 7:03:04 AM
