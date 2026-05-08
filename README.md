@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wxJz0yutBIVVXrmb-WXLckg-t500x500.jpg">](https://soundcloud.com/user-853939101/luka-i-got-it-loemps-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3zzX7uIicjW8Qkl-yfU7hQ-t500x500.png">](https://soundcloud.com/getterofficial/murda-feat-zoey808)
 
-**Artist**: LØEMPS 
+**Artist**: GETTER, ZOEY808 
 
-**Track**: LUKA - I Got It (LØEMPS Edit) FREEDL
+**Track**: MURDA FT. ZOEY808
 
-Last updated at 5/8/2026, 5:53:44 PM
+Last updated at 5/8/2026, 6:14:51 PM
