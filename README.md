@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h1hFz3XOU7tEZ0TM-7JzcxQ-t500x500.png">](https://soundcloud.com/harmony-of-hardcore/harmony-of-hardcore-2026-warm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itcl4UpyuAKsOUTB-g7dofg-t500x500.jpg">](https://soundcloud.com/chozenofficial/cinema-chozen-x-noetika-flip-2)
 
-**Artist**: Critical Mass 
+**Artist**: CHOZEN 
 
-**Track**: Harmony of Hardcore 2026 Warm-up by Critical Mass
+**Track**: Benny Benassi - Cinema (CHOZEN X NOETIKA Flip)
 
-Last updated at 5/9/2026, 4:36:01 PM
+Last updated at 5/9/2026, 4:54:37 PM
