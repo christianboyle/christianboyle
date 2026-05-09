@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3zzX7uIicjW8Qkl-yfU7hQ-t500x500.png">](https://soundcloud.com/getterofficial/murda-feat-zoey808)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DjzxwwtB9yFj7ISb-pGDJHQ-t500x500.png">](https://soundcloud.com/highcaliberrecs/malefik-rapture)
 
-**Artist**: GETTER, ZOEY808 
+**Artist**: High Caliber Records 
 
-**Track**: MURDA FT. ZOEY808
+**Track**: Malefik - Rapture
 
-Last updated at 5/9/2026, 6:48:32 AM
+Last updated at 5/9/2026, 6:58:36 AM
