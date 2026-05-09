@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-daf2ew6V22izbGjL-EpLcPQ-t500x500.png">](https://soundcloud.com/drobliterane/fckitupdrobliteranevlinderzedit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h1hFz3XOU7tEZ0TM-7JzcxQ-t500x500.png">](https://soundcloud.com/harmony-of-hardcore/harmony-of-hardcore-2026-warm)
 
-**Artist**: DR. OBLITERANE, VLINDERZ, Wild Motherfuckers 
+**Artist**: Critical Mass 
 
-**Track**: Wild Motherfuckers - Fuck It Up (DR. OBLITERANE & VLINDERZ Edit) [FREE DOWNLOAD]
+**Track**: Harmony of Hardcore 2026 Warm-up by Critical Mass
 
-Last updated at 5/9/2026, 4:32:06 PM
+Last updated at 5/9/2026, 4:36:01 PM
