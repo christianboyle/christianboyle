@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJ7njMbAqg9y5nHt-5Afs8g-t500x500.png">](https://soundcloud.com/nervous-records/sms-the-sound-of-love-extended)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybGjm95zAL9WIYuj-wtQvmA-t500x500.png">](https://soundcloud.com/djfinny1/raving-warriors-live-030526)
 
-**Artist**: SMS 
+**Artist**: djfinny1 (Darren Finlayson) 
 
-**Track**: SMS - The Sound of Love (Extended Mix)
+**Track**: Raving Warriors Live 030526
 
-Last updated at 5/9/2026, 5:04:27 PM
+Last updated at 5/9/2026, 5:08:45 PM
