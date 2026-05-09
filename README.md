@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j07HKKyXonYAK8Zi-60YVuQ-t500x500.png">](https://soundcloud.com/penis-label/the-shitposters-burp-in-shiii-33)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l733g9UovLjWT66y-iTJrjA-t500x500.jpg">](https://soundcloud.com/ravenscoon/linkin-park-vs-gucci-mane-waka)
 
-**Artist**: PENIS MUSIC COLLECTIVE 
+**Artist**: Ravenscoon 
 
-**Track**: The Shitposters - burp in shiii
+**Track**: Linkin Park vs Gucci (KEIFERGR33N Remix) [RAVENSCOON EDIT]
 
-Last updated at 5/8/2026, 8:40:12 PM
+Last updated at 5/8/2026, 8:43:43 PM
