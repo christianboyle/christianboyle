@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bOy7pMZ0Z7y8yQC7-DlR4vw-t500x500.png">](https://soundcloud.com/symmetrikmusic/symmetrik-rhyme-is-a-drug)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJ7njMbAqg9y5nHt-5Afs8g-t500x500.png">](https://soundcloud.com/nervous-records/sms-the-sound-of-love-extended)
 
-**Artist**: Symmetrik 
+**Artist**: SMS 
 
-**Track**: Symmetrik - Rhyme is A Drug (Extended Mix)
+**Track**: SMS - The Sound of Love (Extended Mix)
 
-Last updated at 5/9/2026, 5:00:17 PM
+Last updated at 5/9/2026, 5:04:27 PM
