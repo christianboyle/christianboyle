@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-98y3xSuk7gtJkOn6-m52uQg-t500x500.jpg">](https://soundcloud.com/ihatemodels/i-hate-models-bbc-radio-1-essential-mix-05-14-2022)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fqawBIlzfKaBPVvd-RGwXuw-t500x500.png">](https://soundcloud.com/onyxberlin/maudux-bossy-bossy-down)
 
-**Artist**: I Hate Models 
+**Artist**: Onyx Records 
 
-**Track**: I Hate Models - BBC Radio 1 Essential Mix (05-14-2022)
+**Track**: Maudux - Bossy Bossy Down
 
-Last updated at 5/9/2026, 4:56:51 PM
+Last updated at 5/9/2026, 4:57:57 PM
