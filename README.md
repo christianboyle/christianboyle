@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qz1Oh1tK3yKbpXCi-K1bEzA-t500x500.png">](https://soundcloud.com/dnzrecords/crazyhutz-when-im-with-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3zzX7uIicjW8Qkl-yfU7hQ-t500x500.png">](https://soundcloud.com/getterofficial/murda-feat-zoey808)
 
-**Artist**: Crazyhutz 
+**Artist**: GETTER, ZOEY808 
 
-**Track**: Crazyhutz - When I'm With You
+**Track**: MURDA FT. ZOEY808
 
-Last updated at 5/8/2026, 8:46:28 PM
+Last updated at 5/9/2026, 6:48:32 AM
