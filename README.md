@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vfwv186qq6zDWlEa-ZJ9Btg-t500x500.png">](https://soundcloud.com/mayple_dubs/subtronics-x-inez-eyes-cut-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mTdvcIuy8gkqVQdP-MZExkw-t500x500.png">](https://soundcloud.com/willdabeastofficial/where-the-road-narrows)
 
-**Artist**: Mayple 
+**Artist**: Chilldabeast 
 
-**Track**: Subtronics x Inéz - Eyes Cut Deeper [Mayple Remix]
+**Track**: Where The Road Narrows
 
-Last updated at 5/9/2026, 7:39:39 PM
+Last updated at 5/9/2026, 7:44:04 PM
