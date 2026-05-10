@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyP3tJRYYjEH4p4j-q51K3A-t500x500.jpg">](https://soundcloud.com/cozykevvv/long-live-asap-rmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vfwv186qq6zDWlEa-ZJ9Btg-t500x500.png">](https://soundcloud.com/mayple_dubs/subtronics-x-inez-eyes-cut-1)
 
-**Artist**: cozy kev 
+**Artist**: Mayple 
 
-**Track**: LONG LIVE A$AP (COZY KEV REMIX)
+**Track**: Subtronics x Inéz - Eyes Cut Deeper [Mayple Remix]
 
-Last updated at 5/9/2026, 7:37:39 PM
+Last updated at 5/9/2026, 7:39:39 PM
