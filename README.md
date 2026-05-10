@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMvfkquHdBkBKvz3-WPZCeA-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-frankie-watch-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuiZg3W4Vcvazzu1-7zWCXQ-t500x500.jpg">](https://soundcloud.com/user-732083412/shopping-w-besties)
 
-**Artist**: RAW 
+**Artist**: bino's bin 
 
-**Track**: Premiere: Frankie Watch feat. Linda - Secret Game (Bounce Mix) [DIR062]
+**Track**: shopping w besties
 
-Last updated at 5/10/2026, 8:59:59 AM
+Last updated at 5/10/2026, 12:08:59 PM
