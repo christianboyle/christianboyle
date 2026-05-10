@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ybGjm95zAL9WIYuj-wtQvmA-t500x500.png">](https://soundcloud.com/djfinny1/raving-warriors-live-030526)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3zzX7uIicjW8Qkl-yfU7hQ-t500x500.png">](https://soundcloud.com/getterofficial/murda-feat-zoey808)
 
-**Artist**: djfinny1 (Darren Finlayson) 
+**Artist**: GETTER, ZOEY808 
 
-**Track**: Raving Warriors Live 030526
+**Track**: MURDA FT. ZOEY808
 
-Last updated at 5/9/2026, 5:08:45 PM
+Last updated at 5/9/2026, 7:21:02 PM
