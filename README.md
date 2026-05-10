@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuiZg3W4Vcvazzu1-7zWCXQ-t500x500.jpg">](https://soundcloud.com/user-732083412/shopping-w-besties)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L9iazu5z5z3FyKvk-brgWuQ-t500x500.png">](https://soundcloud.com/mportaudio/actintoughdeepa)
 
-**Artist**: bino's bin 
+**Artist**: Mport 
 
-**Track**: shopping w besties
+**Track**: Dean Turnley - Actin' Tough (Mport Flip)
 
-Last updated at 5/10/2026, 7:00:30 AM
+Last updated at 5/10/2026, 7:02:10 AM
