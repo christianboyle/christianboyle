@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-frXedSGP1V5Xyf6Z-YhwSMw-t500x500.png">](https://soundcloud.com/halo_king/illusionz-euphoric-anabolic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjc87s0cANwzbw0H-oggtaw-t500x500.png">](https://soundcloud.com/gesesmusic/doghouse)
 
-**Artist**: Halo King 
+**Artist**: GESES 
 
-**Track**: Illusionz (Euphoric Anabolic Gym Tik Tok Motivation)
+**Track**: Drake x YEAT - DOG HOUSE (GESES Hard Techno Remix) [SUPPORTED BY IHATEMODELS, TRYM]
 
-Last updated at 5/9/2026, 8:50:36 PM
+Last updated at 5/9/2026, 8:52:34 PM
