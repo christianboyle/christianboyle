@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHncorbir3d4q1FT-IEX5Kw-t500x500.png">](https://soundcloud.com/saint-baek/skrillex-smoke-flip2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-IXm4oNRPFIXFQVEW-riReyQ-t500x500.jpg">](https://soundcloud.com/ryze11/stay)
 
-**Artist**: SAINT MILLER 
+**Artist**: Ryze 
 
-**Track**: Skrillex, ISOxo - Smoke (saint miller flip)
+**Track**: Stay
 
-Last updated at 5/9/2026, 8:29:54 PM
+Last updated at 5/9/2026, 8:32:14 PM
