@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G3zzX7uIicjW8Qkl-yfU7hQ-t500x500.png">](https://soundcloud.com/getterofficial/murda-feat-zoey808)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WsMTVmbDqpdDDIcL-aAiy6w-t500x500.png">](https://soundcloud.com/user-311753535-76863659/4-raws-hard-techno-remix)
 
-**Artist**: GETTER, ZOEY808 
+**Artist**: MLW 
 
-**Track**: MURDA FT. ZOEY808
+**Track**: 4 RAWS (Hard Techno Remix)
 
-Last updated at 5/9/2026, 7:21:02 PM
+Last updated at 5/9/2026, 7:24:42 PM
