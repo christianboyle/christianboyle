@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WsMTVmbDqpdDDIcL-aAiy6w-t500x500.png">](https://soundcloud.com/user-311753535-76863659/4-raws-hard-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1NtigLzR86rchJpm-YGFp7A-t500x500.png">](https://soundcloud.com/gesesmusic/nobrokeboys)
 
-**Artist**: MLW 
+**Artist**: Disco Lines feat. Tinashe, GESES 
 
-**Track**: 4 RAWS (Hard Techno Remix)
+**Track**: Disco Lines feat. Tinashe - No Broke Boys (GESES Hard Remix) [SUPPORTED BY IHATEMODELS & MALAA]
 
-Last updated at 5/9/2026, 7:24:42 PM
+Last updated at 5/9/2026, 7:28:19 PM
