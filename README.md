@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l733g9UovLjWT66y-iTJrjA-t500x500.jpg">](https://soundcloud.com/ravenscoon/linkin-park-vs-gucci-mane-waka)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qz1Oh1tK3yKbpXCi-K1bEzA-t500x500.png">](https://soundcloud.com/dnzrecords/crazyhutz-when-im-with-you)
 
-**Artist**: Ravenscoon 
+**Artist**: Crazyhutz 
 
-**Track**: Linkin Park vs Gucci (KEIFERGR33N Remix) [RAVENSCOON EDIT]
+**Track**: Crazyhutz - When I'm With You
 
-Last updated at 5/9/2026, 8:10:44 PM
+Last updated at 5/9/2026, 8:13:29 PM
