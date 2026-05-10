@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zuiZg3W4Vcvazzu1-7zWCXQ-t500x500.jpg">](https://soundcloud.com/user-732083412/shopping-w-besties)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZyP3tJRYYjEH4p4j-q51K3A-t500x500.jpg">](https://soundcloud.com/cozykevvv/long-live-asap-rmx)
 
-**Artist**: bino's bin 
+**Artist**: cozy kev 
 
-**Track**: shopping w besties
+**Track**: LONG LIVE A$AP (COZY KEV REMIX)
 
-Last updated at 5/10/2026, 12:08:59 PM
+Last updated at 5/10/2026, 12:10:34 PM
