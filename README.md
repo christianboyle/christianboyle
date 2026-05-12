@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XBSBPv9rvyrH2wt9-piWvLw-t500x500.png">](https://soundcloud.com/musicbyafinity/duro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X1zkUvBKEusUtrST-F19FKg-t500x500.png">](https://soundcloud.com/satoshijpn/blowremix)
 
-**Artist**: Afinity 
+**Artist**:  Ke$ha 
 
-**Track**: Skrillex & Young Miko - Duro (Afinity Remix)
+**Track**: Ke$ha - Blow (Ezra Hazard & SATOSHI Remix)
 
-Last updated at 5/12/2026, 6:24:49 AM
+Last updated at 5/12/2026, 6:14:48 PM
