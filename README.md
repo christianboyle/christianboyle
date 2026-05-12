@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P7D1Gm5kDugjP2tj-p5Efrg-t500x500.png">](https://soundcloud.com/contagious-records/cr279-riko-x-shax-x-miranda)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o4RhqoLf1XXyus4H-uzNLzQ-t500x500.png">](https://soundcloud.com/ian-suryadi/a-single-thought-l3xology)
 
-**Artist**: CONTAGIOUS RECORDS 
+**Artist**: Dj L3xology 
 
-**Track**: [CR279] RIKO x SHAX x MIRANDA - BASS IS PUMPIN (OUT NOW)
+**Track**: 张紫宁, 李鑫一 - A Single Thought 一念 (L3XOLOGY Radio Mix)
 
-Last updated at 5/12/2026, 6:09:09 AM
+Last updated at 5/12/2026, 6:10:59 AM
