@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KRPSnyLdDZqIr4fY-DGA6TA-t500x500.png">](https://soundcloud.com/gesesmusic/4raws)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yjc87s0cANwzbw0H-oggtaw-t500x500.png">](https://soundcloud.com/gesesmusic/doghouse)
 
 **Artist**: GESES 
 
-**Track**: EsDeeKid - 4 RAWS (GESES Hard Remix) [SUPPORTED BY IHATEMODELS]
+**Track**: Drake x YEAT - DOG HOUSE (GESES Hard Techno Remix) [SUPPORTED BY IHATEMODELS, TRYM]
 
-Last updated at 5/12/2026, 6:01:48 AM
+Last updated at 5/12/2026, 6:04:08 AM
