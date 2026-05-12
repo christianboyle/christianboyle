@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-chsmgnw7zZeXDn8t-3fTjrw-t500x500.png">](https://soundcloud.com/silencerecordss/unknown-at-180)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V69B3wyot9LAxNFz-R8AUOQ-t500x500.jpg">](https://soundcloud.com/user-443705311/massan-x-arcadian-sound)
 
-**Artist**: UηκηΘωN 
+**Artist**: Massan, Arcadian Sound 
 
-**Track**: UηκηΘωN - At 180
+**Track**: Massan x Arcadian Sound - Arachnid
 
-Last updated at 5/12/2026, 6:17:29 AM
+Last updated at 5/12/2026, 6:18:39 AM
