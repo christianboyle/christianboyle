@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvhJTYtOP3zKVChi-168D6Q-t500x500.png">](https://soundcloud.com/majesmusic/majes-pretty-rave-girl-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNBCReTyyEn9jTRS-7u6kDQ-t500x500.png">](https://soundcloud.com/daniel7official/melodiam-fantasia)
 
-**Artist**: Majes 
+**Artist**: Daniel Seven, ちゃきな 
 
-**Track**: Majes - Pretty Rave Girl (Free DL)
+**Track**: Melodiam Fantasia
 
-Last updated at 5/14/2026, 5:50:34 AM
+Last updated at 5/14/2026, 6:42:17 PM
