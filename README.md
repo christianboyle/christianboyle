@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TiVBUzdSG7oyxIyv-RzEuRQ-t500x500.png">](https://soundcloud.com/ravenscoon/summer-26-mix-v1-0)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvhJTYtOP3zKVChi-168D6Q-t500x500.png">](https://soundcloud.com/majesmusic/majes-pretty-rave-girl-free-dl)
 
-**Artist**: RAVENSCOON 
+**Artist**: Majes 
 
-**Track**: summer 26 mix v1.0
+**Track**: Majes - Pretty Rave Girl (Free DL)
 
-Last updated at 5/13/2026, 8:39:29 PM
+Last updated at 5/13/2026, 8:42:14 PM
