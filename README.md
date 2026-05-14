@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-chsmgnw7zZeXDn8t-3fTjrw-t500x500.png">](https://soundcloud.com/silencerecordss/unknown-at-180?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TiVBUzdSG7oyxIyv-RzEuRQ-t500x500.png">](https://soundcloud.com/ravenscoon/summer-26-mix-v1-0)
 
-**Artist**: UηκηΘωN 
+**Artist**: RAVENSCOON 
 
-**Track**: UηκηΘωN - At 180
+**Track**: summer 26 mix v1.0
 
-Last updated at 5/13/2026, 6:30:55 AM
+Last updated at 5/13/2026, 8:37:20 PM
