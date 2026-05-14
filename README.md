@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvhJTYtOP3zKVChi-168D6Q-t500x500.png">](https://soundcloud.com/majesmusic/majes-pretty-rave-girl-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJbR7jhL13bNQ8jl-z1M8jg-t500x500.png">](https://soundcloud.com/wishlane/no-pressure)
 
-**Artist**: Majes 
+**Artist**: wishlane, angelus 
 
-**Track**: Majes - Pretty Rave Girl (Free DL)
+**Track**: NO PRESSURE
 
-Last updated at 5/13/2026, 8:42:14 PM
+Last updated at 5/13/2026, 8:44:09 PM
