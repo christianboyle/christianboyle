@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy0VuIi5vyCcNyMs-b8y8mQ-t500x500.png">](https://soundcloud.com/djkenty/dj-kenty-chances-full-track)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvhJTYtOP3zKVChi-168D6Q-t500x500.png">](https://soundcloud.com/majesmusic/majes-pretty-rave-girl-free-dl)
 
-**Artist**: DJ Kenty 
+**Artist**: Majes 
 
-**Track**: DJ Kenty - Chances **FULL TRACK FREE DOWNLOAD**
+**Track**: Majes - Pretty Rave Girl (Free DL)
 
-Last updated at 5/13/2026, 8:48:44 PM
+Last updated at 5/14/2026, 5:50:34 AM
