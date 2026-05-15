@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eNRVxEFuzryrwJjU-5C3wFg-t500x500.png">](https://soundcloud.com/smoke-gang-beatz/dj-smokey-nuclear-spring-nuke)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V0ZGSanwrKAqcJjj-cwCyFA-t500x500.png">](https://soundcloud.com/carouseedinburgh/djwifiwtf)
 
-**Artist**: DJ SMOKEY 
+**Artist**: DJ WIFI 
 
-**Track**: DJ Smokey - "NUCLEAR SPRING: Nuke World Order" (FULL EP) *NUKE-A-HOLICS EXCLUSIVE*
+**Track**: DJ WIFI - WTF [CRS042]
 
-Last updated at 5/15/2026, 6:47:06 AM
+Last updated at 5/15/2026, 6:48:51 AM
