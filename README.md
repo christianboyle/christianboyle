@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qNBCReTyyEn9jTRS-7u6kDQ-t500x500.png">](https://soundcloud.com/daniel7official/melodiam-fantasia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cy0VuIi5vyCcNyMs-b8y8mQ-t500x500.png">](https://soundcloud.com/djkenty/dyingfree)
 
-**Artist**: Daniel Seven, ちゃきな 
+**Artist**: DJ Kenty 
 
-**Track**: Melodiam Fantasia
+**Track**: DJ Kenty - Dying (Only Hurts The First Time) **FULL TRACK FREE DOWNLOAD**
 
-Last updated at 5/14/2026, 6:42:17 PM
+Last updated at 5/14/2026, 7:13:22 PM
