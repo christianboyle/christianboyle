@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4CK2K4nKgkoqVvM6-wPzSgw-t500x500.png">](https://soundcloud.com/highsynth1/drift-steven-straub-thats-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5XCN1zk73qe0M1yN-h66FIg-t500x500.png">](https://soundcloud.com/senrankagura/mw3)
 
-**Artist**: DRIFT 
+**Artist**: hikage 
 
-**Track**: DRIFT & STEVEN STRAUB - THATS THE WAY IT IS (OUT NOW)
+**Track**: modern warfare 3 (bbmonsterdd)
 
-Last updated at 5/14/2026, 7:18:07 PM
+Last updated at 5/14/2026, 7:19:07 PM
