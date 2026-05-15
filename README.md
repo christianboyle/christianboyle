@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QPildaV5ETV6H7MQ-qQ3MHg-t500x500.png">](https://soundcloud.com/gravitas-recordings/ekorce-last-embers-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eoYaTdA2UT9xc5q0-tvASjw-t500x500.png">](https://soundcloud.com/grandalliancemusic/funk)
 
-**Artist**: Ekorce 
+**Artist**: Zhonk 
 
-**Track**: Ekorce - Last Embers
+**Track**: Funk Your DnB (Grand Alliance Music)
 
-Last updated at 5/14/2026, 7:20:27 PM
+Last updated at 5/14/2026, 7:24:18 PM
