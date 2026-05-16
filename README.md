@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Anm3ZZuTnWuxmbOI-aSzN2w-t500x500.png">](https://soundcloud.com/justicehardcore/fts2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-asFLllcARSaLEynl-tpVHhg-t500x500.png">](https://soundcloud.com/darbysounds/fivehoursrmx)
 
-**Artist**: Justice Hardcore 
+**Artist**: Darby 
 
-**Track**: Nobody - Find The Strength (2026 Remix) (OUT NOW)
+**Track**: DEORRO - FIVE HOURS (DARBY REMIX)
 
-Last updated at 5/15/2026, 8:48:41 PM
+Last updated at 5/15/2026, 8:51:46 PM
