@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMCe67kmJnyN97mz-N5NlAw-t500x500.png">](https://soundcloud.com/daniel7official/puzzle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QtIfEgLI6mZ6yIch-WI0Vdw-t500x500.jpg">](https://soundcloud.com/heklermusic/skrillex-isoxo-cristale)
 
-**Artist**: Daniel Seven 
+**Artist**: Skrillex, ISOxo, Cristale, TeeZandos, HEKLER 
 
-**Track**: Puzzle (feat. Kuupi)
+**Track**: Skrillex, ISOxo, Cristale, TeeZandos - SMOKE (HEKLER FLIP)
 
-Last updated at 5/15/2026, 8:37:36 PM
+Last updated at 5/15/2026, 8:43:36 PM
