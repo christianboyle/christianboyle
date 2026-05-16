@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QtIfEgLI6mZ6yIch-WI0Vdw-t500x500.jpg">](https://soundcloud.com/heklermusic/skrillex-isoxo-cristale)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LbMnhohAabDTkBZ2-VDCuyQ-t500x500.png">](https://soundcloud.com/speckz_yeetz/speckz-put-yo-hood-up)
 
-**Artist**: Skrillex, ISOxo, Cristale, TeeZandos, HEKLER 
+**Artist**: Speckz 
 
-**Track**: Skrillex, ISOxo, Cristale, TeeZandos - SMOKE (HEKLER FLIP)
+**Track**: SPECKZ - PUT YO HOOD UP
 
-Last updated at 5/15/2026, 8:43:36 PM
+Last updated at 5/15/2026, 8:45:31 PM
