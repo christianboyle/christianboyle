@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kBbq5fTlyMNZHku3-klxFgw-t500x500.png">](https://soundcloud.com/sweetsoursound/doja-cat-tia-tamera-sweet-n-sour)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bsfkFDz2d8llM6UK-9D6IIg-t500x500.png">](https://soundcloud.com/wubaholics/bagg-flare-2)
 
-**Artist**: sweet n sour 
+**Artist**: Wubaholics 
 
-**Track**: doja cat - tia tamera (sweet n sour flip)
+**Track**: BAGG - FLARE
 
-Last updated at 5/15/2026, 8:54:46 PM
+Last updated at 5/15/2026, 8:57:31 PM
