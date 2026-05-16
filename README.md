@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zZeT3zyTOOLc8y6U-ePX9kA-t500x500.jpg">](https://soundcloud.com/resonantbass/resonant-bass-down-bad-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yMCe67kmJnyN97mz-N5NlAw-t500x500.png">](https://soundcloud.com/daniel7official/puzzle)
 
-**Artist**: Resonant Bass 
+**Artist**: Daniel Seven 
 
-**Track**: Down Bad - Dreamville (Resonant Bass Flip)  [Mugic.us Premiere]
+**Track**: Puzzle (feat. Kuupi)
 
-Last updated at 5/15/2026, 6:49:51 AM
+Last updated at 5/15/2026, 8:37:36 PM
