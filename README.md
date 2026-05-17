@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfiYmBIr6GS9pnHI-8y0DtQ-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-gzmo-cloudy-days?in=saxurn/sets/cal-i-dreamin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X1zkUvBKEusUtrST-F19FKg-t500x500.png">](https://soundcloud.com/satoshijpn/blowremix?in=saxurn/sets/cal-i-dreamin)
 
-**Artist**: LUBO 
+**Artist**:  Ke$ha 
 
-**Track**: LUBO & GZMO - Cloudy Days
+**Track**: Ke$ha - Blow (Ezra Hazard & SATOSHI Remix)
 
-Last updated at 5/17/2026, 6:25:20 PM
+Last updated at 5/17/2026, 6:28:45 PM
