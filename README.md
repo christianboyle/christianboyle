@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUL5ineAyhzq4m2t-0NvtwQ-t500x500.png">](https://soundcloud.com/vandawav/smoke-vanda-rmx-1)
 
-**Artist**: LDS 
+**Artist**: VANDA 
 
-**Track**: LDS - Business Influencer Theme
+**Track**: Smoke - vanda rmx
 
-Last updated at 5/17/2026, 6:40:41 PM
+Last updated at 5/17/2026, 6:44:31 PM
