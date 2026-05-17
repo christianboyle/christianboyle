@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FhKy3Aa6PGrfJBNh-1ZUHiA-t500x500.jpg">](https://soundcloud.com/iosio/iosio-luka-tu-tu-i-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5bU1wYykaqf7Gzm-rKn3zg-t500x500.png">](https://soundcloud.com/michaelgofficial/free-to-fly-ft-terrilee)
 
-**Artist**: IOSIO, LUKA 
+**Artist**: Michael G , TerriLee 
 
-**Track**: Tu Tu (I Go)
+**Track**: Free To Fly (Ft TerriLee)
 
-Last updated at 5/17/2026, 8:56:16 AM
+Last updated at 5/17/2026, 8:58:36 AM
