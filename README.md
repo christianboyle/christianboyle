@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tAbeQbcP2cN8MXLh-83aNyw-t500x500.jpg">](https://soundcloud.com/nillbeats/boston-nill-flip?in=saxurn/sets/cal-i-dreamin)
 
-**Artist**: LDS 
+**Artist**: NILL 
 
-**Track**: LDS - Business Influencer Theme
+**Track**: STELLA LEFTY - BOSTON (NILL FLIP)
 
-Last updated at 5/17/2026, 6:01:55 PM
+Last updated at 5/17/2026, 6:06:20 PM
