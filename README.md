@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X1zkUvBKEusUtrST-F19FKg-t500x500.png">](https://soundcloud.com/satoshijpn/blowremix?in=saxurn/sets/cal-i-dreamin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUL5ineAyhzq4m2t-0NvtwQ-t500x500.png">](https://soundcloud.com/vandawav/smoke-vanda-rmx-1)
 
-**Artist**:  Ke$ha 
+**Artist**: VANDA 
 
-**Track**: Ke$ha - Blow (Ezra Hazard & SATOSHI Remix)
+**Track**: Smoke - vanda rmx
 
-Last updated at 5/17/2026, 6:28:45 PM
+Last updated at 5/17/2026, 6:31:20 PM
