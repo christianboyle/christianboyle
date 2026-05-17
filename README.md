@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2429gzB3UzalyyS-vQxVCw-t500x500.jpg">](https://soundcloud.com/hyperionbass/ayurveda-code-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1)
 
-**Artist**: Hyperion 
+**Artist**: LDS 
 
-**Track**: Ayurveda Code
+**Track**: LDS - Business Influencer Theme
 
-Last updated at 5/17/2026, 6:37:12 PM
+Last updated at 5/17/2026, 6:40:41 PM
