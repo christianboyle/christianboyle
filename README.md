@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RMYTb3CHCvnQFCon-jBZK9g-t500x500.png">](https://soundcloud.com/vxds/vxvxvxxvvxxvvxxvxvxvxvxvxvxvxvxvxvxvxvxv?in=saxurn/sets/cal-i-dreamin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RfiYmBIr6GS9pnHI-8y0DtQ-t500x500.png">](https://soundcloud.com/amplifiedbounce/lubo-gzmo-cloudy-days?in=saxurn/sets/cal-i-dreamin)
 
-**Artist**: vxdsᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠᅠ55 
+**Artist**: LUBO 
 
-**Track**: Kasher Quon - Motion (Prod By Power)
+**Track**: LUBO & GZMO - Cloudy Days
 
-Last updated at 5/17/2026, 6:23:20 PM
+Last updated at 5/17/2026, 6:25:20 PM
