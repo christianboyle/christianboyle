@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZOWQZ4vG3QULPgn0-aHNRxQ-t500x500.jpg">](https://soundcloud.com/maadwest1/a-ap-rocky-helicopter-maad?in=saxurn/sets/cal-i-dreamin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IZtrLQi1sSAaGUDe-83O4ig-t500x500.png">](https://soundcloud.com/wearestudio/synkro-tom-jarmey-north-star?in=saxurn/sets/cal-i-dreamin)
 
-**Artist**: MAAD WEST 
+**Artist**: STUDIO, Synkro, & Tom Jarmey 
 
-**Track**: A$AP ROCKY - HELICOPTER (MAAD WEST FLIP)
+**Track**: Synkro & Tom Jarmey - North Star
 
-Last updated at 5/17/2026, 6:14:45 PM
+Last updated at 5/17/2026, 6:17:55 PM
