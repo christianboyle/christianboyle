@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bsfkFDz2d8llM6UK-9D6IIg-t500x500.png">](https://soundcloud.com/wubaholics/bagg-flare-2)
 
-**Artist**: LDS 
+**Artist**: Wubaholics 
 
-**Track**: LDS - Business Influencer Theme
+**Track**: BAGG - FLARE
 
-Last updated at 5/16/2026, 6:54:23 AM
+Last updated at 5/17/2026, 7:15:53 AM
