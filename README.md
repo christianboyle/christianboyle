@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bsfkFDz2d8llM6UK-9D6IIg-t500x500.png">](https://soundcloud.com/wubaholics/bagg-flare-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hvhJTYtOP3zKVChi-168D6Q-t500x500.png">](https://soundcloud.com/majesmusic/majes-pretty-rave-girl-free-dl?in=saxurn/sets/1a1/)
 
-**Artist**: Wubaholics 
+**Artist**: Majes 
 
-**Track**: BAGG - FLARE
+**Track**: Majes - Pretty Rave Girl (Free DL)
 
-Last updated at 5/18/2026, 6:15:41 AM
+Last updated at 5/18/2026, 6:16:44 AM
