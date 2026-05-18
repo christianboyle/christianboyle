@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mlMU7hiy2OlrlpyG-EhAnOw-t500x500.png">](https://soundcloud.com/ashmeoutsideofficial/shoot-shit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IUL5ineAyhzq4m2t-0NvtwQ-t500x500.png">](https://soundcloud.com/vandawav/smoke-vanda-rmx-1?in=saxurn/sets/poolio)
 
-**Artist**: ash me outside 
+**Artist**: VANDA 
 
-**Track**: SXMPRA and Shakewell - Shoot Shit (ash me outside flip)
+**Track**: Smoke - vanda rmx
 
-Last updated at 5/18/2026, 7:09:05 AM
+Last updated at 5/18/2026, 7:14:15 AM
