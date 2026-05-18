@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dOgE017lh0yuCBW1-h5ZkQg-t500x500.jpg">](https://soundcloud.com/user-732083412/jetski2013-sean-potter?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Anm3ZZuTnWuxmbOI-aSzN2w-t500x500.png">](https://soundcloud.com/justicehardcore/fts2026?in=saxurn/sets/1a1/)
 
-**Artist**: bino's bin 
+**Artist**: Justice Hardcore 
 
-**Track**: #jetski2013 [seanpotter + alkaline]
+**Track**: Nobody - Find The Strength (2026 Remix) (OUT NOW)
 
-Last updated at 5/18/2026, 6:17:44 AM
+Last updated at 5/18/2026, 6:20:39 AM
