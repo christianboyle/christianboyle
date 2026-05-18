@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-W2429gzB3UzalyyS-vQxVCw-t500x500.jpg">](https://soundcloud.com/hyperionbass/ayurveda-code-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JR98nIZGdFgWEzWB-EpzZSA-t500x500.jpg">](https://soundcloud.com/vyharamusic/missy-elliot-the-rain-vyhara-flip)
 
-**Artist**: Hyperion 
+**Artist**: Vyhara 
 
-**Track**: Ayurveda Code
+**Track**: Missy Elliot - The Rain (Vyhara flip)
 
-Last updated at 5/18/2026, 6:02:51 AM
+Last updated at 5/18/2026, 6:04:41 AM
