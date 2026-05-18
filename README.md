@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Anm3ZZuTnWuxmbOI-aSzN2w-t500x500.png">](https://soundcloud.com/justicehardcore/fts2026?in=saxurn/sets/poolio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1?in=saxurn/sets/poolio)
 
-**Artist**: Justice Hardcore 
+**Artist**: LDS 
 
-**Track**: Nobody - Find The Strength (2026 Remix) (OUT NOW)
+**Track**: LDS - Business Influencer Theme
 
-Last updated at 5/18/2026, 7:17:15 AM
+Last updated at 5/18/2026, 7:20:20 AM
