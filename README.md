@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o2aMRrLK6nyEx541-f2TLKA-t500x500.png">](https://soundcloud.com/gabbystart/kefir)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lM2SRwQ2I4oiWtYg-7lePxg-t500x500.png">](https://soundcloud.com/dnzrecords/bbz-rock-your-body)
 
-**Artist**: gabby start 
+**Artist**: BBZ 
 
-**Track**: Kefir
+**Track**: BBZ - Rock Your Body
 
-Last updated at 5/19/2026, 6:12:06 AM
+Last updated at 5/19/2026, 7:03:54 AM
