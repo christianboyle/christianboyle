@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0cTBzRwHKfSMnX1-8D938g-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-lubo-just-cant-get-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1DP3VlzFdZGDoVX7-uxrKZg-t500x500.png">](https://soundcloud.com/satoshijpn/rockthatbodyremix?in=saxurn/sets/1a1/)
 
-**Artist**: GZMO 
+**Artist**: SATOSHI 
 
-**Track**: GZMO & LUBO - Just Cant Get Enough
+**Track**: The Black Eyed Peas - Rock That Body (SATOSHI Remix)
 
-Last updated at 5/19/2026, 1:07:31 PM
+Last updated at 5/19/2026, 1:10:42 PM
