@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ec2Q1TS6AyFtRltW-X499fw-t500x500.jpg">](https://soundcloud.com/dnzrecords/nova-scotia-rise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ONPPvxOYDPzUhcIa-Ic9Alw-t500x500.png">](https://soundcloud.com/ghost_rook/dead-of-night-1)
 
-**Artist**: Nova Scotia 
+**Artist**: Ghost Rook 
 
-**Track**: Nova Scotia - Rise
+**Track**: Dead of Night
 
-Last updated at 5/19/2026, 7:05:04 AM
+Last updated at 5/19/2026, 9:07:36 AM
