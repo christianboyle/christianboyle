@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D7denCXnHq1UGr1w-fSDBjA-t500x500.png">](https://soundcloud.com/sachsentrance/schuhmacher-lovmenot-rework)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7lYzeYD4BRz9PqnQ-eriKYQ-t500x500.png">](https://soundcloud.com/hevynfire/alive-hevynfire-rosey-sample)
 
-**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
+**Artist**: HEVYNFIRE 
 
-**Track**: [PREMIERE] lovmenot - Schuhmacher (Formula 06 Rework)
+**Track**: ALIVE - HEVYNFIRE & ROSEY (SAMPLE) OUT SOON
 
-Last updated at 5/19/2026, 9:08:36 AM
+Last updated at 5/19/2026, 9:09:46 AM
