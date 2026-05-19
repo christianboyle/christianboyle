@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JR98nIZGdFgWEzWB-EpzZSA-t500x500.jpg">](https://soundcloud.com/vyharamusic/missy-elliot-the-rain-vyhara-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0cTBzRwHKfSMnX1-8D938g-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-lubo-just-cant-get-enough)
 
-**Artist**: Vyhara 
+**Artist**: GZMO 
 
-**Track**: Missy Elliot - The Rain (Vyhara flip)
+**Track**: GZMO & LUBO - Just Cant Get Enough
 
-Last updated at 5/19/2026, 1:06:20 PM
+Last updated at 5/19/2026, 1:07:31 PM
