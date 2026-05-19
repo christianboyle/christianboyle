@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWrw5zF1RbmywNyZ-IYqPoQ-t500x500.png">](https://soundcloud.com/blend95-924397865/blend-i-need-a-miracle?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7fJ5ymjPEZP0oVl-8shbAg-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/darren-glancy-make-heaven-cry?in=saxurn/sets/1a1/)
 
-**Artist**: Blend 
+**Artist**: Darren Glancy 
 
-**Track**: Blend - I Need A Miracle
+**Track**: Darren Glancy - Make Heaven Cry (Work In Progress)
 
-Last updated at 5/19/2026, 1:16:02 PM
+Last updated at 5/19/2026, 1:17:57 PM
