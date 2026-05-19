@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UWrw5zF1RbmywNyZ-IYqPoQ-t500x500.png">](https://soundcloud.com/blend95-924397865/blend-i-need-a-miracle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JR98nIZGdFgWEzWB-EpzZSA-t500x500.jpg">](https://soundcloud.com/vyharamusic/missy-elliot-the-rain-vyhara-flip)
 
-**Artist**: Blend 
+**Artist**: Vyhara 
 
-**Track**: Blend - I Need A Miracle
+**Track**: Missy Elliot - The Rain (Vyhara flip)
 
-Last updated at 5/19/2026, 1:05:18 PM
+Last updated at 5/19/2026, 1:06:20 PM
