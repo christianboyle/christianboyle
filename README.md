@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lM2SRwQ2I4oiWtYg-7lePxg-t500x500.png">](https://soundcloud.com/dnzrecords/bbz-rock-your-body)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ec2Q1TS6AyFtRltW-X499fw-t500x500.jpg">](https://soundcloud.com/dnzrecords/nova-scotia-rise)
 
-**Artist**: BBZ 
+**Artist**: Nova Scotia 
 
-**Track**: BBZ - Rock Your Body
+**Track**: Nova Scotia - Rise
 
-Last updated at 5/19/2026, 7:03:54 AM
+Last updated at 5/19/2026, 7:05:04 AM
