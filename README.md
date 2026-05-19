@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ONPPvxOYDPzUhcIa-Ic9Alw-t500x500.png">](https://soundcloud.com/ghost_rook/dead-of-night-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D7denCXnHq1UGr1w-fSDBjA-t500x500.png">](https://soundcloud.com/sachsentrance/schuhmacher-lovmenot-rework)
 
-**Artist**: Ghost Rook 
+**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: Dead of Night
+**Track**: [PREMIERE] lovmenot - Schuhmacher (Formula 06 Rework)
 
-Last updated at 5/19/2026, 9:07:36 AM
+Last updated at 5/19/2026, 9:08:36 AM
