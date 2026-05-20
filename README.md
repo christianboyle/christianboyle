@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mG4UElDzbnWyymkt-AsPTUw-t500x500.png">](https://soundcloud.com/marc69-1/marc-k-b-v-inf3rnus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1)
 
-**Artist**: Marc.K.B 
+**Artist**: LDS 
 
-**Track**: Marc.k.b v Inf3rnus
+**Track**: LDS - Business Influencer Theme
 
-Last updated at 5/19/2026, 2:44:22 PM
+Last updated at 5/20/2026, 5:58:05 AM
