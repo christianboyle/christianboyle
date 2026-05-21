@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7bGway96TDox4Sp8-oM478A-t500x500.png">](https://soundcloud.com/oddlanguage/dada-life-kick-out-the-epic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3xi8KS5apYINALmY-xgD9EA-t500x500.jpg">](https://soundcloud.com/remyheartmusic/showtek-cannonball-remix)
 
-**Artist**: odd language 
+**Artist**: Showtek, Justin Prime 
 
-**Track**: Dada Life - Kick Out The Epic Motherf**ker (Odd Language x Zachary Remix)
+**Track**: Cannonball (Remy Heart Flip)
 
-Last updated at 5/20/2026, 7:30:51 PM
+Last updated at 5/20/2026, 7:33:46 PM
