@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JocD0V9rzuD499pH-1edMPQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/arkyn-the-quest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-edr43UPQ8LjUsrVE-2y3O6w-t500x500.png">](https://soundcloud.com/mikrodot/rubadub)
 
-**Artist**: Hardcore Energy 
+**Artist**: Mikrodot 
 
-**Track**: Arkyn - The Quest
+**Track**: RDSC - Rub A Dub (Mikrodot Bootleg)
 
-Last updated at 5/20/2026, 7:03:07 PM
+Last updated at 5/20/2026, 7:07:21 PM
