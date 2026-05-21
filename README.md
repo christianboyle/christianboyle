@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-R0wzxWKyfmyve7N6-P7yFog-t500x500.png">](https://soundcloud.com/candyflip030/808s-terra-twins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JocD0V9rzuD499pH-1edMPQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/arkyn-the-quest)
 
-**Artist**: candyrecords030 
+**Artist**: Hardcore Energy 
 
-**Track**: 808's - Terra Twiins
+**Track**: Arkyn - The Quest
 
-Last updated at 5/20/2026, 7:00:12 PM
+Last updated at 5/20/2026, 7:03:07 PM
