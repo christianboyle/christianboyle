@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7bGway96TDox4Sp8-oM478A-t500x500.png">](https://soundcloud.com/oddlanguage/dada-life-kick-out-the-epic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JocD0V9rzuD499pH-1edMPQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/arkyn-the-quest?in=hardcoreenergy/sets/arkyn-duality-city-connection)
 
-**Artist**: odd language 
+**Artist**: Hardcore Energy 
 
-**Track**: Dada Life - Kick Out The Epic Motherf**ker (Odd Language x Zachary Remix)
+**Track**: Arkyn - The Quest
 
-Last updated at 5/20/2026, 7:11:26 PM
+Last updated at 5/20/2026, 7:12:31 PM
