@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JocD0V9rzuD499pH-1edMPQ-t500x500.png">](https://soundcloud.com/hardcoreenergy/arkyn-the-quest?in=hardcoreenergy/sets/arkyn-duality-city-connection)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ynUynmB9Ho5PmBUA-32j9hA-t500x500.png">](https://soundcloud.com/hardcoreenergy/shirley-temper-bang-the-drum)
 
 **Artist**: Hardcore Energy 
 
-**Track**: Arkyn - The Quest
+**Track**: Shirley Temper - Bang The Drum
 
-Last updated at 5/20/2026, 7:12:31 PM
+Last updated at 5/20/2026, 7:13:31 PM
