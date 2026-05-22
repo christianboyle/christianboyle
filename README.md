@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7fJ5ymjPEZP0oVl-8shbAg-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/darren-glancy-make-heaven-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I6DysOvHOiV5JJMi-Pe3cxQ-t500x500.png">](https://soundcloud.com/dj-gary-ward/eyes-wide-shut-dj-gary-ward)
 
-**Artist**: Darren Glancy 
+**Artist**: DJ Gary Ward 
 
-**Track**: Darren Glancy - Make Heaven Cry (Work In Progress)
+**Track**: Eyes wide shut - DJ Gary Ward Remix (Bounce)  (CLIP)
 
-Last updated at 5/22/2026, 6:04:58 AM
+Last updated at 5/22/2026, 6:10:08 AM
