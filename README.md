@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pIvqzzjlxUdva7op-xYqYkA-t500x500.png">](https://soundcloud.com/revisedrecords/pisapia-it-kozlov-landed-in-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qrgkp0g3dNukMvqj-aaw3wg-t500x500.jpg">](https://soundcloud.com/333cxt/333cxt-x-retard-mental-groupie)
 
-**Artist**: Revised Records 
+**Artist**: 333CXT, RETARD MENTAL 
 
-**Track**: PISAPIA (IT) & Køzløv - Landed In Hell
+**Track**: 333CXT x RETARD MENTAL - GROUPIE B*TCH  (FREE DL)
 
-Last updated at 5/23/2026, 10:00:07 AM
+Last updated at 5/23/2026, 10:04:47 AM
