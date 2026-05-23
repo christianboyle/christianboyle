@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q5JEgS6zAlaOrQQZ-7g83Uw-t500x500.png">](https://soundcloud.com/zwvrt-235912442/turbulence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-149UKTyc2OIRt4nO-cipyrw-t500x500.jpg">](https://soundcloud.com/codywongg/sweater-weather?in=saxurn/sets/desync/)
 
-**Artist**: RayRay & Reggio 
+**Artist**: CODY WONG 
 
-**Track**: Turbulence (FREE DL)
+**Track**: CODY WONG x  MËRO - Sweater Weather
 
-Last updated at 5/23/2026, 6:29:02 PM
+Last updated at 5/23/2026, 6:31:12 PM
