@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfrT7ZnjanqTUqfh-n2N6eQ-t500x500.png">](https://soundcloud.com/darkmatter_ofc/dark-matter-dr-obliterane-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aN4EowkZyY5Y9rOs-rUK5pw-t500x500.png">](https://soundcloud.com/zentryc/free-dl-innerbloom-hard-techno)
 
-**Artist**: DARK MATTER, DR. OBLITERANE 
+**Artist**: Zentryc 
 
-**Track**: Dark Matter & DR. OBLITERANE - Wired Inside (Extended Mix / FREE DL)
+**Track**: [FREE DL] Innerbloom (Hard Techno Edit) - JXCN x Zentryc
 
-Last updated at 5/23/2026, 10:07:47 AM
+Last updated at 5/23/2026, 10:12:57 AM
