@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiTyUzMB9tvZygZ1-PArpFg-t500x500.jpg">](https://soundcloud.com/contraslaps/slimzee-boylan-riko-dan-mile-end-contra-flip-1?in=saxurn/sets/desync/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2qIV9HLPPYhKW8u-VKQyVg-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-psycho-bass-mexut?in=saxurn/sets/desync/)
 
-**Artist**: CØNTRA 
+**Artist**: GEWOONRAVES 
 
-**Track**: Slimzee, Boylan + Riko Dan - Mile End (CØNTRA FLIP)
+**Track**: [FREE DL] Psycho Bass - MEXUT
 
-Last updated at 5/23/2026, 1:47:23 PM
+Last updated at 5/23/2026, 1:49:43 PM
