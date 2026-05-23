@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oczzc3erGi28bMAv-iiOVUg-t500x500.png">](https://soundcloud.com/andrewnotemusic/upanddownrmx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0cTBzRwHKfSMnX1-8D938g-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-lubo-just-cant-get-enough)
 
-**Artist**: Billy More 
+**Artist**: GZMO 
 
-**Track**: Up & Down (Don't Fall In Love With Me) (Andrew Note Remix)
+**Track**: GZMO & LUBO - Just Cant Get Enough
 
-Last updated at 5/23/2026, 7:56:43 AM
+Last updated at 5/23/2026, 7:57:41 AM
