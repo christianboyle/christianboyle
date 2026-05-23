@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kwgnvletptkSvsAC-nLx9SA-t500x500.jpg">](https://soundcloud.com/samo5techno/i-want-your-soul-samo5-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uM5ozGxUtIJ6oguK-Od1cBA-t500x500.png">](https://soundcloud.com/dj-zandory/blackout-halo)
 
-**Artist**: SAMO5 
+**Artist**: DJ Zandory 
 
-**Track**: I Want Your Soul - SAMO5 Remix
+**Track**: Blackout Halo
 
-Last updated at 5/23/2026, 5:57:23 PM
+Last updated at 5/23/2026, 6:00:48 PM
