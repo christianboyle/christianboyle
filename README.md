@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WGUBQH2NApGiMo9U-MwyDuA-t500x500.png">](https://soundcloud.com/innergatetechno/premiere-grivo-let-the-system)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pIvqzzjlxUdva7op-xYqYkA-t500x500.png">](https://soundcloud.com/revisedrecords/pisapia-it-kozlov-landed-in-1)
 
-**Artist**: INNERGATED 
+**Artist**: Revised Records 
 
-**Track**: Premiere: GRIVØ- LET THE SYSTEM DIE [NEO17]
+**Track**: PISAPIA (IT) & Køzløv - Landed In Hell
 
-Last updated at 5/23/2026, 9:56:22 AM
+Last updated at 5/23/2026, 10:00:07 AM
