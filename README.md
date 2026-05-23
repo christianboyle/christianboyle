@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T7fJ5ymjPEZP0oVl-8shbAg-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/darren-glancy-make-heaven-cry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BUlXIdZFeWCmrZSl-MeLiew-t500x500.jpg">](https://soundcloud.com/steven-j-wilson-2/wilson-angel-above-me)
 
-**Artist**: Darren Glancy 
+**Artist**: Dj Wilson (official) 
 
-**Track**: Darren Glancy - Make Heaven Cry (Work In Progress)
+**Track**: Wilson - Angel Above Me
 
-Last updated at 5/22/2026, 7:59:22 PM
+Last updated at 5/22/2026, 8:04:22 PM
