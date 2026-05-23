@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-149UKTyc2OIRt4nO-cipyrw-t500x500.jpg">](https://soundcloud.com/codywongg/sweater-weather?in=saxurn/sets/desync/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kwgnvletptkSvsAC-nLx9SA-t500x500.jpg">](https://soundcloud.com/samo5techno/i-want-your-soul-samo5-remix)
 
-**Artist**: CODY WONG 
+**Artist**: SAMO5 
 
-**Track**: CODY WONG x  MËRO - Sweater Weather
+**Track**: I Want Your Soul - SAMO5 Remix
 
-Last updated at 5/23/2026, 5:52:18 PM
+Last updated at 5/23/2026, 5:57:23 PM
