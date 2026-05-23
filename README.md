@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I6DysOvHOiV5JJMi-Pe3cxQ-t500x500.png">](https://soundcloud.com/dj-gary-ward/eyes-wide-shut-dj-gary-ward)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9a7B4Rcbl6BTKzhy-XqPIXw-t500x500.png">](https://soundcloud.com/vbounce/v-bounce-rumble-thrill)
 
-**Artist**: DJ Gary Ward 
+**Artist**: V-Bounce 
 
-**Track**: Eyes wide shut - DJ Gary Ward Remix (Bounce)  (CLIP)
+**Track**: V-Bounce - Rumble & Thrill
 
-Last updated at 5/22/2026, 6:10:08 AM
+Last updated at 5/22/2026, 7:01:38 PM
