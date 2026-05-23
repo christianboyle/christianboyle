@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jPIAypn8Ov7yK3lF-Jtg3YA-t500x500.png">](https://soundcloud.com/notzo/ian-van-dahl-castles-in-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiTyUzMB9tvZygZ1-PArpFg-t500x500.jpg">](https://soundcloud.com/contraslaps/slimzee-boylan-riko-dan-mile-end-contra-flip-1)
 
-**Artist**: NOTZO 
+**Artist**: CØNTRA 
 
-**Track**: Ian Van Dahl - Castles In The Sky (Notzo 2026 Remix) [FREE DOWNLOAD]
+**Track**: Slimzee, Boylan + Riko Dan - Mile End (CØNTRA FLIP)
 
-Last updated at 5/23/2026, 8:09:39 AM
+Last updated at 5/23/2026, 8:10:39 AM
