@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0cTBzRwHKfSMnX1-8D938g-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-lubo-just-cant-get-enough)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5sRhpz3pXOntpOpf-hZVoaw-t500x500.png">](https://soundcloud.com/newglam/free-download-jannik-van-der)
 
-**Artist**: GZMO 
+**Artist**: JANNIK VAN DER VEGT 
 
-**Track**: GZMO & LUBO - Just Cant Get Enough
+**Track**: FREE DOWNLOAD // JANNIK VAN DER VEGT - ADRENALINE (NEW GLAM)
 
-Last updated at 5/23/2026, 7:57:41 AM
+Last updated at 5/23/2026, 7:58:42 AM
