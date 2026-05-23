@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Izf2zBeIFOzN0R1S-L4gwGA-t500x500.png">](https://soundcloud.com/the-subliminal-kid/lds-business-influencer-theme-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMvfkquHdBkBKvz3-WPZCeA-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-frankie-watch-feat)
 
-**Artist**: LDS 
+**Artist**: RAW 
 
-**Track**: LDS - Business Influencer Theme
+**Track**: Premiere: Frankie Watch feat. Linda - Secret Game (Bounce Mix) [DIR062]
 
-Last updated at 5/22/2026, 8:12:07 PM
+Last updated at 5/23/2026, 6:12:40 AM
