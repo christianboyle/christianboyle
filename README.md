@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMvfkquHdBkBKvz3-WPZCeA-t500x500.jpg">](https://soundcloud.com/rawppl/premiere-frankie-watch-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L0cTBzRwHKfSMnX1-8D938g-t500x500.jpg">](https://soundcloud.com/gzmo-productions/gzmo-lubo-just-cant-get-enough)
 
-**Artist**: RAW 
+**Artist**: GZMO 
 
-**Track**: Premiere: Frankie Watch feat. Linda - Secret Game (Bounce Mix) [DIR062]
+**Track**: GZMO & LUBO - Just Cant Get Enough
 
-Last updated at 5/23/2026, 6:12:40 AM
+Last updated at 5/23/2026, 7:01:38 AM
