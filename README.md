@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQQzrMcszvJTp9Re-P0T7yw-t500x500.jpg">](https://soundcloud.com/listorio/we-like-to-party)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-149UKTyc2OIRt4nO-cipyrw-t500x500.jpg">](https://soundcloud.com/codywongg/sweater-weather)
 
-**Artist**: LISTORIO x Trancemaster Krause 
+**Artist**: CODY WONG 
 
-**Track**: We Like To Party [Original Mix]
+**Track**: CODY WONG x  MËRO - Sweater Weather
 
-Last updated at 5/24/2026, 6:19:21 PM
+Last updated at 5/24/2026, 6:24:01 PM
