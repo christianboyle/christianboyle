@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klkZkWDlFRZPZbZM-Cc7QnQ-t500x500.jpg">](https://soundcloud.com/undehfined/mousai-x-undehfined-street-slang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q8eVIeddWyaPiEzr-6wzhCw-t500x500.png">](https://soundcloud.com/easydoesitbass/easy-does-it-disposable)
 
-**Artist**: Mousai x Undehfined 
+**Artist**: EASY DOES IT 
 
-**Track**: Street Slang
+**Track**: EASY DOES IT - DISPOSABLE
 
-Last updated at 5/24/2026, 5:59:08 PM
+Last updated at 5/24/2026, 6:02:36 PM
