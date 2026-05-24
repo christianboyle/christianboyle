@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rccz2MzyKseV7q7O-7EJ8vg-t500x500.png">](https://soundcloud.com/mugic_us/badkidsgoodpeople-heartbreak)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EGTlgIQDtf9dby9s-EWw6yA-t500x500.png">](https://soundcloud.com/omnirock/sarniezz-omnirock-x)
 
-**Artist**: BadKidsGoodPeople 
+**Artist**: Angine De Poitrine, GooseTronics, Omnirock 
 
-**Track**: BadKidsGoodPeople - HEARTBREAK [MUG016] (FREE DOWNLOAD)
+**Track**: Sarniezz (Omnirock x GooseTronics Bootleg)
 
-Last updated at 5/24/2026, 4:06:01 PM
+Last updated at 5/24/2026, 4:08:01 PM
