@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l5muiPGvH9ebcwFY-gkASJA-t500x500.png">](https://soundcloud.com/user-690273969/hungry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klkZkWDlFRZPZbZM-Cc7QnQ-t500x500.jpg">](https://soundcloud.com/undehfined/mousai-x-undehfined-street-slang)
 
-**Artist**: DJ BuddyHolly 
+**Artist**: Mousai x Undehfined 
 
-**Track**: DJ BuddyHolly - 💖"Hungry Eye's"💖
+**Track**: Street Slang
 
-Last updated at 5/24/2026, 5:41:49 PM
+Last updated at 5/24/2026, 5:43:28 PM
