@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUxm5xxVN8uMhTco-CMwwKQ-t500x500.jpg">](https://soundcloud.com/rylekamsay/pretty-green-eyes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jPIAypn8Ov7yK3lF-Jtg3YA-t500x500.png">](https://soundcloud.com/notzo/ian-van-dahl-castles-in-the)
 
-**Artist**: Kyle Ramsay 
+**Artist**: NOTZO 
 
-**Track**: Ultrabeat - Pretty Green Eyes (Kyle Ramsays Rework)
+**Track**: Ian Van Dahl - Castles In The Sky (Notzo 2026 Remix) [FREE DOWNLOAD]
 
-Last updated at 5/24/2026, 6:12:12 PM
+Last updated at 5/24/2026, 6:14:56 PM
