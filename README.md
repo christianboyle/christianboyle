@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S6zo1X2zAFPpJqpF-PwFcug-t500x500.png">](https://soundcloud.com/tanfa/smoketanfaclubfestival?in=saxurn/sets/desync)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aiTyUzMB9tvZygZ1-PArpFg-t500x500.jpg">](https://soundcloud.com/contraslaps/slimzee-boylan-riko-dan-mile-end-contra-flip-1?in=saxurn/sets/desync)
 
-**Artist**: Skrillex, ISOxo 
+**Artist**: CØNTRA 
 
-**Track**: Skrillex, ISOxo  -  Smoke  ( Tanfa CLUB RMX )
+**Track**: Slimzee, Boylan + Riko Dan - Mile End (CØNTRA FLIP)
 
-Last updated at 5/24/2026, 3:47:41 PM
+Last updated at 5/24/2026, 3:50:21 PM
