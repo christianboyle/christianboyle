@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G6mL0GFG5uFTKHAg-r8sGDw-t500x500.jpg">](https://soundcloud.com/hgods/the-pale-horse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-149UKTyc2OIRt4nO-cipyrw-t500x500.jpg">](https://soundcloud.com/codywongg/sweater-weather?in=saxurn/sets/desync)
 
-**Artist**: HGods 
+**Artist**: CODY WONG 
 
-**Track**: THE PALE HORSE
+**Track**: CODY WONG x  MËRO - Sweater Weather
 
-Last updated at 5/24/2026, 6:27:24 AM
+Last updated at 5/24/2026, 3:27:11 PM
