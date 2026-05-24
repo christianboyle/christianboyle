@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2qIV9HLPPYhKW8u-VKQyVg-t500x500.png">](https://soundcloud.com/gewoonraves/free-dl-psycho-bass-mexut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DUxm5xxVN8uMhTco-CMwwKQ-t500x500.jpg">](https://soundcloud.com/rylekamsay/pretty-green-eyes)
 
-**Artist**: GEWOONRAVES 
+**Artist**: Kyle Ramsay 
 
-**Track**: [FREE DL] Psycho Bass - MEXUT
+**Track**: Ultrabeat - Pretty Green Eyes (Kyle Ramsays Rework)
 
-Last updated at 5/24/2026, 6:08:01 PM
+Last updated at 5/24/2026, 6:12:12 PM
