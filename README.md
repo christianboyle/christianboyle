@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QSHzyW2Sz5odJj1A-gj8gJg-t500x500.jpg">](https://soundcloud.com/highsocietyofficial/datamoshradio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kmleZDKnKWL8c7xi-KnFnXw-t500x500.jpg">](https://soundcloud.com/dourr/dour-x-pal4-cataclysm)
 
-**Artist**: HIGHSOCIETY 
+**Artist**: DOUR, PAL4 
 
-**Track**: HIGHSOCIETY Presents - DATAMOSH Radio Episode 001
+**Track**: DOUR x PAL4 - Cataclysm
 
-Last updated at 5/24/2026, 8:31:30 PM
+Last updated at 5/24/2026, 8:31:44 PM
