@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9cqi5yBTxKShezST-mzItbQ-t500x500.png">](https://soundcloud.com/mart-x-dj/subtronics-x-inez-eyes-cut)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZc1abH3gb6F6XMk-Ypynaw-t500x500.png">](https://soundcloud.com/ezkill715/ezkill-control-free-download)
 
-**Artist**: Mart!x 
+**Artist**: EzKill 
 
-**Track**: Subtronics x Inéz - Eyes Cut Deeper (Mart!x Remix)
+**Track**: EzKill - Control     !!!Free Download!!!
 
-Last updated at 5/25/2026, 5:10:16 PM
+Last updated at 5/25/2026, 5:13:26 PM
