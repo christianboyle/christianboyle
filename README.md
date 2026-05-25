@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IsSj7S3txPM6W7BZ-YCAXpg-t500x500.jpg">](https://soundcloud.com/user-63968721/final-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SmvDJ8L15NeiT1wz-N4ibyg-t500x500.png">](https://soundcloud.com/ion_music/subtronics-x-inez-eyes-cut-1)
 
-**Artist**: COSTA 
+**Artist**: ION 
 
-**Track**: Tove Lo - Talking Body (COSTA REMIX)
+**Track**: Subtronics x Inéz - Eyes Cut Deeper (ION Remix)
 
-Last updated at 5/25/2026, 5:16:06 PM
+Last updated at 5/25/2026, 5:18:01 PM
