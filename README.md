@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SmvDJ8L15NeiT1wz-N4ibyg-t500x500.png">](https://soundcloud.com/ion_music/subtronics-x-inez-eyes-cut-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YiLpI4eQyziKnGPL-sUkq5Q-t500x500.jpg">](https://soundcloud.com/lennybenbasat/8ef9232a-076b-4c03-9676-81cb543f1233)
 
-**Artist**: ION 
+**Artist**: LennyTunes 
 
-**Track**: Subtronics x Inéz - Eyes Cut Deeper (ION Remix)
+**Track**: Spring Tank
 
-Last updated at 5/25/2026, 5:18:01 PM
+Last updated at 5/25/2026, 5:19:01 PM
