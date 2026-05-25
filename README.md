@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YvwsclhSX1a9DyyB-5upOJQ-t500x500.jpg">](https://soundcloud.com/emoticonharddance/francesco-zeta-rock-n-rave-emoticons-170bpm-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7Bjag8GanBAH0xA4-YpaO9g-t500x500.png">](https://soundcloud.com/harrymorelli/so-easy-h-rry-edit)
 
-**Artist**: ⚪️⚫️ Emoticon ⚫️⚪️ 
+**Artist**: H&RRY 
 
-**Track**: Francesco Zeta - Rock N' Rave (Emoticon's 170bpm Edit)
+**Track**: SO EASY - H&RRY Edit
 
-Last updated at 5/25/2026, 9:15:39 AM
+Last updated at 5/25/2026, 9:16:39 AM
