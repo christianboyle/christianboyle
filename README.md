@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQQzrMcszvJTp9Re-P0T7yw-t500x500.jpg">](https://soundcloud.com/listorio/we-like-to-party?in=saxurn/sets/loss-func/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsq6LBAdeJ9W812O-e2Ge9w-t500x500.jpg">](https://soundcloud.com/new-mantra/weekends-remix?in=saxurn/sets/loss-func/)
 
-**Artist**: LISTORIO x Trancemaster Krause 
+**Artist**: Skrillex, NewMantra 
 
-**Track**: We Like To Party [Original Mix]
+**Track**: Skrillex - WEEKENDS!!! (NewMantra Remix)
 
-Last updated at 5/25/2026, 5:24:39 PM
+Last updated at 5/25/2026, 5:25:39 PM
