@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1CTSg1rA6qX2Si0-IyYMqQ-t500x500.jpg">](https://soundcloud.com/wayne-bodenham/bodders-stevie-c-everybody-in?in=saxurn/sets/loss-func/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQQzrMcszvJTp9Re-P0T7yw-t500x500.jpg">](https://soundcloud.com/listorio/we-like-to-party?in=saxurn/sets/loss-func/)
 
-**Artist**: Bodders 
+**Artist**: LISTORIO x Trancemaster Krause 
 
-**Track**: Bodders & Stevie C - Everybody In the Place [sample].mp3
+**Track**: We Like To Party [Original Mix]
 
-Last updated at 5/25/2026, 5:23:36 PM
+Last updated at 5/25/2026, 5:24:39 PM
