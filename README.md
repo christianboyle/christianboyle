@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klkZkWDlFRZPZbZM-Cc7QnQ-t500x500.jpg">](https://soundcloud.com/undehfined/mousai-x-undehfined-street-slang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQQzrMcszvJTp9Re-P0T7yw-t500x500.jpg">](https://soundcloud.com/listorio/we-like-to-party)
 
-**Artist**: Mousai x Undehfined 
+**Artist**: LISTORIO x Trancemaster Krause 
 
-**Track**: Street Slang
+**Track**: We Like To Party [Original Mix]
 
-Last updated at 5/24/2026, 8:08:13 PM
+Last updated at 5/24/2026, 8:16:27 PM
