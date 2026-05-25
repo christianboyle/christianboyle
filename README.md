@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tQQzrMcszvJTp9Re-P0T7yw-t500x500.jpg">](https://soundcloud.com/listorio/we-like-to-party?in=saxurn/sets/loss-func/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcKUfFztEnUm9swX-oXlZyQ-t500x500.png">](https://soundcloud.com/spydamusicproductions/i-manic-alice-where-did-you-go-in-the-mainroom-6?in=saxurn/sets/loss-func/)
 
-**Artist**: LISTORIO x Trancemaster Krause 
+**Artist**: I Manic Alice 
 
-**Track**: We Like To Party [Original Mix]
+**Track**: I Manic Alice - Where Did You Go Now? (Mainroom Club Mix)
 
-Last updated at 5/25/2026, 6:52:17 PM
+Last updated at 5/25/2026, 6:56:57 PM
