@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjFzylPUZCn7fv5L-lzfLAQ-t500x500.png">](https://soundcloud.com/techticmusic/techtic-murakami)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxD2rBN0Byd2lgOH-x4nxKg-t500x500.jpg">](https://soundcloud.com/user743518617/kaos-live-23-5-26)
 
-**Artist**: ＴＥＣＨＴＩＣ 
+**Artist**: dj moca 
 
-**Track**: TECHTIC - MURAKAMI
+**Track**: kaos live 23 5 26 🔥🤓
 
-Last updated at 5/25/2026, 5:21:06 PM
+Last updated at 5/25/2026, 5:22:06 PM
