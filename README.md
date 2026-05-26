@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcKUfFztEnUm9swX-oXlZyQ-t500x500.png">](https://soundcloud.com/spydamusicproductions/i-manic-alice-where-did-you-go-in-the-mainroom-6?in=saxurn/sets/loss-func/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZc1abH3gb6F6XMk-Ypynaw-t500x500.png">](https://soundcloud.com/ezkill715/ezkill-control-free-download?in=saxurn/sets/loss-func/)
 
-**Artist**: I Manic Alice 
+**Artist**: EzKill 
 
-**Track**: I Manic Alice - Where Did You Go Now? (Mainroom Club Mix)
+**Track**: EzKill - Control     !!!Free Download!!!
 
-Last updated at 5/25/2026, 6:56:57 PM
+Last updated at 5/25/2026, 7:05:07 PM
