@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZc1abH3gb6F6XMk-Ypynaw-t500x500.png">](https://soundcloud.com/ezkill715/ezkill-control-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVT9bu72kkmTzZbx-VLhlyA-t500x500.png">](https://soundcloud.com/steven-straub-114111305/drift-x-steven-straub-summer)
 
-**Artist**: EzKill 
+**Artist**: Steven Straub (Back Up) 
 
-**Track**: Control
+**Track**: Drift x Steven Straub - Summer Feeling
 
-Last updated at 5/26/2026, 8:32:37 PM
+Last updated at 5/27/2026, 6:55:11 AM
