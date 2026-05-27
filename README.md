@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1CTSg1rA6qX2Si0-IyYMqQ-t500x500.jpg">](https://soundcloud.com/wayne-bodenham/bodders-stevie-c-everybody-in?in=saxurn/sets/poof)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcKUfFztEnUm9swX-oXlZyQ-t500x500.png">](https://soundcloud.com/spydamusicproductions/i-manic-alice-where-did-you-go-in-the-mainroom-6?in=saxurn/sets/poof)
 
-**Artist**: Bodders 
+**Artist**: I Manic Alice 
 
-**Track**: Bodders & Stevie C - Everybody In the Place [sample].mp3
+**Track**: I Manic Alice - Where Did You Go Now? (Mainroom Club Mix)
 
-Last updated at 5/27/2026, 4:18:33 PM
+Last updated at 5/27/2026, 4:22:18 PM
