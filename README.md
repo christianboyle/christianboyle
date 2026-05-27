@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fsq6LBAdeJ9W812O-e2Ge9w-t500x500.jpg">](https://soundcloud.com/new-mantra/weekends-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zkq6mbMzGjhe0jHV-Yatoxg-t500x500.jpg">](https://soundcloud.com/yourfriendcara/listen)
 
-**Artist**: Skrillex, NewMantra 
+**Artist**: cara 
 
-**Track**: Skrillex - WEEKENDS!!! (NewMantra Remix)
+**Track**: LISTEN
 
-Last updated at 5/27/2026, 7:36:46 AM
+Last updated at 5/27/2026, 7:39:55 AM
