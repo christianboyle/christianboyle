@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tU6uiXAZw99Vqbn8-wyZOTw-t500x500.png">](https://soundcloud.com/helloego/dean-turnley-actin-tough-hello)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFo5pTvv6tVVjIbb-q2MVcQ-t500x500.png">](https://soundcloud.com/flight-force-records/si-no-te-cuida-lyon-kise)
 
-**Artist**: Hello Ego 
+**Artist**: Lyon Kise 
 
-**Track**: Dean Turnley - Actin' Tough (Hello Ego Flip)
+**Track**: Lyon Kise - Si No te Cuida (Makina Remix) [Free DL in description]
 
-Last updated at 5/27/2026, 7:20:10 AM
+Last updated at 5/27/2026, 7:25:45 AM
