@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jVT9bu72kkmTzZbx-VLhlyA-t500x500.png">](https://soundcloud.com/steven-straub-114111305/drift-x-steven-straub-summer)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tU6uiXAZw99Vqbn8-wyZOTw-t500x500.png">](https://soundcloud.com/helloego/dean-turnley-actin-tough-hello)
 
-**Artist**: Steven Straub (Back Up) 
+**Artist**: Hello Ego 
 
-**Track**: Drift x Steven Straub - Summer Feeling
+**Track**: Dean Turnley - Actin' Tough (Hello Ego Flip)
 
-Last updated at 5/27/2026, 6:55:11 AM
+Last updated at 5/27/2026, 7:20:10 AM
