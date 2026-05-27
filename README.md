@@ -4,6 +4,6 @@
 
 **Artist**: EzKill 
 
-**Track**: EzKill - Control     !!!Free Download!!!
+**Track**: Control
 
-Last updated at 5/26/2026, 7:35:16 PM
+Last updated at 5/26/2026, 8:32:37 PM
