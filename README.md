@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZc1abH3gb6F6XMk-Ypynaw-t500x500.png">](https://soundcloud.com/ezkill715/ezkill-control-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1CTSg1rA6qX2Si0-IyYMqQ-t500x500.jpg">](https://soundcloud.com/wayne-bodenham/bodders-stevie-c-everybody-in?in=saxurn/sets/poof)
 
-**Artist**: EzKill 
+**Artist**: Bodders 
 
-**Track**: EzKill - Control     !!!Free Download!!!
+**Track**: Bodders & Stevie C - Everybody In the Place [sample].mp3
 
-Last updated at 5/27/2026, 1:42:17 PM
+Last updated at 5/27/2026, 4:18:33 PM
