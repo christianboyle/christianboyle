@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MSinWszyFrr4EnP9-3ouNpA-t500x500.png">](https://soundcloud.com/luhvmusic/caroline-polachek-bunny-is-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4WJsyWiVoHoB1guC-kmRERA-t500x500.png">](https://soundcloud.com/dnzrecords/dj-mateu-in-this-world)
 
-**Artist**: Luhv, Kurei, Caroline Polachek 
+**Artist**: DJ Mateu 
 
-**Track**: Caroline Polachek - Bunny Is A Rider (Kurei x Luhv Remix)
+**Track**: DJ Mateu - In This World
 
-Last updated at 5/28/2026, 6:21:25 AM
+Last updated at 5/28/2026, 7:03:38 AM
