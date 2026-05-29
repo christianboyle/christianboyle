@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F1CTSg1rA6qX2Si0-IyYMqQ-t500x500.jpg">](https://soundcloud.com/wayne-bodenham/bodders-stevie-c-everybody-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YtzD2Q0N2pIBgJEj-NShfHw-t500x500.png">](https://soundcloud.com/highsynth1/drift-steven-straub-dancing-in)
 
-**Artist**: Bodders 
+**Artist**: DRIFT 
 
-**Track**: Bodders & Stevie C - Everybody In the Place [sample].mp3
+**Track**: DRIFT & STEVEN STRAUB - DANCING IN THE SKY (OUT NOW)
 
-Last updated at 5/29/2026, 5:41:33 PM
+Last updated at 5/29/2026, 5:43:58 PM
