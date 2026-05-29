@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-24PzzcKB7IFH2j6E-lpoozQ-t500x500.png">](https://soundcloud.com/satoshijpn/beautyandabeatremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8hVQwzCuJa09Jyhc-hJeWzA-t500x500.png">](https://soundcloud.com/jakobyte-records/when-we-were-kids)
 
-**Artist**: SATOSHI 
+**Artist**: DJ Highlander 
 
-**Track**: Justin Bieber - Beauty And A Beat (SATOSHI Remix)
+**Track**: When We Were Kids
 
-Last updated at 5/29/2026, 4:04:28 PM
+Last updated at 5/29/2026, 4:07:48 PM
