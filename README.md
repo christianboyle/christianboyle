@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VFo5pTvv6tVVjIbb-q2MVcQ-t500x500.png">](https://soundcloud.com/flight-force-records/si-no-te-cuida-lyon-kise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zI9t9cBbyct2O01W-o1e1Cg-t500x500.png">](https://soundcloud.com/user-466639912/i-let-go)
 
-**Artist**: Lyon Kise 
+**Artist**: Xariel 
 
-**Track**: Lyon Kise - Si No te Cuida (Makina Remix) [Free DL in description]
+**Track**: I Let Go
 
-Last updated at 5/29/2026, 5:06:22 PM
+Last updated at 5/29/2026, 5:10:32 PM
