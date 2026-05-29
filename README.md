@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EvY9YmLpUHTuFKeT-M95MsA-t500x500.jpg">](https://soundcloud.com/hussiemusic/cant-be-touched-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Xjvi3Vkb87GsGxDZ-XZ3HBw-t500x500.jpg">](https://soundcloud.com/kimatimusic/alew-warren-burning-down)
 
-**Artist**: Ray Jones Jr, Hussie Music 
+**Artist**: Kimati, Marzan 
 
-**Track**: Roy Jones Jr-Cant be Touched (Hussie Remix)
+**Track**: Alex Warren - Burning Down (kimati x Marzan flip)
 
-Last updated at 5/29/2026, 5:54:19 AM
+Last updated at 5/29/2026, 7:32:39 AM
