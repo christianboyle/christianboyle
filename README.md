@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8n3XMKXzBwBzupNe-xyAwwA-t500x500.jpg">](https://soundcloud.com/lister_aus/lister-black-is-back-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-24PzzcKB7IFH2j6E-lpoozQ-t500x500.png">](https://soundcloud.com/satoshijpn/beautyandabeatremix)
 
-**Artist**: Lister 
+**Artist**: SATOSHI 
 
-**Track**: LISTER - BLACK IS BACK [FREE DL]
+**Track**: Justin Bieber - Beauty And A Beat (SATOSHI Remix)
 
-Last updated at 5/29/2026, 4:01:33 PM
+Last updated at 5/29/2026, 4:04:28 PM
