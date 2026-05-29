@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zI9t9cBbyct2O01W-o1e1Cg-t500x500.png">](https://soundcloud.com/user-466639912/i-let-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zjFzylPUZCn7fv5L-lzfLAQ-t500x500.png">](https://soundcloud.com/techticmusic/techtic-murakami)
 
-**Artist**: Xariel 
+**Artist**: ＴＥＣＨＴＩＣ 
 
-**Track**: I Let Go
+**Track**: TECHTIC - MURAKAMI
 
-Last updated at 5/29/2026, 5:10:32 PM
+Last updated at 5/29/2026, 5:14:32 PM
