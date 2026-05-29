@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VKBIE2PJRZ8DMoJI-w2PktA-t500x500.png">](https://soundcloud.com/neokhin_music/taste-of-your-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8n3XMKXzBwBzupNe-xyAwwA-t500x500.jpg">](https://soundcloud.com/lister_aus/lister-black-is-back-free-dl)
 
-**Artist**: NEØKHIN, 2VINE 
+**Artist**: Lister 
 
-**Track**: TASTE OF YOUR LOVE - [FREE DL]
+**Track**: LISTER - BLACK IS BACK [FREE DL]
 
-Last updated at 5/29/2026, 3:57:33 PM
+Last updated at 5/29/2026, 4:01:33 PM
