@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oy4OkXcgU4izzE5X-JzyHAg-t500x500.png">](https://soundcloud.com/dnnstechno/mgmt-kids-dnns-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PFNMY6dnO3QKtZeZ-XBZDyQ-t500x500.png">](https://soundcloud.com/fatalenergyrecords/heppy-take-me-home-original)
 
-**Artist**: DNNS 
+**Artist**: Fatal Energy Records 
 
-**Track**: MGMT - Kids (DNNS edit)
+**Track**: Heppy - Take Me Home (Original Mix)
 
-Last updated at 5/29/2026, 4:48:12 PM
+Last updated at 5/29/2026, 4:51:52 PM
