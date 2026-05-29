@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yPT3Q50ljoA2Hro-dFSs8Q-t500x500.png">](https://soundcloud.com/flkn-music/thriller-halloween-hard-edit)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VKBIE2PJRZ8DMoJI-w2PktA-t500x500.png">](https://soundcloud.com/neokhin_music/taste-of-your-love)
 
-**Artist**: FLKN 
+**Artist**: NEØKHIN, 2VINE 
 
-**Track**: THRILLER (Hard Edit)
+**Track**: TASTE OF YOUR LOVE - [FREE DL]
 
-Last updated at 5/29/2026, 3:54:18 PM
+Last updated at 5/29/2026, 3:57:33 PM
