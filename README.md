@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PFNMY6dnO3QKtZeZ-XBZDyQ-t500x500.png">](https://soundcloud.com/fatalenergyrecords/heppy-take-me-home-original)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FRwFYzie9c0qgHDe-VaPiFw-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-anti-hero-out-now)
 
-**Artist**: Fatal Energy Records 
+**Artist**: DRIFT 
 
-**Track**: Heppy - Take Me Home (Original Mix)
+**Track**: DRIFT - ANTI HERO (OUT NOW)
 
-Last updated at 5/29/2026, 4:51:52 PM
+Last updated at 5/29/2026, 4:54:52 PM
