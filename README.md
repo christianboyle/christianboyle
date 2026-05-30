@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YAdRoNRnzcf0UUoA-qPLkCA-t500x500.png">](https://soundcloud.com/bleaubeard/excision-amidy-next-to-you-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sT1kwgzNyFUIo0BA-TMTk6A-t500x500.jpg">](https://soundcloud.com/viskus/jbspeeddemonflip)
 
-**Artist**: Bleaubeard 
+**Artist**: VISKUS 
 
-**Track**: Excision & Amidy - Next To You (Bleaubeard & SOUL VALIENT Remix)
+**Track**: Justin Bieber - Speed Demon ( Viskus  flip)
 
-Last updated at 5/30/2026, 1:21:54 PM
+Last updated at 5/30/2026, 1:23:34 PM
