@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ge3eROgAwxaesBFy-Nh9tAQ-t500x500.png">](https://soundcloud.com/iamryzet/skrillex-boys-noize-fine-day-anthem-ryzet-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fJyX9lNijJrEO1Z9-Fd7f6w-t500x500.png">](https://soundcloud.com/djrikshaw/friskbounce73)
 
-**Artist**: RYZET 
+**Artist**: Rik Shaw 
 
-**Track**: Skrillex & Boys Noize - Fine Day Anthem (RYZET Remix) [FREE DOWNLOAD]
+**Track**: FRISK RADIO - Show #73 - 29th May 2026
 
-Last updated at 5/30/2026, 9:07:42 AM
+Last updated at 5/30/2026, 9:22:17 AM
