@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-24PzzcKB7IFH2j6E-lpoozQ-t500x500.png">](https://soundcloud.com/satoshijpn/beautyandabeatremix?in=saxurn/sets/bhops/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrMFAuY6xQlDrZzM-olzT0g-t500x500.png">](https://soundcloud.com/overeazybeats/lil-pump-gucci-gang-overeazy?in=saxurn/sets/bhops/)
 
-**Artist**: SATOSHI 
+**Artist**: OVEREAZY 
 
-**Track**: Justin Bieber - Beauty And A Beat (SATOSHI Remix)
+**Track**: LIL PUMP - GUCCI GANG (OVEREAZY FLIP)
 
-Last updated at 5/30/2026, 3:42:33 PM
+Last updated at 5/30/2026, 3:45:48 PM
