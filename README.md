@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YtzD2Q0N2pIBgJEj-NShfHw-t500x500.png">](https://soundcloud.com/highsynth1/drift-steven-straub-dancing-in)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ge3eROgAwxaesBFy-Nh9tAQ-t500x500.png">](https://soundcloud.com/iamryzet/skrillex-boys-noize-fine-day-anthem-ryzet-remix)
 
-**Artist**: DRIFT 
+**Artist**: RYZET 
 
-**Track**: DRIFT & STEVEN STRAUB - DANCING IN THE SKY (OUT NOW)
+**Track**: Skrillex & Boys Noize - Fine Day Anthem (RYZET Remix) [FREE DOWNLOAD]
 
-Last updated at 5/29/2026, 5:43:58 PM
+Last updated at 5/30/2026, 6:28:15 AM
