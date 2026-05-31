@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3YL8jqXyygn2mET-8Liybg-t500x500.png">](https://soundcloud.com/beauzworld/bel-mercy-danny-ores-robbe-remix-extended-mix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrMFAuY6xQlDrZzM-olzT0g-t500x500.png">](https://soundcloud.com/overeazybeats/lil-pump-gucci-gang-overeazy)
 
-**Artist**: BEAUZ 
+**Artist**: OVEREAZY 
 
-**Track**: Bel Mercy (Danny Ores & Robbe Remix) [Extended Mix]
+**Track**: LIL PUMP - GUCCI GANG (OVEREAZY FLIP)
 
-Last updated at 5/30/2026, 7:24:26 PM
+Last updated at 5/31/2026, 6:40:05 AM
