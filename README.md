@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLM6DTlqq3rSyZhI-zPRYbg-t500x500.png">](https://soundcloud.com/beauzworld/sleeping-with-the-enemy-feat-gritney-extended-mix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWZzD1g6gCOoaaLe-GtV9vQ-t500x500.png">](https://soundcloud.com/weareslicendice/2003snd)
 
-**Artist**: Creeds, BEAUZ 
+**Artist**: TNT, Slice N Dice 
 
-**Track**: Sleeping With The Enemy (feat. Gritney) [Extended Mix]
+**Track**: 2003 (SLICE N DICE REMIX) FREE DL!
 
-Last updated at 5/30/2026, 7:17:16 PM
+Last updated at 5/30/2026, 7:20:06 PM
