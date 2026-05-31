@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6yPT3Q50ljoA2Hro-dFSs8Q-t500x500.png">](https://soundcloud.com/flkn-music/thriller-halloween-hard-edit?in=saxurn/sets/sweet-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8n3XMKXzBwBzupNe-xyAwwA-t500x500.jpg">](https://soundcloud.com/lister_aus/lister-black-is-back-free-dl?in=saxurn/sets/sweet-d)
 
-**Artist**: FLKN 
+**Artist**: Lister 
 
-**Track**: THRILLER (Hard Edit)
+**Track**: LISTER - BLACK IS BACK [FREE DL]
 
-Last updated at 5/30/2026, 7:04:51 PM
+Last updated at 5/30/2026, 7:08:06 PM
