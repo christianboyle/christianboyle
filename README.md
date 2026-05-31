@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrMFAuY6xQlDrZzM-olzT0g-t500x500.png">](https://soundcloud.com/overeazybeats/lil-pump-gucci-gang-overeazy?in=saxurn/sets/sweet-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HR6kYwZHZy6fr6MX-DkVieg-t500x500.jpg">](https://soundcloud.com/djainzi/ainzi-jay-doidge-starman-ill?in=saxurn/sets/sweet-d)
 
-**Artist**: OVEREAZY 
+**Artist**: Dj Ainzi (Donk House Records) 
 
-**Track**: LIL PUMP - GUCCI GANG (OVEREAZY FLIP)
+**Track**: Ainzi, Jay Doidge & Starman - I'll Be There
 
-Last updated at 5/31/2026, 9:10:16 AM
+Last updated at 5/31/2026, 9:12:11 AM
