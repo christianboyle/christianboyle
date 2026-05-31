@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OrMFAuY6xQlDrZzM-olzT0g-t500x500.png">](https://soundcloud.com/overeazybeats/lil-pump-gucci-gang-overeazy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2PzCdhKnKuH1zAZs-gKzTlw-t500x500.jpg">](https://soundcloud.com/user-592506003/yeah-man-dream-frequency)
 
-**Artist**: OVEREAZY 
+**Artist**: YEAH MAN 
 
-**Track**: LIL PUMP - GUCCI GANG (OVEREAZY FLIP)
+**Track**: YEAH MAN - Dream Frequency Appreciation Mix
 
-Last updated at 5/31/2026, 6:40:05 AM
+Last updated at 5/31/2026, 6:41:56 AM
