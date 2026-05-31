@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oy4OkXcgU4izzE5X-JzyHAg-t500x500.png">](https://soundcloud.com/dnnstechno/mgmt-kids-dnns-edit?in=saxurn/sets/sweet-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jGMRhgP3XVy5cjTw-LyHQuw-t500x500.png">](https://soundcloud.com/crunchimusic/subtronics-x-ine-z-eyes-cut?in=saxurn/sets/sweet-d)
 
-**Artist**: DNNS 
+**Artist**: CRUNCHi, Subtronics, Inéz 
 
-**Track**: MGMT - Kids (DNNS edit)
+**Track**: Subtronics x Inéz - Eyes Cut Deeper (CRUNCHi REMIX) [FREE DL]
 
-Last updated at 5/31/2026, 9:27:46 AM
+Last updated at 5/31/2026, 9:33:01 AM
