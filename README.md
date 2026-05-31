@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWZzD1g6gCOoaaLe-GtV9vQ-t500x500.png">](https://soundcloud.com/weareslicendice/2003snd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3YL8jqXyygn2mET-8Liybg-t500x500.png">](https://soundcloud.com/beauzworld/bel-mercy-danny-ores-robbe-remix-extended-mix-2)
 
-**Artist**: TNT, Slice N Dice 
+**Artist**: BEAUZ 
 
-**Track**: 2003 (SLICE N DICE REMIX) FREE DL!
+**Track**: Bel Mercy (Danny Ores & Robbe Remix) [Extended Mix]
 
-Last updated at 5/30/2026, 7:20:06 PM
+Last updated at 5/30/2026, 7:24:26 PM
