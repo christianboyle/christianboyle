@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M93VNp0y1ZtAGM1F-byJPHw-t500x500.jpg">](https://soundcloud.com/riotrecsuk/jayfor-ayla?in=saxurn/sets/sweet-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cUNMHryzpOJcsSyY-Fp5liA-t500x500.jpg">](https://soundcloud.com/stylusdamage/smile-like-you-mean-it?in=saxurn/sets/sweet-d)
 
-**Artist**: Jayfor  
+**Artist**: Stylus Damage 
 
-**Track**: Jayfor - Ayla
+**Track**: Smile Like You Mean It
 
-Last updated at 5/31/2026, 9:15:16 AM
+Last updated at 5/31/2026, 9:18:51 AM
