@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fm6rhCujCe1fzhIi-VXd7IQ-t500x500.png">](https://soundcloud.com/alokinofficial/carteblanche?in=saxurn/sets/sweet-d)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Oy4OkXcgU4izzE5X-JzyHAg-t500x500.png">](https://soundcloud.com/dnnstechno/mgmt-kids-dnns-edit?in=saxurn/sets/sweet-d)
 
-**Artist**: ALOKIN, LOST ENDINGS, VERACOCHA 
+**Artist**: DNNS 
 
-**Track**: ALOKIN & LOST ENDINGS - VERACOCHA CARTE BLANCHE (HARD TECHNO REMIX)[FREE DOWNLOAD]
+**Track**: MGMT - Kids (DNNS edit)
 
-Last updated at 5/31/2026, 9:22:36 AM
+Last updated at 5/31/2026, 9:27:46 AM
