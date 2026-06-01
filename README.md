@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GU7viNwZnpGnEzXS-k1YGlw-t500x500.png">](https://soundcloud.com/consciouspilate/tchami-after-life-conscious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SqBGL8UEEzkuhOtp-ndm1Yg-t500x500.jpg">](https://soundcloud.com/atiniz/better)
 
-**Artist**: Conscious Pilate 
+**Artist**: slover, atiniz, vivid 
 
-**Track**: Tchami - After Life ( Conscious Pilate Remix ) ( FREE DOWNLOAD)
+**Track**: slover - better w/ atiniz + vivid (p. rewind)
 
-Last updated at 5/31/2026, 8:33:27 PM
+Last updated at 5/31/2026, 8:37:32 PM
