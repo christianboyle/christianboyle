@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cgzz1uEMKzD79Gej-OhwvyA-t500x500.jpg">](https://soundcloud.com/kdhdofficial/kdhd-gavel-of-god)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TGz7czagWzO9QSGw-Qdlptw-t500x500.png">](https://soundcloud.com/nohypemusicofficial/lucuna-x-head-tash-system)
 
-**Artist**: KDHD 
+**Artist**: Head$tash x Lucuna 
 
-**Track**: KDHD - Gavel Of God
+**Track**: HEAD$TASH X LUCUNA - SYSTEM FAILURE
 
-Last updated at 5/31/2026, 8:49:02 PM
+Last updated at 6/1/2026, 5:40:11 AM
