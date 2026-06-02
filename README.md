@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6KUBkLzw49Q1885y-lEaExQ-t500x500.png">](https://soundcloud.com/jakka-b/htidhomecominglive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EZGcXWjQe7rF7qEX-MNCyRA-t500x500.jpg">](https://soundcloud.com/ethers-creek/setupchicksetherscreekbootleg)
 
-**Artist**: Jakka-B 
+**Artist**: Ether's Creek 
 
-**Track**: Weaver Vs  Jakka-B- Live @ HTID Homecoming [28th Feb 2026]
+**Track**: Lady Leshurr - Set Up Chicks (Ether's Creek Bootleg)
 
-Last updated at 6/2/2026, 6:28:17 AM
+Last updated at 6/2/2026, 6:29:37 AM
