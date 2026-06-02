@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VpewWekdvSqCYDe8-tDskcA-t500x500.jpg">](https://soundcloud.com/thiccfreqness/space-bae-tfn-afterhours-05162026-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xub3oPB8z04g5Xjy-OV7HAA-t500x500.jpg">](https://soundcloud.com/cruseyyyy/habits)
 
-**Artist**: Space Bae 
+**Artist**: crusey 
 
-**Track**: Space Bae @ TFN Afterhours - 05.16.2026
+**Track**: habits ft. girlsynth, akkiro, 1crusafix (warm)
 
-Last updated at 6/2/2026, 7:00:16 AM
+Last updated at 6/2/2026, 7:01:16 AM
