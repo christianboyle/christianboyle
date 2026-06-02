@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TGz7czagWzO9QSGw-Qdlptw-t500x500.png">](https://soundcloud.com/nohypemusicofficial/lucuna-x-head-tash-system)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-m4spuRyqJ6DF-0-t500x500.jpg">](https://soundcloud.com/ravelifemusic/discoland)
 
-**Artist**: Head$tash x Lucuna 
+**Artist**: Yannis G 
 
-**Track**: HEAD$TASH X LUCUNA - SYSTEM FAILURE
+**Track**: Discoland
 
-Last updated at 6/1/2026, 5:40:11 AM
+Last updated at 6/1/2026, 7:31:28 PM
