@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4S2KtnxaxvbnqISn-n6V6rA-t500x500.png">](https://soundcloud.com/litrevmusic/putona)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kBbq5fTlyMNZHku3-klxFgw-t500x500.png">](https://soundcloud.com/sweetsoursound/doja-cat-tia-tamera-sweet-n-sour)
 
-**Artist**: Litrev 
+**Artist**: sweet n sour 
 
-**Track**: Tokischa & Químico Ultra Mega - Bellaca Putona (Litrev Flip)
+**Track**: doja cat - tia tamera (sweet n sour flip)
 
-Last updated at 6/1/2026, 7:33:40 PM
+Last updated at 6/1/2026, 7:40:17 PM
