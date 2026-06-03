@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xub3oPB8z04g5Xjy-OV7HAA-t500x500.jpg">](https://soundcloud.com/cruseyyyy/habits)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i2WoS50ZW6MlL0J8-N3R5dg-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/one-shot-dont-let-it-slip-3)
 
-**Artist**: crusey 
+**Artist**: SHAUNA HILLS 
 
-**Track**: habits ft. girlsynth, akkiro, 1crusafix (warm)
+**Track**: “One Shot (Don’t Let It Slip Away)”_
 
-Last updated at 6/2/2026, 7:01:16 AM
+Last updated at 6/3/2026, 6:50:04 AM
