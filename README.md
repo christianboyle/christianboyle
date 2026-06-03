@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yD5NtUybzupg0PZ-ouEu8A-t500x500.png">](https://soundcloud.com/hellgnar/kennedyxoxo-where-no-one-can?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yLBKKZe5ry0obI8y-ZaCMyA-t500x500.png">](https://soundcloud.com/darren-glancy-213424437/darren-glancy-caught-on-rewind?in=saxurn/sets/foamzone/)
 
-**Artist**: HELLGNAR 
+**Artist**: Darren Glancy 
 
-**Track**: KENNEDYXOXO-where no one can find me (HELLGNAR FLIP) *FREE DL*
+**Track**: Darren Glancy - Caught On Rewind (Work In Progress)
 
-Last updated at 6/3/2026, 6:12:09 PM
+Last updated at 6/3/2026, 6:15:19 PM
