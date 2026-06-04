@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-154elIGWDnyq4G23-pXUjZQ-t500x500.png">](https://soundcloud.com/2tdmusic/alison-wonderland-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73POEabe4n5b3Wwc-fpTyDA-t500x500.jpg">](https://soundcloud.com/kennedysucks/deer-in-the-headlights-noah?in=saxurn/sets/foamzone)
 
-**Artist**: 2TD 
+**Artist**: kennedyxoxo 
 
-**Track**: ALISON WONDERLAND X NINAJIRACHI - HEAVEN [2TD FLIP]
+**Track**: deer in the headlights (noah thomas)
 
-Last updated at 6/4/2026, 4:12:58 PM
+Last updated at 6/4/2026, 5:27:33 PM
