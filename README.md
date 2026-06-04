@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JacMOIvaaceC4BLf-8XUP5g-t500x500.jpg">](https://soundcloud.com/lynyou/1in6?in=saxurn/sets/foamzone/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73POEabe4n5b3Wwc-fpTyDA-t500x500.jpg">](https://soundcloud.com/kennedysucks/deer-in-the-headlights-noah?in=saxurn/sets/foamzone/)
 
-**Artist**: lynU, crusey 
+**Artist**: kennedyxoxo 
 
-**Track**: 1-in-6 prod me
+**Track**: deer in the headlights (noah thomas)
 
-Last updated at 6/3/2026, 7:14:21 PM
+Last updated at 6/3/2026, 7:15:27 PM
