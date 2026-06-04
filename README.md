@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yD5NtUybzupg0PZ-ouEu8A-t500x500.png">](https://soundcloud.com/hellgnar/kennedyxoxo-where-no-one-can)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-73POEabe4n5b3Wwc-fpTyDA-t500x500.jpg">](https://soundcloud.com/kennedysucks/deer-in-the-headlights-noah?in=saxurn/sets/foamzone/)
 
-**Artist**: HELLGNAR 
+**Artist**: kennedyxoxo 
 
-**Track**: KENNEDYXOXO-where no one can find me (HELLGNAR FLIP) *FREE DL*
+**Track**: deer in the headlights (noah thomas)
 
-Last updated at 6/3/2026, 6:36:21 PM
+Last updated at 6/3/2026, 7:08:48 PM
