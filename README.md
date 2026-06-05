@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdfVYS2MLfSRGBDB-dzdTjw-t500x500.png">](https://soundcloud.com/hptgmusic/daniel-seven-sun-on-the-ocean-hirohiro-remix-5?in=hptgmusic/sets/ravekick007)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QP4sbvFvAlXDzWC1-5RkReA-t500x500.png">](https://soundcloud.com/rankzsound/doechii-jt-alter-ego-rankz-x)
 
-**Artist**: HPTG Music 
+**Artist**: RANKZ & Moceans 
 
-**Track**: Daniel Seven - Sun On The Ocean (HiroHiro Remix)
+**Track**: Doechii & JT - Alter Ego (RANKZ x Moceans Flip)
 
-Last updated at 6/5/2026, 9:52:31 AM
+Last updated at 6/5/2026, 10:18:09 AM
