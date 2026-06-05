@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-154elIGWDnyq4G23-pXUjZQ-t500x500.png">](https://soundcloud.com/2tdmusic/alison-wonderland-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zphdsQfwDbelZGDW-LUKKEA-t500x500.jpg">](https://soundcloud.com/timftw/anchor)
 
-**Artist**: 2TD 
+**Artist**: TIMFTW 
 
-**Track**: ALISON WONDERLAND X NINAJIRACHI - HEAVEN [2TD FLIP]
+**Track**: TIMFTW - ANCHOR | Melodic House & Techno
 
-Last updated at 6/5/2026, 6:49:50 AM
+Last updated at 6/5/2026, 7:49:09 AM
