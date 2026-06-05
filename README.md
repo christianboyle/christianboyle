@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000097887096-a0hsqe-t500x500.jpg">](https://soundcloud.com/djmkn93/100-reverse-bass-episode-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdfVYS2MLfSRGBDB-dzdTjw-t500x500.png">](https://soundcloud.com/hptgmusic/triplestar-solaris-4)
 
-**Artist**: MKN 
+**Artist**: HPTG Music 
 
-**Track**: MKN | 100% Reverse Bass | Episode 1
+**Track**: Triplestar - Solaris
 
-Last updated at 6/5/2026, 10:28:54 AM
+Last updated at 6/5/2026, 6:59:16 PM
