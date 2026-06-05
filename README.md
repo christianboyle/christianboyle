@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XPF5RM2xtLa1BmUz-rcLktg-t500x500.png">](https://soundcloud.com/bncybncy/mc-pulse-realest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdfVYS2MLfSRGBDB-dzdTjw-t500x500.png">](https://soundcloud.com/hptgmusic/daniel-seven-sun-on-the-ocean-hirohiro-remix-5?in=hptgmusic/sets/ravekick007)
 
-**Artist**: MC Pulse 
+**Artist**: HPTG Music 
 
-**Track**: MC Pulse - Realest
+**Track**: Daniel Seven - Sun On The Ocean (HiroHiro Remix)
 
-Last updated at 6/5/2026, 9:51:16 AM
+Last updated at 6/5/2026, 9:52:31 AM
