@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5TXt3k1yoIyzTYe7-yJ5lVg-t500x500.jpg">](https://soundcloud.com/wil_sun/opening-set-for-chef)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZjtXW7e6469VnQws-cLmpCA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-stanz-amor-mercurial)
 
-**Artist**: WilSun 
+**Artist**: HATE, Stanz Amor 
 
-**Track**: Some Dubstep
+**Track**: Premiere: Stanz Amor — Mercurial [BSP007]
 
-Last updated at 6/5/2026, 7:26:22 PM
+Last updated at 6/5/2026, 7:27:22 PM
