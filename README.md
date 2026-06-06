@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RzCzz5px9lP8Qmqz-EHlpVg-t500x500.jpg">](https://soundcloud.com/dj_peal/dj-peal-vocal-bounce-46)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIrgSyKUxDyQATOK-WG2xGg-t500x500.png">](https://soundcloud.com/eufeion/callofthewild?in=saxurn/sets/1a1/)
 
-**Artist**: dj peal (Neil Winthrop) 
+**Artist**: Eufeion 
 
-**Track**: dj peal  - vocal bounce 46
+**Track**: Call of The Wild - [OUT NOW]
 
-Last updated at 6/6/2026, 9:46:42 AM
+Last updated at 6/6/2026, 4:05:15 PM
