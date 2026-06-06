@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2szClfZwVGhvFaIm-yyU86g-t500x500.png">](https://soundcloud.com/simonjayofficial/people-2)
 
-**Artist**: Stessie 
+**Artist**: Simon Jay 
 
-**Track**: Elevate
+**Track**: People
 
-Last updated at 6/5/2026, 7:31:35 PM
+Last updated at 6/5/2026, 7:35:50 PM
