@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QP4sbvFvAlXDzWC1-5RkReA-t500x500.png">](https://soundcloud.com/rankzsound/doechii-jt-alter-ego-rankz-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate?in=saxurn/sets/1a1/)
 
-**Artist**: RANKZ & Moceans 
+**Artist**: Stessie 
 
-**Track**: Doechii & JT - Alter Ego (RANKZ x Moceans Flip)
+**Track**: Elevate
 
-Last updated at 6/5/2026, 8:42:06 PM
+Last updated at 6/5/2026, 8:45:41 PM
