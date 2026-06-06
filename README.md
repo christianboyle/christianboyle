@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyaHTPU8E5RwLIGY-rdhbXw-t500x500.jpg">](https://soundcloud.com/dj-rundell-mashups/tartan-army-marching-on)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6sxlAqJ3LTnJlJts-tIiygg-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/boston-bounce-sessions)
 
-**Artist**: Rundell 
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: Tartan Army Marching On
+**Track**: Boston Bounce Sessions Classics Edition
 
-Last updated at 6/5/2026, 7:01:11 PM
+Last updated at 6/5/2026, 7:02:41 PM
