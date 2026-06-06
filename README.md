@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdfVYS2MLfSRGBDB-dzdTjw-t500x500.png">](https://soundcloud.com/hptgmusic/triplestar-solaris-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zyaHTPU8E5RwLIGY-rdhbXw-t500x500.jpg">](https://soundcloud.com/dj-rundell-mashups/tartan-army-marching-on)
 
-**Artist**: HPTG Music 
+**Artist**: Rundell 
 
-**Track**: Triplestar - Solaris
+**Track**: Tartan Army Marching On
 
-Last updated at 6/5/2026, 6:59:16 PM
+Last updated at 6/5/2026, 7:01:11 PM
