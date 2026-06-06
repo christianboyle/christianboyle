@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QP4sbvFvAlXDzWC1-5RkReA-t500x500.png">](https://soundcloud.com/rankzsound/doechii-jt-alter-ego-rankz-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Wx7GzcZxNT6vJEj-cwc4ZA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sicion-pressure)
 
-**Artist**: RANKZ & Moceans 
+**Artist**: HATE, Sicion 
 
-**Track**: Doechii & JT - Alter Ego (RANKZ x Moceans Flip)
+**Track**: Premiere: Sicion — Pressure [DMTL001]
 
-Last updated at 6/5/2026, 7:08:11 PM
+Last updated at 6/5/2026, 7:09:56 PM
