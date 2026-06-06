@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wn0xykGQkNRT1Svy-GbV7pQ-t500x500.png">](https://soundcloud.com/miraken/i-told-you-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7i9rZGXy9Iz7X3nX-8zcaSg-t500x500.png">](https://soundcloud.com/maadwest1/subtronics-inez-eyes-cut)
 
-**Artist**: Miraken 
+**Artist**: MAAD WEST, SUBTRONICS , INEZ 
 
-**Track**: I Told You!  (Edit.2026)
+**Track**: SUBTRONICS & INEZ - EYES CUT DEEPER (MAAD WEST REMIX)
 
-Last updated at 6/6/2026, 4:11:05 PM
+Last updated at 6/6/2026, 4:13:10 PM
