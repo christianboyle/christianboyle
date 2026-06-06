@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yWeQbGL9lxJs6Ibt-uqyiSA-t500x500.jpg">](https://soundcloud.com/cruseyyyy/misstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iu2oBmoziK82VjMR-45n2Dw-t500x500.jpg">](https://soundcloud.com/chumdubz/big-gulps)
 
-**Artist**: crusey 
+**Artist**: chum 
 
-**Track**: misstep (rhekdens)
+**Track**: big gulps
 
-Last updated at 6/6/2026, 4:08:20 PM
+Last updated at 6/6/2026, 4:10:00 PM
