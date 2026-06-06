@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MLaLnAjj3DUPRofq-wQiEXg-t500x500.jpg">](https://soundcloud.com/alyxtrick/how-many-times?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cXvufUUhtlW6yy0K-WgF5Yg-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/urboin8-pow-pow-4?in=saxurn/sets/1a1/)
 
-**Artist**: Alyx Trick 
+**Artist**: Murder We Wrote 
 
-**Track**: How Many Times ft. isai
+**Track**: UrBoiN8 - Pow Pow
 
-Last updated at 6/6/2026, 9:04:13 AM
+Last updated at 6/6/2026, 9:07:18 AM
