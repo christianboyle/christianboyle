@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JLESNOdtkfSGZsz-TLjyyA-t500x500.png">](https://soundcloud.com/sfamofficial/cunning-mc-slazenger-sfam-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2szClfZwVGhvFaIm-yyU86g-t500x500.png">](https://soundcloud.com/simonjayofficial/people-2)
 
-**Artist**: sfam 
+**Artist**: Simon Jay 
 
-**Track**: cunning mc - slazenger (sfam remix)
+**Track**: People
 
-Last updated at 6/5/2026, 7:24:17 PM
+Last updated at 6/5/2026, 7:25:17 PM
