@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8Wx7GzcZxNT6vJEj-cwc4ZA-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-sicion-pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3oB4r5Bm4yzDwyht-7d7GZg-t500x500.jpg">](https://soundcloud.com/8balldj/the-hard-files-episode-34)
 
-**Artist**: HATE, Sicion 
+**Artist**: 8 Ball DJ, Uberjakd 
 
-**Track**: Premiere: Sicion — Pressure [DMTL001]
+**Track**: The Hard Files Ep34 - Uberjakd Guest Mix
 
-Last updated at 6/5/2026, 7:09:56 PM
+Last updated at 6/5/2026, 7:14:21 PM
