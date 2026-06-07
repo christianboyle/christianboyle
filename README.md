@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QOAKMDArLFWcpZtW-4wF1YQ-t500x500.jpg">](https://soundcloud.com/zippie1/ex20-vailon-cypher-w-13-people-prod-pk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-god9tlMi5ounPQf7-Um2xcg-t500x500.jpg">](https://soundcloud.com/mara8k/drama-prod-pk)
 
-**Artist**: nguyen, funny, 1sunsuu, plec0, fvzrul, okashe, magnumn, ramlethal, mis4ortune, pika, deers, minok0, iss 
+**Artist**: Mara8k 
 
-**Track**: VAILON CYPHER !!! W/##EX20 // 13 PEOPLE (PROD. PK)
+**Track**: Drama Prod. Pk
 
-Last updated at 6/6/2026, 7:46:18 PM
+Last updated at 6/6/2026, 7:47:28 PM
