@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GnfytyhIbIfD5bQz-hpwENA-t500x500.png">](https://soundcloud.com/bitbird/pressure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FPT8jzwSylCOyIQD-Tcv42Q-t500x500.png">](https://soundcloud.com/dirtysnatcharecords/run-the-game)
 
-**Artist**: ALIGN 
+**Artist**: DirtySnatcha Records 
 
-**Track**: Pressure
+**Track**: Dark Matter & Barooka - Run The Game
 
-Last updated at 6/7/2026, 4:26:47 PM
+Last updated at 6/7/2026, 4:36:44 PM
