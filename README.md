@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tx2zgFKICr3DA4Bk-kSzdwg-t500x500.png">](https://soundcloud.com/jadudala/xotix-sevsky-hypnosis-jad-283)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lj6xdw9KmG90qhSN-y3cJsg-t500x500.png">](https://soundcloud.com/marc69-1/road-to-lost-minds-reverse)
 
-**Artist**: Xotix, SEVSKY 
+**Artist**: Marc.K.B 
 
-**Track**: Xotix & SEVSKY - HYPNOSIS (JADŪ283)
+**Track**: Road To Lost Minds Reverse Bass
 
-Last updated at 6/7/2026, 9:55:21 AM
+Last updated at 6/7/2026, 10:00:11 AM
