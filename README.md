@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LiLtn2byzYCusfhY-enxQfA-t500x500.jpg">](https://soundcloud.com/brett-gordon-9/invincible-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OfEdIS0T2g0LLgEu-OEK1MA-t500x500.png">](https://soundcloud.com/mystictearz/sean-from-boy-scouts)
 
-**Artist**: Brett Gordon 7 
+**Artist**: Jetty 
 
-**Track**: Invincible
+**Track**: Sean from Boy Scouts
 
-Last updated at 6/7/2026, 10:01:11 AM
+Last updated at 6/7/2026, 10:02:36 AM
