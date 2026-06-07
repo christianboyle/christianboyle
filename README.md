@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCwya3q6vPXs1pDt-p88OGg-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-insane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIrgSyKUxDyQATOK-WG2xGg-t500x500.png">](https://soundcloud.com/eufeion/callofthewild?in=saxurn/sets/1a1/)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: Eufeion 
 
-**Track**: DJ Ainzi - Insane
+**Track**: Call of The Wild - [OUT NOW]
 
-Last updated at 6/6/2026, 7:58:43 PM
+Last updated at 6/6/2026, 8:09:43 PM
