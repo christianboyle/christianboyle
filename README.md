@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcQkhTLwYWfK1n1B-lA9uqA-t500x500.jpg">](https://soundcloud.com/user-788006227/laylo)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCwya3q6vPXs1pDt-p88OGg-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-insane)
 
-**Artist**: Laylo!! 
+**Artist**: Dj Ainzi (Donk House Records) 
 
-**Track**: LAYLO? - p. PK x prod.permafrost
+**Track**: DJ Ainzi - Insane
 
-Last updated at 6/6/2026, 7:57:28 PM
+Last updated at 6/6/2026, 7:58:43 PM
