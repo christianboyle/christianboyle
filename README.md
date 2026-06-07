@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MLaLnAjj3DUPRofq-wQiEXg-t500x500.jpg">](https://soundcloud.com/alyxtrick/all-my-friends?in=saxurn/sets/bugg1n)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-castles-in-the-sky-no?in=saxurn/sets/bugg1n)
 
-**Artist**: Alyx Trick 
+**Artist**: V-Bounce 
 
-**Track**: All My Friends
+**Track**: V-Bounce  - Castles In The Sky [No Vocals] [Master]
 
-Last updated at 6/6/2026, 8:36:10 PM
+Last updated at 6/6/2026, 8:39:00 PM
