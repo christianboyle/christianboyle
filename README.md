@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydELqyJLpV9S4gVf-e06Ylw-t500x500.png">](https://soundcloud.com/tuckerdoubt/all-perc-no-sheisty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcQkhTLwYWfK1n1B-lA9uqA-t500x500.jpg">](https://soundcloud.com/user-788006227/laylo)
 
-**Artist**: Tucker Doubt & BADROOM 
+**Artist**: Laylo!! 
 
-**Track**: ALL PERC NO SHEISTY
+**Track**: LAYLO? - p. PK x prod.permafrost
 
-Last updated at 6/6/2026, 7:51:43 PM
+Last updated at 6/6/2026, 7:57:28 PM
