@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykyO69P9kYG2rrXU-sBO7nQ-t500x500.png">](https://soundcloud.com/orenda/livinglibraryremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ydELqyJLpV9S4gVf-e06Ylw-t500x500.png">](https://soundcloud.com/tuckerdoubt/all-perc-no-sheisty)
 
-**Artist**: Orenda 
+**Artist**: Tucker Doubt & BADROOM 
 
-**Track**: Deya Dova - The Great Living Library (Orenda Remix)
+**Track**: ALL PERC NO SHEISTY
 
-Last updated at 6/6/2026, 7:49:53 PM
+Last updated at 6/6/2026, 7:51:43 PM
