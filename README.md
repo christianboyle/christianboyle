@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cXvufUUhtlW6yy0K-WgF5Yg-t500x500.jpg">](https://soundcloud.com/murder-we-wrote/urboin8-pow-pow-4?in=saxurn/sets/bugg1n)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-be8JIhfsu3FpIU6Y-Aexp6Q-t500x500.png">](https://soundcloud.com/treegaud/decased-bones-gaud-flip?in=saxurn/sets/bugg1n)
 
-**Artist**: Murder We Wrote 
+**Artist**: Tree Gaud 
 
-**Track**: UrBoiN8 - Pow Pow
+**Track**: Deceased -Bones- Gaud Flip
 
-Last updated at 6/6/2026, 8:31:40 PM
+Last updated at 6/6/2026, 8:34:20 PM
