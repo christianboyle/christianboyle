@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMorXS99yEjbcE3l-wB7wkg-t500x500.png">](https://soundcloud.com/forbiddenfrequenciesdnb/baboon-ok)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5MWiEqoQIBUqiKdl-5GC5DA-t500x500.png">](https://soundcloud.com/wubaholics/2td-sidewinda-1)
 
-**Artist**: Baboon 
+**Artist**: 2TD 
 
-**Track**: Baboon - Ok!
+**Track**: 2TD - SIDEWINDA
 
-Last updated at 6/7/2026, 4:22:22 PM
+Last updated at 6/7/2026, 4:23:22 PM
