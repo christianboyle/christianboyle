@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-uCpymqeuYOfmtj6i-SNIn0g-t500x500.jpg">](https://soundcloud.com/vbounce/v-bounce-castles-in-the-sky-no?in=saxurn/sets/bugg1n)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QP4sbvFvAlXDzWC1-5RkReA-t500x500.png">](https://soundcloud.com/rankzsound/doechii-jt-alter-ego-rankz-x?in=saxurn/sets/bugg1n)
 
-**Artist**: V-Bounce 
+**Artist**: RANKZ & Moceans 
 
-**Track**: V-Bounce  - Castles In The Sky [No Vocals] [Master]
+**Track**: Doechii & JT - Alter Ego (RANKZ x Moceans Flip)
 
-Last updated at 6/6/2026, 8:39:00 PM
+Last updated at 6/6/2026, 8:44:00 PM
