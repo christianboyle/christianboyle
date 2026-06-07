@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6DXjrGgL8S8SlLtk-Hw6Eyg-t500x500.jpg">](https://soundcloud.com/sweetsoundscollective/veins)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykyO69P9kYG2rrXU-sBO7nQ-t500x500.png">](https://soundcloud.com/orenda/livinglibraryremix)
 
-**Artist**: Mikayli 
+**Artist**: Orenda 
 
-**Track**: Veins
+**Track**: Deya Dova - The Great Living Library (Orenda Remix)
 
-Last updated at 6/6/2026, 7:48:53 PM
+Last updated at 6/6/2026, 7:49:53 PM
