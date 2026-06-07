@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vuyo4viZ0gbVHyEH-mD5azA-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/brisk-b2b-kevin-energy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3s3lDhCFmqkP6Zqa-gx2Lyg-t500x500.png">](https://soundcloud.com/aychofficial/soundsystem676767)
 
-**Artist**: HardcoreHooligan 
+**Artist**: AYCH, Yewz 
 
-**Track**: Brisk B2B Kevin Energy @ HTID - Event 4 - The UV Raver Party (23/10/2004)
+**Track**: Sound System
 
-Last updated at 6/7/2026, 4:54:58 PM
+Last updated at 6/7/2026, 4:58:13 PM
