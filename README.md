@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K1NJEg41y1WZyVym-abxCaQ-t500x500.png">](https://soundcloud.com/aychofficial/play)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-25EedS3O1pTdPgfz-X99EtQ-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/m-dee-21-klubb-efekt-call-on)
 
-**Artist**: AYCH, SCHMUX 
+**Artist**: DJ MOFF-EL MOFF-M DEE 21 
 
-**Track**: PLAY
+**Track**: M-DEE 21 & KLUBB EFEKT - Call On Me Everyday
 
-Last updated at 6/7/2026, 7:44:06 PM
+Last updated at 6/8/2026, 6:18:07 AM
