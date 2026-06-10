@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bXVFVafozXrLFi7d-lfWyUw-t500x500.png">](https://soundcloud.com/scarreddigital-com/sdf050-david-guetta-milky-just)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VhKLkgpbixwCdOkF-oIKWaQ-t500x500.jpg">](https://soundcloud.com/2juicymusic/fineshrine-2juicy-flip)
 
-**Artist**: scarreddigital 
+**Artist**: 2JUICY 
 
-**Track**: SDF050 David Guetta & Milky - Just The Way You Are [Kayléne Summer Remix] FREE download
+**Track**: Fineshrine (2JUICY Remix)
 
-Last updated at 6/10/2026, 5:45:31 PM
+Last updated at 6/10/2026, 5:46:31 PM
