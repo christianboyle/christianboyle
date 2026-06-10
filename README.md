@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FNCXOF8hrLNzyGf6-2rRP2g-t500x500.jpg">](https://soundcloud.com/strangelanguagee/strange-language-x-trip-b-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bXVFVafozXrLFi7d-lfWyUw-t500x500.png">](https://soundcloud.com/scarreddigital-com/sdf050-david-guetta-milky-just)
 
-**Artist**: strange language, TRiP B 
+**Artist**: scarreddigital 
 
-**Track**: STRANGE LANGUAGE X TRiP B - YOU OWN ME
+**Track**: SDF050 David Guetta & Milky - Just The Way You Are [Kayléne Summer Remix] FREE download
 
-Last updated at 6/10/2026, 5:24:33 PM
+Last updated at 6/10/2026, 5:45:31 PM
