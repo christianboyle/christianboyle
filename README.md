@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-154elIGWDnyq4G23-pXUjZQ-t500x500.png">](https://soundcloud.com/2tdmusic/alison-wonderland-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WsYtLwyiKwKqccWX-PK28Mg-t500x500.png">](https://soundcloud.com/eazybakedbeats/eazy-mf-finger-1)
 
-**Artist**: 2TD 
+**Artist**: EAZYBAKED, Richard Finger 
 
-**Track**: ALISON WONDERLAND X NINAJIRACHI - HEAVEN [2TD FLIP]
+**Track**: EAZY MF FINGER w/ Richard Finger
 
-Last updated at 6/10/2026, 5:09:57 PM
+Last updated at 6/10/2026, 5:18:30 PM
