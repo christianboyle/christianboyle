@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GavYZtTrAdLcJRki-ozZ4TA-t500x500.png">](https://soundcloud.com/hardcoreenergy/origin8a-propa-tektonik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1zfLRTFjjStBmmU-ddauzg-t500x500.png">](https://soundcloud.com/monta-musica/taggy-picture-perfect)
 
-**Artist**: Hardcore Energy 
+**Artist**: Monta Musica 
 
-**Track**: Origin8a & Propa - TEKTONIK
+**Track**: TAGGY - Picture Perfect
 
-Last updated at 6/12/2026, 6:24:07 AM
+Last updated at 6/12/2026, 8:29:34 AM
