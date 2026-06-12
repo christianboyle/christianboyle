@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZXDzMqWcvYwMjXyA-kxhfpQ-t500x500.png">](https://soundcloud.com/bncybncy/joe-gee-ft-mickey-byker-skreem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dE877BzQSODt0IWb-QzK1LA-t500x500.png">](https://soundcloud.com/bncybncy/marc-b-jayme-d-hillendale)
 
-**Artist**: Joe Gee ft. Mickey Byker 
+**Artist**: Marc B, Jayme D & HILLenDALE 
 
-**Track**: Joe Gee ft. Mickey Byker - Skreem
+**Track**: Marc B, Jayme D & HILLenDALE - Sweetheart
 
-Last updated at 6/12/2026, 8:52:39 AM
+Last updated at 6/12/2026, 8:55:09 AM
