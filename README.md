@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-H8FzWFbKbKdYTFXY-rTAG6g-t500x500.png">](https://soundcloud.com/chassimusic/strangerthings)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wLFRJfMw3mxFWPEd-9Cqcfg-t500x500.png">](https://soundcloud.com/shanghaidoom/shanghai-doom-explorations-vol)
 
-**Artist**: Chassi 
+**Artist**: Shanghai Doom 
 
-**Track**: Chassi - STRANGER THINGS (FREE DOWNLOAD)
+**Track**: Shanghai Doom - Explorations Vol. 1
 
-Last updated at 6/12/2026, 8:58:54 AM
+Last updated at 6/12/2026, 9:01:59 AM
