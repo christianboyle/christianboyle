@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z1zfLRTFjjStBmmU-ddauzg-t500x500.png">](https://soundcloud.com/monta-musica/taggy-picture-perfect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzzTUJ0qr3BszTsg-54Y3jQ-t500x500.png">](https://soundcloud.com/debisco/hurricane)
 
-**Artist**: Monta Musica 
+**Artist**: DeBisco 
 
-**Track**: TAGGY - Picture Perfect
+**Track**: Hurricane
 
-Last updated at 6/12/2026, 8:29:34 AM
+Last updated at 6/12/2026, 8:30:39 AM
