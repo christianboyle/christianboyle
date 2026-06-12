@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hzzTUJ0qr3BszTsg-54Y3jQ-t500x500.png">](https://soundcloud.com/debisco/hurricane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIt6xfJMPkYvAcDC-m3O3Iw-t500x500.jpg">](https://soundcloud.com/twolitretunes/calzo-ali-overdrive-movement)
 
-**Artist**: DeBisco 
+**Artist**: Two Litre Tunes 
 
-**Track**: Hurricane
+**Track**: Calzo & Ali Overdrive - Movement
 
-Last updated at 6/12/2026, 8:30:39 AM
+Last updated at 6/12/2026, 8:31:59 AM
