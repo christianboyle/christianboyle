@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztfs0Poc4q6rkK2T-DZT1eQ-t500x500.jpg">](https://soundcloud.com/malixemusic/metro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qf8NEZCndiJIIuCf-YkwSIg-t500x500.jpg">](https://soundcloud.com/wesleyxmack/bodies)
 
-**Artist**: Malixe 
+**Artist**: WESLEY MACK 
 
-**Track**: Metro
+**Track**: BODIES
 
-Last updated at 6/13/2026, 4:50:10 PM
+Last updated at 6/13/2026, 4:52:40 PM
