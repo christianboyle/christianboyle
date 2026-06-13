@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eglDA2w1qafn5Poc-QyDTuA-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-one-day)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQ2Fr9jUYWSXmtOK-yJDh6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-take-me-to-the)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: JGS, INTENT 
 
-**Track**: Dj Ainzi - One Day
+**Track**: JGS & INTENT - Take Me To The Clouds Above (Sample)
 
-Last updated at 6/13/2026, 5:07:10 PM
+Last updated at 6/13/2026, 5:11:15 PM
