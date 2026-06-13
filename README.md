@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztfs0Poc4q6rkK2T-DZT1eQ-t500x500.jpg">](https://soundcloud.com/malixemusic/metro)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYTmmnsKRBOlH39k-dpxMpA-t500x500.png">](https://soundcloud.com/itsplushtoi/plushtoi-bruised-knees)
 
-**Artist**: Malixe 
+**Artist**: Plushtoi 
 
-**Track**: Metro
+**Track**: PLUSHTOi - Bruised Knees
 
-Last updated at 6/12/2026, 9:40:19 PM
+Last updated at 6/12/2026, 9:41:59 PM
