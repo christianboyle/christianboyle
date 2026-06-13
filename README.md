@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GavYZtTrAdLcJRki-ozZ4TA-t500x500.png">](https://soundcloud.com/hardcoreenergy/origin8a-propa-tektonik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYTmmnsKRBOlH39k-dpxMpA-t500x500.png">](https://soundcloud.com/itsplushtoi/plushtoi-bruised-knees)
 
-**Artist**: Hardcore Energy 
+**Artist**: Plushtoi 
 
-**Track**: Origin8a & Propa - TEKTONIK
+**Track**: PLUSHTOi - Bruised Knees
 
-Last updated at 6/13/2026, 9:39:58 AM
+Last updated at 6/13/2026, 9:44:58 AM
