@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GavYZtTrAdLcJRki-ozZ4TA-t500x500.png">](https://soundcloud.com/hardcoreenergy/origin8a-propa-tektonik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5q7A3T33lZPFQeQZ-ylKdwg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-a-touch-of)
 
-**Artist**: Hardcore Energy 
+**Artist**: DRIFT 
 
-**Track**: Origin8a & Propa - TEKTONIK
+**Track**: DRIFT & STEVEN STRAUB - A TOUCH OF YOUR LOVE (RADIO EDIT)
 
-Last updated at 6/13/2026, 3:41:56 PM
+Last updated at 6/13/2026, 4:17:15 PM
