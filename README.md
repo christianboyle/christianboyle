@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QP4sbvFvAlXDzWC1-5RkReA-t500x500.png">](https://soundcloud.com/rankzsound/doechii-jt-alter-ego-rankz-x)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdfVYS2MLfSRGBDB-dzdTjw-t500x500.png">](https://soundcloud.com/hptgmusic/triplestar-solaris-4)
 
-**Artist**: RANKZ & Moceans 
+**Artist**: HPTG Music 
 
-**Track**: Doechii & JT - Alter Ego (RANKZ x Moceans Flip)
+**Track**: Triplestar - Solaris
 
-Last updated at 6/13/2026, 6:44:34 PM
+Last updated at 6/13/2026, 6:46:55 PM
