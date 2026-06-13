@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3xCg6hNQTHs8iRO-cJZjSg-t500x500.jpg">](https://soundcloud.com/dean-rodger-2/makina-new-set-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CeaKsTLNH3Yla0I-QMVyOA-t500x500.png">](https://soundcloud.com/chaos_order/rih031)
 
-**Artist**: Deano 
+**Artist**: Chaos & Order 
 
-**Track**: Makina new set 💃💃💃
+**Track**: Chaos & Order - Lost in Translation - Free Download
 
-Last updated at 6/13/2026, 5:17:16 PM
+Last updated at 6/13/2026, 6:13:21 PM
