@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3CeaKsTLNH3Yla0I-QMVyOA-t500x500.png">](https://soundcloud.com/chaos_order/rih031)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KcQkhTLwYWfK1n1B-lA9uqA-t500x500.jpg">](https://soundcloud.com/user-788006227/laylo)
 
-**Artist**: Chaos & Order 
+**Artist**: Laylo!! 
 
-**Track**: Chaos & Order - Lost in Translation - Free Download
+**Track**: LAYLO? - p. PK x prod.permafrost
 
-Last updated at 6/13/2026, 6:13:21 PM
+Last updated at 6/13/2026, 6:18:21 PM
