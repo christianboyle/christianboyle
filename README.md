@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQ2Fr9jUYWSXmtOK-yJDh6g-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-take-me-to-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jQoHiTWGBoFdIR2b-2UwSHA-t500x500.png">](https://soundcloud.com/djtrixyofficial/aviciilevelstrixyremix)
 
-**Artist**: JGS, INTENT 
+**Artist**: TRIXY 
 
-**Track**: JGS & INTENT - Take Me To The Clouds Above (Sample)
+**Track**: Avicii - Levels (Trixy Remix) **FREE DOWNLOAD**
 
-Last updated at 6/13/2026, 7:21:15 AM
+Last updated at 6/13/2026, 9:29:48 AM
