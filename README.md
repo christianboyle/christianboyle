@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TiVBUzdSG7oyxIyv-RzEuRQ-t500x500.png">](https://soundcloud.com/ravenscoon/summer-26-mix-v1-0)
 
-**Artist**: Stessie 
+**Artist**: RAVENSCOON 
 
-**Track**: Elevate
+**Track**: summer 26 mix v1.0
 
-Last updated at 6/14/2026, 8:09:55 AM
+Last updated at 6/14/2026, 8:49:29 AM
