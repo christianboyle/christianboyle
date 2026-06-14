@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIrgSyKUxDyQATOK-WG2xGg-t500x500.png">](https://soundcloud.com/eufeion/callofthewild)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
 
-**Artist**: Eufeion 
+**Artist**: Stessie 
 
-**Track**: Call of The Wild - [OUT NOW]
+**Track**: Elevate
 
-Last updated at 6/13/2026, 8:29:45 PM
+Last updated at 6/13/2026, 8:33:10 PM
