@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZU9WisRFLRyoO3A-2m2uLQ-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-if-i-were-you-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WtNLzFq38HWXNvlr-3GvTRA-t500x500.png">](https://soundcloud.com/djezc/hardcore-will-never-die)
 
-**Artist**: Yannis G 
+**Artist**: Dj EZC 
 
-**Track**: Yannis G - If I Were You SAMPLE
+**Track**: Hardcore Will Never Die Episode 563
 
-Last updated at 6/14/2026, 9:27:14 AM
+Last updated at 6/14/2026, 9:29:49 AM
