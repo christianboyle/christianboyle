@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NWDAz6Kw6Yb7mkUO-TdEFNg-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-music-is-my-life-1?in=dj-yannis-g/sets/hardcore-track-samples)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rPmo5vmiYHhMuTZI-4dSQyg-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-silence-sample)
 
 **Artist**: Yannis G 
 
-**Track**: Yannis G - Music Is My Life SAMPLE
+**Track**: Yannis G - Silence SAMPLE
 
-Last updated at 6/14/2026, 9:06:04 AM
+Last updated at 6/14/2026, 9:09:39 AM
