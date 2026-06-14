@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yD5NtUybzupg0PZ-ouEu8A-t500x500.png">](https://soundcloud.com/hellgnar/kennedyxoxo-where-no-one-can)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYTmmnsKRBOlH39k-dpxMpA-t500x500.png">](https://soundcloud.com/itsplushtoi/plushtoi-bruised-knees)
 
-**Artist**: HELLGNAR 
+**Artist**: Plushtoi 
 
-**Track**: KENNEDYXOXO-where no one can find me (HELLGNAR FLIP) *FREE DL*
+**Track**: PLUSHTOi - Bruised Knees
 
-Last updated at 6/13/2026, 6:53:45 PM
+Last updated at 6/13/2026, 8:25:05 PM
