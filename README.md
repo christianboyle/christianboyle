@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LBqb3duyusV29K7q-ZdoCHw-t500x500.jpg">](https://soundcloud.com/mahisound/sacrifice)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/deadeye)
 
-**Artist**: MAHI 
+**Artist**: crusafix, lynU, isai 
 
-**Track**: Sacrifice
+**Track**: deadeye
 
-Last updated at 6/14/2026, 5:18:28 PM
+Last updated at 6/15/2026, 7:55:17 PM
