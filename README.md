@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/deadeye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3AnytFp7v4KQq6Qy-pyrYfw-t500x500.jpg">](https://soundcloud.com/gicc/worst)
 
-**Artist**: crusafix, lynU, isai 
+**Artist**: gicc 
 
-**Track**: deadeye
+**Track**: worst w/ c4pri
 
-Last updated at 6/15/2026, 7:55:17 PM
+Last updated at 6/15/2026, 7:56:17 PM
