@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3AnytFp7v4KQq6Qy-pyrYfw-t500x500.jpg">](https://soundcloud.com/gicc/worst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qf8NEZCndiJIIuCf-YkwSIg-t500x500.jpg">](https://soundcloud.com/wesleyxmack/bodies)
 
-**Artist**: gicc 
+**Artist**: WESLEY MACK 
 
-**Track**: worst w/ c4pri
+**Track**: BODIES
 
-Last updated at 6/15/2026, 7:56:17 PM
+Last updated at 6/16/2026, 7:25:24 AM
