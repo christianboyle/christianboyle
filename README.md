@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000120358274-1unlj1-t500x500.jpg">](https://soundcloud.com/jeb007/jeb-makina-burgess-summer-2015-mix-jebadiar-tunz-1995-2015)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3AnytFp7v4KQq6Qy-pyrYfw-t500x500.jpg">](https://soundcloud.com/gicc/worst)
 
-**Artist**: DJ JEB MAKINA BURGESS (DJ MIXZ) JEBTUNZUK 
+**Artist**: gicc 
 
-**Track**: JEB 'MAKINA' BURGESS (SUMMER 2015 MIX) JEBADIAR TUNZ 1995 - 2015
+**Track**: worst w/ c4pri
 
-Last updated at 6/17/2026, 7:23:23 AM
+Last updated at 6/17/2026, 5:52:36 PM
