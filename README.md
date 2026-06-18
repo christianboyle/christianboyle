@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jQoHiTWGBoFdIR2b-2UwSHA-t500x500.png">](https://soundcloud.com/djtrixyofficial/aviciilevelstrixyremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/firstplace)
 
-**Artist**: TRIXY 
+**Artist**: lynU, crusafix, akkiro 
 
-**Track**: Avicii - Levels (Trixy Remix) **FREE DOWNLOAD**
+**Track**: firstplace
 
-Last updated at 6/17/2026, 7:27:23 PM
+Last updated at 6/17/2026, 7:43:56 PM
