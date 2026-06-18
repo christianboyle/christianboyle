@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KI0nT5uGPpgAaVyS-wvLy5g-t500x500.png">](https://soundcloud.com/seawickedmusic/fruit-punch-prod-yvngonce-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4P9X3QqsvuCbENA-Id1Qjw-t500x500.png">](https://soundcloud.com/beatlabradio/hellgnar-exclusive-mix-beat)
 
-**Artist**: SeaWicked 
+**Artist**: Beat Lab Radio 
 
-**Track**: Fruit punch (prod @yvngonce_)
+**Track**: HELLGNAR - Exclusive Mix - Beat Lab Radio 560
 
-Last updated at 6/17/2026, 5:59:32 PM
+Last updated at 6/17/2026, 7:20:13 PM
