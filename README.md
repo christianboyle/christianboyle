@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iAAcfTE7wTwD16Wz-9wzAqg-t500x500.jpg">](https://soundcloud.com/testpressabz/my-love-t-e-s-t-p-r-e-s-s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-50EFxneGc7rDg0LJ-N2BVLw-t500x500.png">](https://soundcloud.com/mugensound/obsidian)
 
-**Artist**: t e s t p r e s s 
+**Artist**: MUGEN 
 
-**Track**: My Love (t e s t p r e s s Remix)
+**Track**: OBSIDIAN
 
-Last updated at 6/18/2026, 6:40:59 PM
+Last updated at 6/18/2026, 6:42:54 PM
