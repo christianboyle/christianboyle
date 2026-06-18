@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/firstplace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/deadeye)
 
-**Artist**: lynU, crusafix, akkiro 
+**Artist**: crusafix, lynU, isai 
 
-**Track**: firstplace
+**Track**: deadeye
 
-Last updated at 6/17/2026, 7:23:03 PM
+Last updated at 6/17/2026, 7:25:23 PM
