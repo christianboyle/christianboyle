@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GavYZtTrAdLcJRki-ozZ4TA-t500x500.png">](https://soundcloud.com/hardcoreenergy/origin8a-propa-tektonik)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/firstplace)
 
-**Artist**: Hardcore Energy 
+**Artist**: lynU, crusafix, akkiro 
 
-**Track**: Origin8a & Propa - TEKTONIK
+**Track**: firstplace
 
-Last updated at 6/17/2026, 7:46:46 PM
+Last updated at 6/18/2026, 7:34:12 AM
