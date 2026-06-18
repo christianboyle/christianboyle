@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3AnytFp7v4KQq6Qy-pyrYfw-t500x500.jpg">](https://soundcloud.com/gicc/worst)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iAAcfTE7wTwD16Wz-9wzAqg-t500x500.jpg">](https://soundcloud.com/testpressabz/my-love-t-e-s-t-p-r-e-s-s)
 
-**Artist**: gicc 
+**Artist**: t e s t p r e s s 
 
-**Track**: worst w/ c4pri
+**Track**: My Love (t e s t p r e s s Remix)
 
-Last updated at 6/18/2026, 7:45:02 AM
+Last updated at 6/18/2026, 6:40:59 PM
