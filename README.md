@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/deadeye)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jQoHiTWGBoFdIR2b-2UwSHA-t500x500.png">](https://soundcloud.com/djtrixyofficial/aviciilevelstrixyremix)
 
-**Artist**: crusafix, lynU, isai 
+**Artist**: TRIXY 
 
-**Track**: deadeye
+**Track**: Avicii - Levels (Trixy Remix) **FREE DOWNLOAD**
 
-Last updated at 6/17/2026, 7:25:23 PM
+Last updated at 6/17/2026, 7:27:23 PM
