@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4bkMRZPN0MRogNJa-cUDVfQ-t500x500.png">](https://soundcloud.com/madjestickasual/excel-dj-folk-s-real-mera)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CJlzn7W91iT392ee-yanLkg-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-luv-u-more-sample)
 
-**Artist**: Madjestic Kasual 
+**Artist**: Yannis G 
 
-**Track**: excel dj - !folk ☆'s (real mera) [HOSTED BY MK]
+**Track**: Yannis G - Luv U More SAMPLE
 
-Last updated at 6/19/2026, 9:51:48 AM
+Last updated at 6/19/2026, 9:52:53 AM
