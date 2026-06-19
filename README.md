@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TP1vGyxiS9HczwzD-NGdwGw-t500x500.png">](https://soundcloud.com/zzzoey808/get-silly?in=zzzoey808/sets/latest-releases)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4bkMRZPN0MRogNJa-cUDVfQ-t500x500.png">](https://soundcloud.com/madjestickasual/excel-dj-folk-s-real-mera)
 
-**Artist**: Zoey808 
+**Artist**: Madjestic Kasual 
 
-**Track**: GET SILLY
+**Track**: excel dj - !folk ☆'s (real mera) [HOSTED BY MK]
 
-Last updated at 6/19/2026, 9:50:48 AM
+Last updated at 6/19/2026, 9:51:48 AM
