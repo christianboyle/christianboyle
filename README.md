@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hBGr9ylYs5AP1Cfb-j7MIeA-t500x500.jpg">](https://soundcloud.com/owtiss/obsessed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8IwUsSA3FklCJr11-UolyvQ-t500x500.png">](https://soundcloud.com/wwenszy/2night-aftrr-remix)
 
-**Artist**: owtiss 
+**Artist**: wenszy 
 
-**Track**: obsessed (yeezo, me)
+**Track**: 2NIGHT (aftrr! remix)
 
-Last updated at 6/18/2026, 7:21:10 PM
+Last updated at 6/18/2026, 8:02:29 PM
