@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDdxVRW7Jh4pA3sA-1RgWBQ-t500x500.png">](https://soundcloud.com/wenszyarchive/scumboys-ginseng-wenszy-cover)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ozsNcvkNBQpKYz2j-3og4zA-t500x500.png">](https://soundcloud.com/maadwest1/maad-west-money-money-2)
 
-**Artist**: wenszy archive ₊˚ʚ₍ᐢ. ̫.ᐢ₎₊˚✧ ﾟ. 
+**Artist**: MAAD WEST 
 
-**Track**: scumboys - ginseng (wenszy cover)
+**Track**: MAAD WEST - MONEY MONEY
 
-Last updated at 6/18/2026, 8:07:05 PM
+Last updated at 6/18/2026, 8:10:11 PM
