@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCwya3q6vPXs1pDt-p88OGg-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-insane)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nLsN34EecN2bz5uz-jYkzRA-t500x500.png">](https://soundcloud.com/lrmakina/lr-lxve-in-the-name-of-love)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: LR, LXVE 
 
-**Track**: DJ Ainzi - Insane
+**Track**: LR & LXVE - In The Name Of Love
 
-Last updated at 6/19/2026, 8:05:09 AM
+Last updated at 6/19/2026, 8:06:10 AM
