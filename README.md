@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nZU9WisRFLRyoO3A-2m2uLQ-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-if-i-were-you-sample?in=dj-yannis-g/sets/hardcore-track-samples)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TP1vGyxiS9HczwzD-NGdwGw-t500x500.png">](https://soundcloud.com/zzzoey808/get-silly?in=zzzoey808/sets/latest-releases)
 
-**Artist**: Yannis G 
+**Artist**: Zoey808 
 
-**Track**: Yannis G - If I Were You SAMPLE
+**Track**: GET SILLY
 
-Last updated at 6/19/2026, 9:49:48 AM
+Last updated at 6/19/2026, 9:50:48 AM
