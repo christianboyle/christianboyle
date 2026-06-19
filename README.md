@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHVXMNBz7CZc3JFN-zA7spw-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/scott-brown-heavens-gate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S3xCg6hNQTHs8iRO-cJZjSg-t500x500.jpg">](https://soundcloud.com/dean-rodger-2/makina-new-set-1)
 
-**Artist**: Hardcore Hooligan 
+**Artist**: Deano 
 
-**Track**: Scott Brown - Heavens Gate - Evolution Records (1997)
+**Track**: Makina new set 💃💃💃
 
-Last updated at 6/19/2026, 8:07:30 AM
+Last updated at 6/19/2026, 8:09:26 AM
