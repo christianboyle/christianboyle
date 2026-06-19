@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-13LXwJEkmsZdQpqK-BLBh3w-t500x500.png">](https://soundcloud.com/glacierofficial/imonmyway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hDPzCGfHMFFsxN4-KWPoZA-t500x500.png">](https://soundcloud.com/lizdek/give-me-love-1?in=lizdek/sets/duality)
 
-**Artist**: Glacier 
+**Artist**: Lizdek 
 
-**Track**: im on my way
+**Track**: Give Me Love
 
-Last updated at 6/19/2026, 10:27:08 AM
+Last updated at 6/19/2026, 10:28:43 AM
