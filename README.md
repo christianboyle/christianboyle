@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-50EFxneGc7rDg0LJ-N2BVLw-t500x500.png">](https://soundcloud.com/mugensound/obsidian)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHVXMNBz7CZc3JFN-zA7spw-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/scott-brown-heavens-gate)
 
-**Artist**: MUGEN 
+**Artist**: Hardcore Hooligan 
 
-**Track**: OBSIDIAN
+**Track**: Scott Brown - Heavens Gate - Evolution Records (1997)
 
-Last updated at 6/18/2026, 6:59:59 PM
+Last updated at 6/18/2026, 7:04:19 PM
