@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-slw61lhLaeIOT4yp-XTO4ag-t500x500.png">](https://soundcloud.com/shortcvke_bass/s-i-s)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4P9X3QqsvuCbENA-Id1Qjw-t500x500.png">](https://soundcloud.com/beatlabradio/hellgnar-exclusive-mix-beat)
 
-**Artist**: shortcvke 
+**Artist**: Beat Lab Radio 
 
-**Track**: S.I.S
+**Track**: HELLGNAR - Exclusive Mix - Beat Lab Radio 560
 
-Last updated at 6/18/2026, 8:17:21 PM
+Last updated at 6/18/2026, 8:20:21 PM
