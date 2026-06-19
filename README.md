@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nLsN34EecN2bz5uz-jYkzRA-t500x500.png">](https://soundcloud.com/lrmakina/lr-lxve-in-the-name-of-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHVXMNBz7CZc3JFN-zA7spw-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/scott-brown-heavens-gate)
 
-**Artist**: LR, LXVE 
+**Artist**: Hardcore Hooligan 
 
-**Track**: LR & LXVE - In The Name Of Love
+**Track**: Scott Brown - Heavens Gate - Evolution Records (1997)
 
-Last updated at 6/19/2026, 8:06:10 AM
+Last updated at 6/19/2026, 8:07:30 AM
