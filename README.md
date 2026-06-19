@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0ReGQBbcUQGDDeMu-NyuVZQ-t500x500.jpg">](https://soundcloud.com/dj-siddy-b/dj-siddy-b-klubb-sandwich)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czg9DR0ykLfb19N9-3TSy1A-t500x500.png">](https://soundcloud.com/nick-hughes-9/your-love-bomb-donk-mix)
 
-**Artist**: Dj Siddy B 
+**Artist**: Nick Hughes, Darren Brown 
 
-**Track**: DJ Siddy B - Klubb Sandwich - Sopranos Go Hard or Go Home Promo Mix - Aug 2025 .wav
+**Track**: Nick Hughes Darren Brown Your Love Bomb Donk Mix
 
-Last updated at 6/19/2026, 10:08:52 AM
+Last updated at 6/19/2026, 10:22:28 AM
