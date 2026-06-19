@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRv3T1suEv4hcYz5-9lMxzA-t500x500.png">](https://soundcloud.com/lofreqrecords/hosanna-sorry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kYTmmnsKRBOlH39k-dpxMpA-t500x500.png">](https://soundcloud.com/itsplushtoi/plushtoi-bruised-knees?in=saxurn/sets/party-ball)
 
-**Artist**: HOSANNA 
+**Artist**: Plushtoi 
 
-**Track**: HOSANNA - SORRY
+**Track**: PLUSHTOi - Bruised Knees
 
-Last updated at 6/19/2026, 10:34:14 AM
+Last updated at 6/19/2026, 10:36:19 AM
