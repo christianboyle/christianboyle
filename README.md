@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qf8NEZCndiJIIuCf-YkwSIg-t500x500.jpg">](https://soundcloud.com/wesleyxmack/bodies?in=saxurn/sets/party-ball)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ztfs0Poc4q6rkK2T-DZT1eQ-t500x500.jpg">](https://soundcloud.com/malixemusic/metro?in=saxurn/sets/party-ball)
 
-**Artist**: WESLEY MACK 
+**Artist**: Malixe 
 
-**Track**: BODIES
+**Track**: Metro
 
-Last updated at 6/19/2026, 10:40:34 AM
+Last updated at 6/19/2026, 10:43:15 AM
