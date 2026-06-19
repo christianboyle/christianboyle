@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zopuzR1GnLMVzQ4u-4CoWzw-t500x500.jpg">](https://soundcloud.com/maadwest1/skrillex-isoxo-smoke-maad-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CmniWAfGXfDXP3zT-xzAbRg-t500x500.jpg">](https://soundcloud.com/cozmo-jethro/dont-stop-the-hip-hop)
 
-**Artist**: MAAD WEST 
+**Artist**: Cozmo Jethro 
 
-**Track**: SKRILLEX & ISOXO - SMOKE (MAAD WEST Remix)
+**Track**: Don't Stop the Hip Hop (feat. Nasty Tha Mc)
 
-Last updated at 6/19/2026, 9:55:22 AM
+Last updated at 6/19/2026, 9:56:42 AM
