@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ak8jN9mPQGy5Fyrg-jqHTvA-t500x500.png">](https://soundcloud.com/fruityeq/pill-crusey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000231420019-56q583-t500x500.jpg">](https://soundcloud.com/taykeith/blocboy-jb-shoot-prod-by-tay-keith)
 
-**Artist**: girlsynth 
+**Artist**: BlocBoy JB 
 
-**Track**: Pill @crusey
+**Track**: BlocBoy JB - Shoot [Prod. By Tay Keith]
 
-Last updated at 6/19/2026, 10:29:44 AM
+Last updated at 6/19/2026, 10:31:04 AM
