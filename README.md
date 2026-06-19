@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ti0FL8Dvyycc9LDy-HgQW5Q-t500x500.png">](https://soundcloud.com/tokyobrewcast-brewcast/trekkie-trax-andrew-b2b-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jCwya3q6vPXs1pDt-p88OGg-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-insane)
 
-**Artist**: Tokyo Beer Lab 
+**Artist**: Dj Ainzi (Donk House Records) 
 
-**Track**: TREKKIE TRAX (andrew b2b Carpainter b2b Seimei) | - 28 May / 2026
+**Track**: DJ Ainzi - Insane
 
-Last updated at 6/19/2026, 8:00:19 AM
+Last updated at 6/19/2026, 8:03:54 AM
