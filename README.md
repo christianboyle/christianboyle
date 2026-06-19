@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ISmIfcNnWO2k-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/invisible-extended-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/deadeye)
 
-**Artist**: Andy Roden 
+**Artist**: crusafix, lynU, isai 
 
-**Track**: Invisible (Extended Mix)
+**Track**: deadeye
 
-Last updated at 6/18/2026, 9:55:06 PM
+Last updated at 6/18/2026, 9:57:16 PM
