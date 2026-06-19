@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2hDPzCGfHMFFsxN4-KWPoZA-t500x500.png">](https://soundcloud.com/lizdek/give-me-love-1?in=lizdek/sets/duality)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ak8jN9mPQGy5Fyrg-jqHTvA-t500x500.png">](https://soundcloud.com/fruityeq/pill-crusey)
 
-**Artist**: Lizdek 
+**Artist**: girlsynth 
 
-**Track**: Give Me Love
+**Track**: Pill @crusey
 
-Last updated at 6/19/2026, 10:28:43 AM
+Last updated at 6/19/2026, 10:29:44 AM
