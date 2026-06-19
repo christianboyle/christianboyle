@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GWS0KVotjDaF2X5h-ey4NOQ-t500x500.jpg">](https://soundcloud.com/startupsquad/vixy-fuck-tdf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-13LXwJEkmsZdQpqK-BLBh3w-t500x500.png">](https://soundcloud.com/glacierofficial/imonmyway)
 
-**Artist**: #startup 
+**Artist**: Glacier 
 
-**Track**: vixy - fuck tdf
+**Track**: im on my way
 
-Last updated at 6/19/2026, 10:25:23 AM
+Last updated at 6/19/2026, 10:27:08 AM
