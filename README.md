@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UHVXMNBz7CZc3JFN-zA7spw-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/scott-brown-heavens-gate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rdfVYS2MLfSRGBDB-dzdTjw-t500x500.png">](https://soundcloud.com/hptgmusic/triplestar-solaris-4?in=saxurn/sets/bugg1n)
 
-**Artist**: Hardcore Hooligan 
+**Artist**: HPTG Music 
 
-**Track**: Scott Brown - Heavens Gate - Evolution Records (1997)
+**Track**: Triplestar - Solaris
 
-Last updated at 6/18/2026, 8:29:16 PM
+Last updated at 6/18/2026, 9:51:36 PM
