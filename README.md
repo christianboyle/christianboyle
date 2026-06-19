@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CJlzn7W91iT392ee-yanLkg-t500x500.jpg">](https://soundcloud.com/dj-yannis-g/yannis-g-luv-u-more-sample)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-b223UbLxFEeRId3G-8cltCg-t500x500.jpg">](https://soundcloud.com/mc-finchy/england-mix)
 
-**Artist**: Yannis G 
+**Artist**: Finchy 
 
-**Track**: Yannis G - Luv U More SAMPLE
+**Track**: England Rugby League Gym Session
 
-Last updated at 6/19/2026, 9:52:53 AM
+Last updated at 6/19/2026, 9:54:22 AM
