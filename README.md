@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-czg9DR0ykLfb19N9-3TSy1A-t500x500.png">](https://soundcloud.com/nick-hughes-9/your-love-bomb-donk-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GWS0KVotjDaF2X5h-ey4NOQ-t500x500.jpg">](https://soundcloud.com/startupsquad/vixy-fuck-tdf)
 
-**Artist**: Nick Hughes, Darren Brown 
+**Artist**: #startup 
 
-**Track**: Nick Hughes Darren Brown Your Love Bomb Donk Mix
+**Track**: vixy - fuck tdf
 
-Last updated at 6/19/2026, 10:22:28 AM
+Last updated at 6/19/2026, 10:25:23 AM
