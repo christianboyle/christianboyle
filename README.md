@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4P9X3QqsvuCbENA-Id1Qjw-t500x500.png">](https://soundcloud.com/beatlabradio/hellgnar-exclusive-mix-beat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-50EFxneGc7rDg0LJ-N2BVLw-t500x500.png">](https://soundcloud.com/mugensound/obsidian)
 
-**Artist**: Beat Lab Radio 
+**Artist**: MUGEN 
 
-**Track**: HELLGNAR - Exclusive Mix - Beat Lab Radio 560
+**Track**: OBSIDIAN
 
-Last updated at 6/18/2026, 8:20:21 PM
+Last updated at 6/18/2026, 8:22:26 PM
