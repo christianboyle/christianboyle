@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QDuohAZHagdTGXWx-xIt8Ng-t500x500.jpg">](https://soundcloud.com/1afflicted/deadeye?in=saxurn/sets/party-ball)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Qf8NEZCndiJIIuCf-YkwSIg-t500x500.jpg">](https://soundcloud.com/wesleyxmack/bodies?in=saxurn/sets/party-ball)
 
-**Artist**: crusafix, lynU, isai 
+**Artist**: WESLEY MACK 
 
-**Track**: deadeye
+**Track**: BODIES
 
-Last updated at 6/20/2026, 9:47:48 AM
+Last updated at 6/20/2026, 12:14:06 PM
