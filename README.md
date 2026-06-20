@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GavYZtTrAdLcJRki-ozZ4TA-t500x500.png">](https://soundcloud.com/hardcoreenergy/origin8a-propa-tektonik?in=saxurn/sets/party-ball)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
 
-**Artist**: Hardcore Energy 
+**Artist**: Stessie 
 
-**Track**: Origin8a & Propa - TEKTONIK
+**Track**: Elevate
 
-Last updated at 6/20/2026, 12:54:09 PM
+Last updated at 6/20/2026, 3:37:41 PM
