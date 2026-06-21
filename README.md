@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kjHgK6vXmk3z5rh8-CPom6w-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgrs-056-sleepy-hevd-pleeg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dZralhtzCbleUmIN-yzKg7A-t500x500.png">](https://soundcloud.com/dj-vinny-t/dj-vinny-t-june-hardcore-mix)
 
-**Artist**: SLEEPY HEVD & PLEEG 
+**Artist**: DJ VINNY T 
 
-**Track**: QGRS-056 | SLEEPY HEVD & PLEEG - Ixora
+**Track**: dj vinny t june hardcore mix
 
-Last updated at 6/21/2026, 8:45:53 AM
+Last updated at 6/21/2026, 8:46:53 AM
