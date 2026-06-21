@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aLp8iyI0FjOqJDqr-6JckyQ-t500x500.png">](https://soundcloud.com/nigel-moffett-943984113/m-dee-21-klubb-efekt-dayz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21 
+**Artist**: Stessie 
 
-**Track**: M-Dee 21 & Klubb Efekt - Dayz Follow (Sample)
+**Track**: Elevate
 
-Last updated at 6/21/2026, 3:42:21 PM
+Last updated at 6/21/2026, 5:30:57 PM
