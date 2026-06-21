@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vd0Y6ShSCOlSWNQM-KEdDcA-t500x500.png">](https://soundcloud.com/kyokee/pretty-lights-i-know-the-truth)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2boTCn5M9CPgcDfF-sVwwfg-t500x500.png">](https://soundcloud.com/vincenzo-capozzi/lost-signals)
 
-**Artist**: Kyokee 
+**Artist**: VinnyBo! 
 
-**Track**: Pretty Lights - I Know The Truth (Kyokee Flip)
+**Track**: Lost Signals
 
-Last updated at 6/21/2026, 1:43:24 PM
+Last updated at 6/21/2026, 1:46:09 PM
