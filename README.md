@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-v45T1FgsEaxYSue3-GDjDAA-t500x500.png">](https://soundcloud.com/kashmerik/funk-train-master-v1-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpYRwy5lOZLOuYao-GkOwcw-t500x500.png">](https://soundcloud.com/cyclopsrecs/shizz-lo-you-dont-want-it-feat)
 
-**Artist**: KASHMERIK 
+**Artist**: Shizz Lo, ZONE Drums 
 
-**Track**: Funk Train
+**Track**: Shizz Lo - You Don't Want It (feat. ZONE Drums)
 
-Last updated at 6/21/2026, 1:55:19 PM
+Last updated at 6/21/2026, 1:59:09 PM
