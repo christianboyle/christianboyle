@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fb8WXPSlO8de-0-t500x500.jpg">](https://soundcloud.com/darren-styles/sweetheart-piano-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QRv3T1suEv4hcYz5-9lMxzA-t500x500.png">](https://soundcloud.com/lofreqrecords/hosanna-sorry)
 
-**Artist**: Darren Styles, Dougal 
+**Artist**: HOSANNA 
 
-**Track**: Sweetheart (Piano Mix)
+**Track**: HOSANNA - SORRY
 
-Last updated at 6/21/2026, 3:39:30 PM
+Last updated at 6/21/2026, 3:40:30 PM
