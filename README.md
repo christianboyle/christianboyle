@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7okS62zcbKZxt3Ga-Y2L9mA-t500x500.jpg">](https://soundcloud.com/micky-deighton/jgs-intent-bulletproof-sample?in=saxurn/sets/party-ball)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
 
-**Artist**: JGS, INTENT 
+**Artist**: Stessie 
 
-**Track**: JGS & INTENT - Bulletproof (Sample)
+**Track**: Elevate
 
-Last updated at 6/20/2026, 4:24:33 PM
+Last updated at 6/21/2026, 8:33:34 AM
