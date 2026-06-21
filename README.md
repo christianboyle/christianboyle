@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oUafSoLbP74FP1i9-TSeurQ-t500x500.png">](https://soundcloud.com/bitbird/stop-me-now-feat-k8-smurf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vxbjJJX4Sbb3eFVa-RT9OnA-t500x500.png">](https://soundcloud.com/voltaross/our-reality)
 
-**Artist**: Melo Nada 
+**Artist**: Voltaross 
 
-**Track**: Stop Me Now (feat. k8 Smurf)
+**Track**: Our Reality
 
-Last updated at 6/21/2026, 10:40:16 AM
+Last updated at 6/21/2026, 10:41:32 AM
