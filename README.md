@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HUzWclvDJLdenLzR-TU7ivQ-t500x500.jpg">](https://soundcloud.com/wayveofficial/disconnect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4kKCQIQuCpn5TAoG-wCjmGw-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/friction-bounce-i-feel-love)
 
-**Artist**: WAYVE 
+**Artist**: Revolution-Records UK 
 
-**Track**: DISCONNECT
+**Track**: FRICTION BOUNCE - I FEEL LOVE
 
-Last updated at 6/21/2026, 8:37:18 AM
+Last updated at 6/21/2026, 8:39:03 AM
