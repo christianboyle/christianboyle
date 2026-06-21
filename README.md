@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wLFRJfMw3mxFWPEd-9Cqcfg-t500x500.png">](https://soundcloud.com/shanghaidoom/shanghai-doom-explorations-vol)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IFRvApVYJ8QtDNq4-91ohTA-t500x500.jpg">](https://soundcloud.com/mrwildfire/hex)
 
-**Artist**: Shanghai Doom 
+**Artist**: Mr. WildFire 
 
-**Track**: Shanghai Doom - Explorations Vol. 1
+**Track**: Mr. WildFire - Hex (Free Download)
 
-Last updated at 6/21/2026, 11:23:54 AM
+Last updated at 6/21/2026, 12:58:51 PM
