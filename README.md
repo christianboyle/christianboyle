@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Om0DgoNJBP7OzMos-VxwK8Q-t500x500.jpg">](https://soundcloud.com/psychocybinrec/splitskreamforestadventure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wLFRJfMw3mxFWPEd-9Cqcfg-t500x500.png">](https://soundcloud.com/shanghaidoom/shanghai-doom-explorations-vol)
 
-**Artist**: Split Skream 
+**Artist**: Shanghai Doom 
 
-**Track**: Split Skream - Forest Adventure
+**Track**: Shanghai Doom - Explorations Vol. 1
 
-Last updated at 6/21/2026, 11:19:53 AM
+Last updated at 6/21/2026, 11:23:54 AM
