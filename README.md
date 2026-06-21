@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5aaDyNZOaAfthvJz-9krtsw-t500x500.jpg">](https://soundcloud.com/meadohmusic/meadoh-6locc-6a6y)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f5A4fkwKiJl75zMU-AUAjqQ-t500x500.jpg">](https://soundcloud.com/dessignertoys/designer-toys-x-realezt-bounce)
 
-**Artist**: Meadoh 
+**Artist**: DESSIGNER TOYS 
 
-**Track**: Lil Loaded - 6locc 6a6y (Meadoh Flip)
+**Track**: Designer Toys & Realezt - Bounce
 
-Last updated at 6/21/2026, 1:48:54 PM
+Last updated at 6/21/2026, 1:52:14 PM
