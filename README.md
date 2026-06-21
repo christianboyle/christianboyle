@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ryMzCGXE82ozi5E-P5K50w-t500x500.jpg">](https://soundcloud.com/mantis_sound/coherence)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fb8WXPSlO8de-0-t500x500.jpg">](https://soundcloud.com/darren-styles/sweetheart-piano-mix)
 
-**Artist**: Mantis Sound 
+**Artist**: Darren Styles, Dougal 
 
-**Track**: Coherence
+**Track**: Sweetheart (Piano Mix)
 
-Last updated at 6/21/2026, 2:26:20 PM
+Last updated at 6/21/2026, 3:39:30 PM
