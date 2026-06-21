@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4kKCQIQuCpn5TAoG-wCjmGw-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/friction-bounce-i-feel-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-K0ck1aqcXb2dgmGi-tS4N0g-t500x500.jpg">](https://soundcloud.com/shauna-hills-941186898/my-hero-in-heaven)
 
-**Artist**: Revolution-Records UK 
+**Artist**: SHAUNA HILLS 
 
-**Track**: FRICTION BOUNCE - I FEEL LOVE
+**Track**: My Hero In Heaven
 
-Last updated at 6/21/2026, 8:39:03 AM
+Last updated at 6/21/2026, 8:40:38 AM
