@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BQvLEjm7QsRLYiMY-DBNyBA-t500x500.png">](https://soundcloud.com/osyrismusic/flume-on-top-osyris-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQwWGBbhIiWSbSPi-2h89PQ-t500x500.jpg">](https://soundcloud.com/afterlatino/mishelle-master-boys-la)
 
-**Artist**: Osyris 
+**Artist**: Afterlatino 
 
-**Track**: Flume - On Top (Osyris Remix)
+**Track**: Mishelle Master Boys - La Quemona (FRASATHY RX)
 
-Last updated at 6/21/2026, 11:09:17 AM
+Last updated at 6/21/2026, 11:11:33 AM
