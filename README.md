@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dZralhtzCbleUmIN-yzKg7A-t500x500.png">](https://soundcloud.com/dj-vinny-t/dj-vinny-t-june-hardcore-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ADWl99jrAetFy3QY-6p2z9A-t500x500.jpg">](https://soundcloud.com/merkidj/merki-fire-under-the-alter-1)
 
-**Artist**: DJ VINNY T 
+**Artist**: Merki 
 
-**Track**: dj vinny t june hardcore mix
+**Track**: Merki - Fire Under the Alter (FREE MAKINA DL)
 
-Last updated at 6/21/2026, 8:46:53 AM
+Last updated at 6/21/2026, 9:00:01 AM
