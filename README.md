@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NQwWGBbhIiWSbSPi-2h89PQ-t500x500.jpg">](https://soundcloud.com/afterlatino/mishelle-master-boys-la)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XfGMwNyyzVtVG34a-RWVftA-t500x500.jpg">](https://soundcloud.com/bauti_music/anybody-flip)
 
-**Artist**: Afterlatino 
+**Artist**: Skrillex, ISOxo, bauti, BGZ, Dabow 
 
-**Track**: Mishelle Master Boys - La Quemona (FRASATHY RX)
+**Track**: Anybody (bauti, BGZ & Dabow flip)
 
-Last updated at 6/21/2026, 11:11:33 AM
+Last updated at 6/21/2026, 11:15:38 AM
