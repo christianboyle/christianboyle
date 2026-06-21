@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qpYRwy5lOZLOuYao-GkOwcw-t500x500.png">](https://soundcloud.com/cyclopsrecs/shizz-lo-you-dont-want-it-feat)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1ryMzCGXE82ozi5E-P5K50w-t500x500.jpg">](https://soundcloud.com/mantis_sound/coherence)
 
-**Artist**: Shizz Lo, ZONE Drums 
+**Artist**: Mantis Sound 
 
-**Track**: Shizz Lo - You Don't Want It (feat. ZONE Drums)
+**Track**: Coherence
 
-Last updated at 6/21/2026, 1:59:09 PM
+Last updated at 6/21/2026, 2:26:20 PM
