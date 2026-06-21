@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HwzX65z8P74sbT5H-cI9cNA-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-gfm-radio-ibiza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KqfP7ChdTXxtnIeT-fMfy8w-t500x500.png">](https://soundcloud.com/labird/scotte-i-cant-give-up-1)
 
-**Artist**: Steve Bates Music 
+**Artist**: ScottE 
 
-**Track**: Steve Bates GFM Radio Ibiza Mix
+**Track**: ScottE I cant give up! ((FREE DOWNLOAD))
 
-Last updated at 6/21/2026, 10:43:32 AM
+Last updated at 6/21/2026, 11:08:17 AM
