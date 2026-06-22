@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQq1CDysX91UIL6d-VvAS3w-t500x500.jpg">](https://soundcloud.com/justin-fallon12/bouncy-beatz-vol57)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3krLg2nktaizOGl8-KYBctg-t500x500.png">](https://soundcloud.com/dark-roast-records/inthemoment)
 
-**Artist**: Justin Fallon 
+**Artist**: Missed Call 
 
-**Track**: bouncy beatz vol57
+**Track**: Missed Call - In The Moment
 
-Last updated at 6/22/2026, 5:50:23 PM
+Last updated at 6/22/2026, 6:54:37 PM
