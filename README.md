@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aCuMRBBoKaj7Ekga-pgmuIA-t500x500.png">](https://soundcloud.com/stessieofficial/elevate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQo56wAdHuBpfut1-3z5uvw-t500x500.jpg">](https://soundcloud.com/redgorgon/tnt)
 
-**Artist**: Stessie 
+**Artist**: DJ RED 
 
-**Track**: Elevate
+**Track**: Sectioned - Makina Special Promo Mix
 
-Last updated at 6/21/2026, 5:38:55 PM
+Last updated at 6/21/2026, 8:19:18 PM
