@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nCJVfsKK4R7WtJd0-2DvMNw-t500x500.jpg">](https://soundcloud.com/undefined/i-hate-to-see-you-cry-uk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SQo56wAdHuBpfut1-3z5uvw-t500x500.jpg">](https://soundcloud.com/redgorgon/tnt)
 
-**Artist**: beansclub, dwams 
+**Artist**: DJ RED 
 
-**Track**: hate to see you cry (UK opener mix)
+**Track**: Sectioned - Makina Special Promo Mix
 
-Last updated at 6/21/2026, 8:45:33 PM
+Last updated at 6/21/2026, 8:46:35 PM
