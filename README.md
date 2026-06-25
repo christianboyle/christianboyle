@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XEEWyoqaWOAB5sHl-wGEslQ-t500x500.jpg">](https://soundcloud.com/itsrestricted/sexybitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgeVEiWhWZzX17lz-0FbbFQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-reset-master)
 
-**Artist**: Restricted, Nik Sitz 
+**Artist**: SICKISH 
 
-**Track**: SEXY BITCH
+**Track**: RESET
 
-Last updated at 6/25/2026, 7:35:00 AM
+Last updated at 6/25/2026, 7:37:25 AM
