@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXjRClEFvVmLPNAf-bjXJiQ-t500x500.png">](https://soundcloud.com/noizecomplaintlive/in4thekill-v5-4sc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYGPpLAAquuoF8fd-z3Ly2g-t500x500.png">](https://soundcloud.com/da-bow/turano)
 
-**Artist**: Noize Complaint 
+**Artist**: Dabow 
 
-**Track**: LA ROUX - IN 4 THE KILL - [NOIZE COMPLAINT REMIX]
+**Track**: Dabow - TURANO
 
-Last updated at 6/24/2026, 7:27:06 PM
+Last updated at 6/24/2026, 7:28:16 PM
