@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5q7A3T33lZPFQeQZ-ylKdwg-t500x500.png">](https://soundcloud.com/highsynth1/drift-steven-straub-a-touch-of)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnPyGmRVno7mw35Z-q1JZyA-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday)
 
 **Artist**: DRIFT 
 
-**Track**: DRIFT & STEVEN STRAUB - A TOUCH OF YOUR LOVE (RADIO EDIT)
+**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT NOW
 
-Last updated at 6/25/2026, 6:53:03 AM
+Last updated at 6/25/2026, 6:54:35 AM
