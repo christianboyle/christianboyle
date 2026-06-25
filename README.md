@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZLyWdw8260MOizH-wycTeQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/alea-like-this-styl-x-topaz-flip-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XEEWyoqaWOAB5sHl-wGEslQ-t500x500.jpg">](https://soundcloud.com/itsrestricted/sexybitch)
 
-**Artist**: Styl x TOPAZ 
+**Artist**: Restricted, Nik Sitz 
 
-**Track**: ALEA - Like This  (Styl x TOPAZ flip)
+**Track**: SEXY BITCH
 
-Last updated at 6/24/2026, 7:58:42 PM
+Last updated at 6/24/2026, 8:02:17 PM
