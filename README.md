@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7fiJOnXaik1wAKAH-9n2qCA-t500x500.png">](https://soundcloud.com/ortisei/humane-ortisei-ethno-dub-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x4wfqo6KQ9Ju67zt-zWfbEg-t500x500.png">](https://soundcloud.com/voltaross/digital-warfare)
 
-**Artist**: yerbby, ortisei 
+**Artist**: Voltaross 
 
-**Track**: Humane (ortisei Ethno Dub)
+**Track**: Digital Warfare
 
-Last updated at 6/25/2026, 7:41:40 AM
+Last updated at 6/25/2026, 7:44:05 AM
