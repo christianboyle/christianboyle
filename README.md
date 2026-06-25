@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fz77mzEZFZhVRIwC-OYyQxQ-t500x500.png">](https://soundcloud.com/disciple/bizo-dr-ushuu-dale)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgeVEiWhWZzX17lz-0FbbFQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-reset-master)
 
-**Artist**: Disciple ♛ ♜ ♞ 
+**Artist**: SICKISH 
 
-**Track**: Bizo & Dr. Ushuu - Dale
+**Track**: RESET
 
-Last updated at 6/25/2026, 7:10:18 AM
+Last updated at 6/25/2026, 7:31:50 AM
