@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DVhrsibGEIl8m5uJ-Idu2hw-t500x500.png">](https://soundcloud.com/wayne-bodenham/welsh-coast-radio-mini-mix-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eC5tIWpbzX9V2xvP-isKzIQ-t500x500.jpg">](https://soundcloud.com/user-440478924/01-trance-horizon-mix-by)
 
-**Artist**: BODDERS 
+**Artist**: DJ Jamezy 
 
-**Track**: Welsh Coast Radio Mini Mix mp3
+**Track**: 01 TRANCE HORIZON MIX BY JAMEZY
 
-Last updated at 6/24/2026, 7:29:16 PM
+Last updated at 6/24/2026, 7:34:17 PM
