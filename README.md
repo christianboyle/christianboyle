@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YnPyGmRVno7mw35Z-q1JZyA-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZLyWdw8260MOizH-wycTeQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/alea-like-this-styl-x-topaz-flip-6)
 
-**Artist**: DRIFT 
+**Artist**: Styl x TOPAZ 
 
-**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL)  OUT NOW
+**Track**: ALEA - Like This  (Styl x TOPAZ flip)
 
-Last updated at 6/25/2026, 6:58:53 AM
+Last updated at 6/25/2026, 7:02:43 AM
