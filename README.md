@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x4wfqo6KQ9Ju67zt-zWfbEg-t500x500.png">](https://soundcloud.com/voltaross/digital-warfare)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WO3xz5ZizXZixBxs-9Q9lDg-t500x500.png">](https://soundcloud.com/dnzrecords/dj-oskar-time-of-change)
 
-**Artist**: Voltaross 
+**Artist**: DJ Oskar 
 
-**Track**: Digital Warfare
+**Track**: DJ Oskar - Time Of Change
 
-Last updated at 6/25/2026, 7:44:05 AM
+Last updated at 6/25/2026, 7:48:00 AM
