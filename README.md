@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XEEWyoqaWOAB5sHl-wGEslQ-t500x500.jpg">](https://soundcloud.com/itsrestricted/sexybitch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
 
-**Artist**: Restricted, Nik Sitz 
+**Artist**: DarnTurner 
 
-**Track**: SEXY BITCH
+**Track**: Outta My Head - DarnTurner - 26
 
-Last updated at 6/24/2026, 8:02:17 PM
+Last updated at 6/24/2026, 8:04:02 PM
