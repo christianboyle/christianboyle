@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLWL2myWNw28byxA-QDOBpQ-t500x500.jpg">](https://soundcloud.com/viskus/michaels-secret-stuff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UXjRClEFvVmLPNAf-bjXJiQ-t500x500.png">](https://soundcloud.com/noizecomplaintlive/in4thekill-v5-4sc)
 
-**Artist**: Viskus, Mousai 
+**Artist**: Noize Complaint 
 
-**Track**: Michael's secret stuff
+**Track**: LA ROUX - IN 4 THE KILL - [NOIZE COMPLAINT REMIX]
 
-Last updated at 6/24/2026, 7:25:52 PM
+Last updated at 6/24/2026, 7:27:06 PM
