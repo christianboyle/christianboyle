@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5q7A3T33lZPFQeQZ-ylKdwg-t500x500.png">](https://soundcloud.com/highsynth1/drift-steven-straub-a-touch-of)
 
-**Artist**: DarnTurner 
+**Artist**: DRIFT 
 
-**Track**: Outta My Head - DarnTurner - 26
+**Track**: DRIFT & STEVEN STRAUB - A TOUCH OF YOUR LOVE (RADIO EDIT)
 
-Last updated at 6/24/2026, 8:04:02 PM
+Last updated at 6/24/2026, 8:08:07 PM
