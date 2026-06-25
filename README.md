@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TnY3Il6coiHaiUGF-2GAPOA-t500x500.jpg">](https://soundcloud.com/historyofhappyhardcore/ibz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uZLyWdw8260MOizH-wycTeQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/alea-like-this-styl-x-topaz-flip-6)
 
-**Artist**: History Of Happy Hardcore, HDSN 
+**Artist**: Styl x TOPAZ 
 
-**Track**: IBZ
+**Track**: ALEA - Like This  (Styl x TOPAZ flip)
 
-Last updated at 6/24/2026, 7:38:52 PM
+Last updated at 6/24/2026, 7:58:42 PM
