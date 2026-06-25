@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fz77mzEZFZhVRIwC-OYyQxQ-t500x500.png">](https://soundcloud.com/disciple/bizo-dr-ushuu-dale)
 
-**Artist**: DarnTurner 
+**Artist**: Disciple ♛ ♜ ♞ 
 
-**Track**: Outta My Head - DarnTurner - 26
+**Track**: Bizo & Dr. Ushuu - Dale
 
-Last updated at 6/25/2026, 7:06:18 AM
+Last updated at 6/25/2026, 7:10:18 AM
