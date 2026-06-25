@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p2BsSk6WrnHjWPfp-OSNcow-t500x500.png">](https://soundcloud.com/ipsiom/space-laces-airtight-ipsiom)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7fiJOnXaik1wAKAH-9n2qCA-t500x500.png">](https://soundcloud.com/ortisei/humane-ortisei-ethno-dub-2)
 
-**Artist**: Space Laces 
+**Artist**: yerbby, ortisei 
 
-**Track**: Space Laces - Airtight (Ipsiom Bootleg)
+**Track**: Humane (ortisei Ethno Dub)
 
-Last updated at 6/25/2026, 7:38:45 AM
+Last updated at 6/25/2026, 7:41:40 AM
