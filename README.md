@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BAWZZplhZlVVvvAz-3CJuuQ-t500x500.jpg">](https://soundcloud.com/dropwizz/el-beeper)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eMvj2NWJEXSGyEhY-eZTZMQ-t500x500.png">](https://soundcloud.com/bncybncy/c-hex-promo-mix-restricted)
 
-**Artist**: DROPWIZZ 
+**Artist**: C:Hex 
 
-**Track**: El Beeper
+**Track**: C:Hex Promo Mix | Restricted Forest 2026
 
-Last updated at 6/26/2026, 4:46:36 PM
+Last updated at 6/26/2026, 4:47:41 PM
