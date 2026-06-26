@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXDzW95hnlT0CD94-EMihoA-t500x500.png">](https://soundcloud.com/hellgnar/juicy-cant-m-stic-hellgnar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iXMpVJrOCOzJ7i1k-LQwhlw-t500x500.jpg">](https://soundcloud.com/jordnmoody/back)
 
-**Artist**: HELLGNAR 
+**Artist**: jordnmoody 
 
-**Track**: JUICY-CAN'T (M?STIC & HELLGNAR REMIX) *FREE DL*
+**Track**: BACK! (PRESSURE EP)
 
-Last updated at 6/26/2026, 4:17:56 PM
+Last updated at 6/26/2026, 4:18:56 PM
