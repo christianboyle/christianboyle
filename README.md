@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U8iHB1i7aE3h4x1K-pbpVdw-t500x500.jpg">](https://soundcloud.com/loveintheendz/bk-beats-instars-sombra-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zpgVgLqsy9KrTnl4-fHadOQ-t500x500.jpg">](https://soundcloud.com/wesley-percival-950058140/anthem-2026-radio-edit)
 
-**Artist**: bk beats 
+**Artist**: DJ WES P ™ 
 
-**Track**: bk beats - instars (Sombra Dawn Chorus Mix)
+**Track**: ANTHEM 2026 RADIO EDIT
 
-Last updated at 6/26/2026, 4:20:56 PM
+Last updated at 6/26/2026, 4:21:56 PM
