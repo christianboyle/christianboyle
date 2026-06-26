@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NjHqGVuHdfktYBws-skpWSw-t500x500.jpg">](https://soundcloud.com/bondzeye/sipping-t)
 
-**Artist**: DarnTurner 
+**Artist**: Bondzeye 
 
-**Track**: Outta My Head - DarnTurner - 26
+**Track**: XXX Tentacion - Sipping  Tea (Bondzeye remix) <Free DL>
 
-Last updated at 6/26/2026, 6:47:44 AM
+Last updated at 6/26/2026, 4:16:51 PM
