@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WDynslOtWf3z4OHv-UqJfcQ-t500x500.jpg">](https://soundcloud.com/klomusicc/john-summit-julia-wolf-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FG2umuKIqPrqzUGI-rQKjzQ-t500x500.jpg">](https://soundcloud.com/iammanada/cantletyougetoutofmyhead)
 
-**Artist**: Klo 
+**Artist**: MANADA 
 
-**Track**: John Summit, Julia Wolf - WITH ME (Klo Flip)
+**Track**: CAN'T GET YOU OUT OF MY HEAD (MANADA FLIP)
 
-Last updated at 6/26/2026, 4:53:38 PM
+Last updated at 6/26/2026, 4:56:23 PM
