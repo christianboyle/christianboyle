@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vrQEhtOmRza9VQ6b-bZGGxw-t500x500.png">](https://soundcloud.com/sorzaofficial/the-glitch-mob-higher-sorza)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cEaRgXT22PyW5N5K-tjB6Ug-t500x500.png">](https://soundcloud.com/patchesomalley/prodigal)
 
-**Artist**: The Glitch Mob, Sorza 
+**Artist**: Patches., Mellow Bender 
 
-**Track**: The Glitch Mob - Higher (Sorza Remix)
+**Track**: Prodigal
 
-Last updated at 6/26/2026, 4:40:20 PM
+Last updated at 6/26/2026, 4:41:40 PM
