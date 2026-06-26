@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mUF3t2Lv3eB7Tb7f-dJxvsQ-t500x500.jpg">](https://soundcloud.com/skellytn/skellytn-black-blade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CiFohGPnNn0EX1vT-sPJF2g-t500x500.png">](https://soundcloud.com/whoisee_music/egocheck)
 
-**Artist**: Skellytn 
+**Artist**: WHOiSEE 
 
-**Track**: Skellytn - Black Blade (Free Download)
+**Track**: Ego Check [Monstercat]
 
-Last updated at 6/26/2026, 4:42:40 PM
+Last updated at 6/26/2026, 4:43:40 PM
