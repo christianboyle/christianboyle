@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ykfQno3CpAMiiG9B-aBiKyw-t500x500.png">](https://soundcloud.com/rideravers/concrete-jungle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QImVDn09ub7hyfMm-ezNuvQ-t500x500.jpg">](https://soundcloud.com/wearestudio/skope-laser-cannons-premiere)
 
-**Artist**: Ride Ravers 
+**Artist**: STUDIO, Skope 
 
-**Track**: Concrete Jungle
+**Track**: Skope - Laser Cannons [Premiere]
 
-Last updated at 6/26/2026, 4:48:41 PM
+Last updated at 6/26/2026, 4:51:33 PM
