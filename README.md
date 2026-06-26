@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SaEzhbmvvtYDqY8e-QCNtZA-t500x500.png">](https://soundcloud.com/mixfmglasgow/dj-sonic-bounce-mix-95)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VTMiRPO6UXzvvsvG-WXPO6A-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-the-night-sample)
 
-**Artist**: DJ Sonic 
+**Artist**: Steve Bates Music 
 
-**Track**: DJ SONIC - BOUNCE MIX 95
+**Track**: Steve Bates - The Night (On Spotify)
 
-Last updated at 6/26/2026, 4:25:01 PM
+Last updated at 6/26/2026, 4:26:07 PM
