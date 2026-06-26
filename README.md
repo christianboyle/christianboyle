@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fz77mzEZFZhVRIwC-OYyQxQ-t500x500.png">](https://soundcloud.com/disciple/bizo-dr-ushuu-dale)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wn8zQPYgAyLtCke8-78LEmg-t500x500.jpg">](https://soundcloud.com/undefined/cry)
 
-**Artist**: Disciple ♛ ♜ ♞ 
+**Artist**: sokuu 
 
-**Track**: Bizo & Dr. Ushuu - Dale
+**Track**: cry prod nineslay
 
-Last updated at 6/25/2026, 7:59:00 AM
+Last updated at 6/25/2026, 9:20:41 PM
