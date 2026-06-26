@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zVazD5GMozUHyznk-KjDo0Q-t500x500.png">](https://soundcloud.com/gravitas-recordings/kadela-energy-cipher-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h86EYlN109Cda2SG-z7Gnug-t500x500.jpg">](https://soundcloud.com/lisahigham81/yes-ii-man-i-feel-like-a-woman)
 
-**Artist**: Kadela 
+**Artist**: Yes ii 
 
-**Track**: Kadela - Energy Cipher
+**Track**: Yes ii - Man I Feel Like A Woman ( sample)
 
-Last updated at 6/26/2026, 4:22:56 PM
+Last updated at 6/26/2026, 4:23:56 PM
