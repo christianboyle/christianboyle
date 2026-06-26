@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-27r0tZBjWtzxzPAz-n2Oyqw-t500x500.png">](https://soundcloud.com/billykinn/feel-that-way-no-hero-s3rl-ft)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5q7A3T33lZPFQeQZ-ylKdwg-t500x500.png">](https://soundcloud.com/highsynth1/drift-steven-straub-a-touch-of)
 
-**Artist**: KINN 
+**Artist**: DRIFT 
 
-**Track**: Feel That Way - No Hero  S3RL ft Ella - KINN Remix **FREE DOWNLOAD**
+**Track**: DRIFT & STEVEN STRAUB - A TOUCH OF YOUR LOVE (RADIO EDIT)
 
-Last updated at 6/26/2026, 6:32:44 AM
+Last updated at 6/26/2026, 6:36:14 AM
