@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CiFohGPnNn0EX1vT-sPJF2g-t500x500.png">](https://soundcloud.com/whoisee_music/egocheck)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iMztnChEXq6yNurH-Ng52IQ-t500x500.jpg">](https://soundcloud.com/groovegenerationofficial/jonas-blue_girl-groove)
 
-**Artist**: WHOiSEE 
+**Artist**: GrooveGeneration 
 
-**Track**: Ego Check [Monstercat]
+**Track**: Jonas Blue - Girl (Groove Generation Remix)
 
-Last updated at 6/26/2026, 4:43:40 PM
+Last updated at 6/26/2026, 4:44:46 PM
