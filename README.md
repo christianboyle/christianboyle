@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeDMwMHyVStvQGK0-QzRnpw-t500x500.jpg">](https://soundcloud.com/wayveofficial/exile)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
 
-**Artist**: WAYVE 
+**Artist**: DarnTurner 
 
-**Track**: EXILE
+**Track**: Outta My Head - DarnTurner - 26
 
-Last updated at 6/27/2026, 10:47:06 AM
+Last updated at 6/27/2026, 3:04:46 PM
