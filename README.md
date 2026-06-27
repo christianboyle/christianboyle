@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xHOhRzmdLCCF985e-8afHgA-t500x500.png">](https://soundcloud.com/subseekr/key-glock-since-6ix-subseekr)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/joz-b-ive-been-searching)
 
-**Artist**: SUBSEEKR 
+**Artist**: Revolution-Records UK 
 
-**Track**: Key Glock - Since 6ix (SUBSEEKR Flip)
+**Track**: Joz B - I've Been Searching (Sample)
 
-Last updated at 6/27/2026, 9:21:00 AM
+Last updated at 6/27/2026, 9:37:40 AM
