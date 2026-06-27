@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5vZ7H96FNMx6YTZT-m3Xzfg-t500x500.png">](https://soundcloud.com/easydoesitbass/bou-x-toxinate-bounce-easy)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xHOhRzmdLCCF985e-8afHgA-t500x500.png">](https://soundcloud.com/subseekr/key-glock-since-6ix-subseekr)
 
-**Artist**: EASY DOES IT 
+**Artist**: SUBSEEKR 
 
-**Track**: BOU X TOXINATE - BOUNCE (EASY DOES IT BOOTLEG)
+**Track**: Key Glock - Since 6ix (SUBSEEKR Flip)
 
-Last updated at 6/27/2026, 9:20:00 AM
+Last updated at 6/27/2026, 9:21:00 AM
