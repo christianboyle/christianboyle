@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-y1b5KriysPLW0hiH-lL1uXQ-t500x500.jpg">](https://soundcloud.com/rynocerousmusic/drake-jumpman-ft-future-x-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5vZ7H96FNMx6YTZT-m3Xzfg-t500x500.png">](https://soundcloud.com/easydoesitbass/bou-x-toxinate-bounce-easy)
 
-**Artist**: RYNO 
+**Artist**: EASY DOES IT 
 
-**Track**: Drake - Jumpman ft Future x Everyone Sounds Like - Mindset (Ryno edit)
+**Track**: BOU X TOXINATE - BOUNCE (EASY DOES IT BOOTLEG)
 
-Last updated at 6/27/2026, 9:18:25 AM
+Last updated at 6/27/2026, 9:20:00 AM
