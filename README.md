@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-goyy1PCzWq0f3vYw-qirAyg-t500x500.png">](https://soundcloud.com/stunnapossecult/hexed-stunna-posse-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZeDMwMHyVStvQGK0-QzRnpw-t500x500.jpg">](https://soundcloud.com/wayveofficial/exile)
 
-**Artist**: HEXED, STUNNA POSSE 
+**Artist**: WAYVE 
 
-**Track**: HEXED STUNNA POSSE MIX
+**Track**: EXILE
 
-Last updated at 6/27/2026, 9:57:47 AM
+Last updated at 6/27/2026, 10:47:06 AM
