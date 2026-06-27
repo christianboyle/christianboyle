@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PqNV3T4OmipgXuHZ-OKjF6Q-t500x500.png">](https://soundcloud.com/dancingdeadrecords/rundd)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7PMfVLhj1fCeNZTO-GCXO6w-t500x500.png">](https://soundcloud.com/dj-flex-uk-204270976/flex-live-publife-festival)
 
-**Artist**: Dancing Dead 
+**Artist**: Flex 
 
-**Track**: The FifthGuys & Chris Linton - Run
+**Track**: FLEX LIVE @ Publife Festival 13_06_26
 
-Last updated at 6/27/2026, 9:40:10 AM
+Last updated at 6/27/2026, 9:41:35 AM
