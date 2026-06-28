@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EzQoxS5oHMwOyfax-ND0Clw-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/hixxy-mix-bonkers-one-1996)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qGhWYLkXoY8zPNmZ-lqL8OQ-t500x500.png">](https://soundcloud.com/billythekiddub/heat-1)
 
-**Artist**: Hardcore Hooligan 
+**Artist**: BILLYTHEKID 
 
-**Track**: Hixxy Mix - Bonkers One (1996)
+**Track**: HEAT
 
-Last updated at 6/28/2026, 9:03:07 AM
+Last updated at 6/28/2026, 11:08:59 AM
