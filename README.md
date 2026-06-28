@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GU7viNwZnpGnEzXS-k1YGlw-t500x500.png">](https://soundcloud.com/consciouspilate/tchami-after-life-conscious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3k0kOZjg4TaEgUOI-NDzwMw-t500x500.png">](https://soundcloud.com/user-415548850/eurotrance-handz-up-anthems-8)
 
-**Artist**: Conscious Pilate, Tchami 
+**Artist**: Dj Ganty 
 
-**Track**: Tchami - After Life ( Conscious Pilate Remix ) ( FREE DOWNLOAD)
+**Track**: EuroTrance Handz Up Anthems 8
 
-Last updated at 6/28/2026, 11:17:39 AM
+Last updated at 6/28/2026, 11:18:54 AM
