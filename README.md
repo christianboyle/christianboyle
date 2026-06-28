@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgeVEiWhWZzX17lz-0FbbFQ-t500x500.jpg">](https://soundcloud.com/sickish/sickish-reset-master)
 
-**Artist**: DarnTurner 
+**Artist**: SICKISH 
 
-**Track**: Outta My Head - DarnTurner - 26
+**Track**: RESET
 
-Last updated at 6/27/2026, 3:04:46 PM
+Last updated at 6/28/2026, 7:36:20 AM
