@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U8iHB1i7aE3h4x1K-pbpVdw-t500x500.jpg">](https://soundcloud.com/loveintheendz/bk-beats-eidetic-real-tears)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fHbcClFELBZhhFN5-t9dKPw-t500x500.jpg">](https://soundcloud.com/yerbownik2/rock-music)
 
-**Artist**: bk beats 
+**Artist**: yerbby dj 
 
-**Track**: bk beats - eidetic (Real Tears Twilit Remix)
+**Track**: rock music
 
-Last updated at 6/29/2026, 5:06:55 PM
+Last updated at 6/29/2026, 5:10:25 PM
