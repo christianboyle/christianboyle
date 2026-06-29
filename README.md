@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kjHgK6vXmk3z5rh8-CPom6w-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgrs-056-sleepy-hevd-pleeg)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9CDAHxyyfUZtJX6y-JtpSSQ-t500x500.png">](https://soundcloud.com/skrillex/smoke-skrillex-isoxo-cristale-teezandos-4)
 
-**Artist**: SLEEPY HEVD & PLEEG 
+**Artist**: Skrillex 
 
-**Track**: QGRS-056 | SLEEPY HEVD & PLEEG - Ixora
+**Track**: Smoke [Skrillex, ISOxo, Cristale, TeeZandos]
 
-Last updated at 6/29/2026, 6:05:01 PM
+Last updated at 6/29/2026, 6:07:46 PM
