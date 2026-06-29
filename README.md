@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXDzW95hnlT0CD94-EMihoA-t500x500.png">](https://soundcloud.com/hellgnar/juicy-cant-m-stic-hellgnar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kjHgK6vXmk3z5rh8-CPom6w-t500x500.png">](https://soundcloud.com/qualitygoodsrecs/qgrs-056-sleepy-hevd-pleeg)
 
-**Artist**: HELLGNAR 
+**Artist**: SLEEPY HEVD & PLEEG 
 
-**Track**: JUICY-CAN'T (M?STIC & HELLGNAR REMIX) *FREE DL*
+**Track**: QGRS-056 | SLEEPY HEVD & PLEEG - Ixora
 
-Last updated at 6/29/2026, 5:14:35 PM
+Last updated at 6/29/2026, 6:05:01 PM
