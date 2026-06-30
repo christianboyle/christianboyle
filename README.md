@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MChQ5gJCOWfN47lf-26zykg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-trying-to-exist)
 
-**Artist**: DarnTurner 
+**Artist**: DRIFT 
 
-**Track**: Outta My Head - DarnTurner - 26
+**Track**: DRIFT & IRWIIN - TRYING TO EXIST (RADIO EDIT)
 
-Last updated at 6/30/2026, 10:35:54 AM
+Last updated at 6/30/2026, 1:50:13 PM
