@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9CDAHxyyfUZtJX6y-JtpSSQ-t500x500.png">](https://soundcloud.com/skrillex/smoke-skrillex-isoxo-cristale-teezandos-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Ks4rokIFX3UJOGc-5jrHSQ-t500x500.png">](https://soundcloud.com/darnturner/out-of-my-head-darnturner-26)
 
-**Artist**: Skrillex 
+**Artist**: DarnTurner 
 
-**Track**: Smoke [Skrillex, ISOxo, Cristale, TeeZandos]
+**Track**: Outta My Head - DarnTurner - 26
 
-Last updated at 6/30/2026, 6:19:24 AM
+Last updated at 6/30/2026, 9:48:41 AM
