@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U8iHB1i7aE3h4x1K-pbpVdw-t500x500.jpg">](https://soundcloud.com/loveintheendz/bk-beats-instars-v8-o)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDe4JTw7CTpOQNgm-rRqdTw-t500x500.jpg">](https://soundcloud.com/crumbpitmusic/down-2-wait)
 
-**Artist**: bk beats 
+**Artist**: Crumb Pit 
 
-**Track**: bk beats - instars
+**Track**: Down 2 Wait
 
-Last updated at 6/30/2026, 1:54:33 PM
+Last updated at 7/1/2026, 6:15:24 AM
