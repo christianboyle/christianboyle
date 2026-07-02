@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FxGMIZADXsKtbHoE-Mmiejw-t500x500.jpg">](https://soundcloud.com/zentryc/free-dl-blurred-movement-hideaway-zentryc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-GZDIaJFZii5iZJ7e-iknTjw-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/jgs-intent-make-me-feel)
 
-**Artist**: Zentryc 
+**Artist**: Rewired Records 
 
-**Track**: [FREE DL] BLURRED MOVEMENT - HIDEAWAY (Zentryc)
+**Track**: JGS & INTENT - Make Me Feel
 
-Last updated at 7/1/2026, 7:39:05 PM
+Last updated at 7/1/2026, 7:42:30 PM
