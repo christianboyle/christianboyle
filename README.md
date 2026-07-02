@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1eJuerSUJAS6GDU-1Ug5oQ-t500x500.jpg">](https://soundcloud.com/djainzi/dj_bexx-dj-ainzi-stay-with-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxGtAY4zSypHzahS-lBmCDQ-t500x500.jpg">](https://soundcloud.com/royalflushmd/royalflu-h-x-hexed-winner)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: ROYALFLU$H, HEXED 
 
-**Track**: Dj_Bexx & Dj Ainzi - Stay With Me
+**Track**: ROYALFLU$H x HEXED - WINNER
 
-Last updated at 7/2/2026, 6:50:52 PM
+Last updated at 7/2/2026, 6:55:12 PM
