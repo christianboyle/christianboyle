@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000551018826-45rz93-t500x500.jpg">](https://soundcloud.com/moon-rush/love-is-gone-relaunch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/revolution-dont-stop-believing)
 
-**Artist**: Moon Rush 
+**Artist**: Revolution-Records UK 
 
-**Track**: SLANDER  - Love Is Gone (Feat. Dylan Matthew) (Moon Rush Re-Launch)
+**Track**: REVOLUTION - DONT STOP BELIEVING  - OUT NOW
 
-Last updated at 7/2/2026, 6:24:41 AM
+Last updated at 7/2/2026, 6:46:17 PM
