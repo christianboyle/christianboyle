@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zK8kQ4Uqlz2xjkz8-uUo6Kw-t500x500.png">](https://soundcloud.com/rankzsound/flux-pavillion-i-cant-stop)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1eJuerSUJAS6GDU-1Ug5oQ-t500x500.jpg">](https://soundcloud.com/djainzi/dj_bexx-dj-ainzi-stay-with-me)
 
-**Artist**: RANKZ 
+**Artist**: Dj Ainzi (Donk House Records) 
 
-**Track**: Flux Pavillion - I Can't Stop (RANKZ Flip) FREE DOWNLOAD
+**Track**: Dj_Bexx & Dj Ainzi - Stay With Me
 
-Last updated at 7/2/2026, 6:49:22 PM
+Last updated at 7/2/2026, 6:50:52 PM
