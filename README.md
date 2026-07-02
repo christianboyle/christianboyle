@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MChQ5gJCOWfN47lf-26zykg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-trying-to-exist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000551018826-45rz93-t500x500.jpg">](https://soundcloud.com/moon-rush/love-is-gone-relaunch)
 
-**Artist**: DRIFT 
+**Artist**: Moon Rush 
 
-**Track**: DRIFT & IRWIIN - TRYING TO EXIST (RADIO EDIT)
+**Track**: SLANDER  - Love Is Gone (Feat. Dylan Matthew) (Moon Rush Re-Launch)
 
-Last updated at 7/1/2026, 7:52:31 PM
+Last updated at 7/2/2026, 6:24:41 AM
