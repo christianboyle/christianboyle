@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15zmlkos38oJZOA4-k3ixWw-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-changes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MChQ5gJCOWfN47lf-26zykg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-trying-to-exist)
 
-**Artist**: The Bounce Brothers 
+**Artist**: DRIFT 
 
-**Track**: The Bounce Brothers - Changes
+**Track**: DRIFT & IRWIIN - TRYING TO EXIST (RADIO EDIT)
 
-Last updated at 7/1/2026, 7:50:30 PM
+Last updated at 7/1/2026, 7:52:31 PM
