@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000551018826-45rz93-t500x500.jpg">](https://soundcloud.com/moon-rush/love-is-gone-relaunch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z3NtlTml9JdA16fc-wzcyUQ-t500x500.png">](https://soundcloud.com/djthera/driftaway)
 
-**Artist**: Moon Rush 
+**Artist**: Dj Thera 
 
-**Track**: SLANDER  - Love Is Gone (Feat. Dylan Matthew) (Moon Rush Re-Launch)
+**Track**: TPCY022 Dj Thera - Drift Away
 
-Last updated at 7/1/2026, 7:34:15 PM
+Last updated at 7/1/2026, 7:35:30 PM
