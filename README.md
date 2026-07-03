@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1oOlfpWWFVQKMhmc-R0c2Uw-t500x500.png">](https://soundcloud.com/shelternet/autolooping)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGovyiMjX7NY0vYE-BZ8osA-t500x500.png">](https://soundcloud.com/makewavs/lingopolus-x-skuddy-got-flavor)
 
-**Artist**: Schwank 
+**Artist**: Make Wavs 
 
-**Track**: autolooping
+**Track**: Lingopolus x skuddy - Got Flavor
 
-Last updated at 7/3/2026, 9:12:46 AM
+Last updated at 7/3/2026, 9:13:45 AM
