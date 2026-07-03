@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGovyiMjX7NY0vYE-BZ8osA-t500x500.png">](https://soundcloud.com/makewavs/lingopolus-x-skuddy-got-flavor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F3XX2COlbCHhS6pI-P7ujpw-t500x500.png">](https://soundcloud.com/dnzrecords/t-jay-into-the-sea)
 
-**Artist**: Make Wavs 
+**Artist**: T-Jay 
 
-**Track**: Lingopolus x skuddy - Got Flavor
+**Track**: T-Jay - Into The Sea
 
-Last updated at 7/3/2026, 9:13:45 AM
+Last updated at 7/3/2026, 10:36:33 AM
