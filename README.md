@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0Jss1gi81yTwN6X9-wHdS4g-t500x500.jpg">](https://soundcloud.com/zurglin/808-vicious)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qSuBA7tfGyk0B7o4-obhQTw-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/boston-bounce-sessions-jayme-d)
 
-**Artist**: ZURGLIN 
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: 808 VICIOUS (FreeDL)
+**Track**: Boston Bounce Sessions JAYME D
 
-Last updated at 7/3/2026, 9:08:11 AM
+Last updated at 7/3/2026, 9:10:41 AM
