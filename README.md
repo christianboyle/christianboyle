@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHCcyFSBWyJCGpA-p4w14w-t500x500.png">](https://soundcloud.com/disciple/flozone-noise)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-eGovyiMjX7NY0vYE-BZ8osA-t500x500.png">](https://soundcloud.com/makewavs/lingopolus-x-skuddy-got-flavor)
 
-**Artist**: Disciple ♛ ♜ ♞ 
+**Artist**: Make Wavs 
 
-**Track**: Flozone - NOISE
+**Track**: Lingopolus x skuddy - Got Flavor
 
-Last updated at 7/3/2026, 2:12:00 PM
+Last updated at 7/3/2026, 2:13:20 PM
