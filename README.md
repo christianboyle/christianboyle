@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i8HceUHWDSUy0hUB-IuoJiA-t500x500.png">](https://soundcloud.com/aiidan-g-music/summernights)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-biHCcyFSBWyJCGpA-p4w14w-t500x500.png">](https://soundcloud.com/disciple/flozone-noise)
 
-**Artist**: AIIDAN - G MUSIC 
+**Artist**: Disciple ♛ ♜ ♞ 
 
-**Track**: AGM - Summer Nights
+**Track**: Flozone - NOISE
 
-Last updated at 7/3/2026, 2:11:00 PM
+Last updated at 7/3/2026, 2:12:00 PM
