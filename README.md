@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CEMAvnPXaXaqLrmH-O3PxdQ-t500x500.png">](https://soundcloud.com/tejvirjogani/soma-tej-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zkq6mbMzGjhe0jHV-Yatoxg-t500x500.jpg">](https://soundcloud.com/yourfriendcara/listen)
 
-**Artist**: Skrillex, Nitepunk, Tej 
+**Artist**: cara 
 
-**Track**: SOMA (TEJ EDIT) [FREE DL]
+**Track**: LISTEN
 
-Last updated at 7/3/2026, 2:34:54 PM
+Last updated at 7/3/2026, 2:36:44 PM
