@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JP4rE9FQdHslCBtr-30L7iA-t500x500.png">](https://soundcloud.com/dev1se/n-xy-dev-se-the-album-part-ii)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BNA6ihKU3qWz1GzX-QjZUfg-t500x500.jpg">](https://soundcloud.com/fifthdensity/alternate-reality)
 
-**Artist**: NIXY & DeVISe 
+**Artist**: FifthDensity 
 
-**Track**: N!XY & DeV!Se - The Album: Part II  (2026)
+**Track**: Alternate Reality
 
-Last updated at 7/3/2026, 10:44:03 AM
+Last updated at 7/3/2026, 1:31:14 PM
