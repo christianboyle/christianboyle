@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWu5UIW86MOWZz4M-rGJyAg-t500x500.png">](https://soundcloud.com/tofushop_delivery/tofushop-x-edenna-physical)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8YR723mh9LTfirF-G6HxGw-t500x500.png">](https://soundcloud.com/ketamakina/retraced)
 
-**Artist**: TOFUSHOP, EDENNA  
+**Artist**: Ketamakina 
 
-**Track**: TOFUSHOP X EDENNA - PHYSICAL
+**Track**: Nurko & Haliene - Retraced (Ketamakina Rmx)
 
-Last updated at 7/3/2026, 6:22:39 PM
+Last updated at 7/3/2026, 6:25:04 PM
