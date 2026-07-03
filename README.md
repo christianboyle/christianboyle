@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxGtAY4zSypHzahS-lBmCDQ-t500x500.jpg">](https://soundcloud.com/royalflushmd/royalflu-h-x-hexed-winner)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glYAfMznpvbr9j0y-WStwKg-t500x500.png">](https://soundcloud.com/lobsta-b/dj-bountyhunter-woops-lobsta-1)
 
-**Artist**: ROYALFLU$H, HEXED 
+**Artist**: LOBSTA B 
 
-**Track**: ROYALFLU$H x HEXED - WINNER
+**Track**: DJ BOUNTYHUNTER - WOOPS (LOBSTA B REMIX)
 
-Last updated at 7/2/2026, 7:09:22 PM
+Last updated at 7/3/2026, 7:55:13 AM
