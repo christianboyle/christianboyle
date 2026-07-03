@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxGtAY4zSypHzahS-lBmCDQ-t500x500.jpg">](https://soundcloud.com/royalflushmd/royalflu-h-x-hexed-winner)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-aPKTVRhPmkwGmjce-f6bAXQ-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/revolution-dont-stop-believing)
 
-**Artist**: ROYALFLU$H, HEXED 
+**Artist**: Revolution-Records UK 
 
-**Track**: ROYALFLU$H x HEXED - WINNER
+**Track**: REVOLUTION - DONT STOP BELIEVING  - OUT NOW
 
-Last updated at 7/2/2026, 6:55:12 PM
+Last updated at 7/2/2026, 7:00:27 PM
