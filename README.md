@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TLrtD9mg9GeC8iuL-JsmRzg-t500x500.png">](https://soundcloud.com/bleaubeard/victory-lap-bleaubeard-flip-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7yDy0SEfCzmmHXy8-PkMP1A-t500x500.png">](https://soundcloud.com/bgzaudio/flexitrework)
 
-**Artist**: Bleaubeard 
+**Artist**: MPH, AE, BGZ 
 
-**Track**: Victory Lap -Fred again, Skepta, PlaqueBoyMax (Bleaubeard FLIP )(FREE DOWNLOAD)
+**Track**: FLEX IT (BGZ REWORK)
 
-Last updated at 7/3/2026, 10:40:13 AM
+Last updated at 7/3/2026, 10:42:53 AM
