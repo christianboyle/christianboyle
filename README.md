@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glYAfMznpvbr9j0y-WStwKg-t500x500.png">](https://soundcloud.com/lobsta-b/dj-bountyhunter-woops-lobsta-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4pfUeO7S20exNn4-zKk1Fw-t500x500.jpg">](https://soundcloud.com/dontdieatwork/smokestax-swerve)
 
-**Artist**: LOBSTA B 
+**Artist**: Smokestax 
 
-**Track**: DJ BOUNTYHUNTER - WOOPS (LOBSTA B REMIX)
+**Track**: Smokestax - Swerve
 
-Last updated at 7/3/2026, 7:55:13 AM
+Last updated at 7/3/2026, 8:59:41 AM
