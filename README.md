@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CEMAvnPXaXaqLrmH-O3PxdQ-t500x500.png">](https://soundcloud.com/tejvirjogani/soma-tej-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4pfUeO7S20exNn4-zKk1Fw-t500x500.jpg">](https://soundcloud.com/dontdieatwork/smokestax-swerve)
 
-**Artist**: Skrillex, Nitepunk, Tej 
+**Artist**: Smokestax 
 
-**Track**: SOMA (TEJ EDIT) [FREE DL]
+**Track**: Smokestax - Swerve
 
-Last updated at 7/3/2026, 6:42:07 PM
+Last updated at 7/3/2026, 6:44:17 PM
