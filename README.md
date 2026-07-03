@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVM77cvQzYxJ3hlv-1QcIBg-t500x500.png">](https://soundcloud.com/eufeion/foreveralways)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CEMAvnPXaXaqLrmH-O3PxdQ-t500x500.png">](https://soundcloud.com/tejvirjogani/soma-tej-edit-free-dl)
 
-**Artist**: Eufeion 
+**Artist**: Skrillex, Nitepunk, Tej 
 
-**Track**: Forever & Always - OUT NOW!!
+**Track**: SOMA (TEJ EDIT) [FREE DL]
 
-Last updated at 7/3/2026, 2:29:40 PM
+Last updated at 7/3/2026, 2:33:00 PM
