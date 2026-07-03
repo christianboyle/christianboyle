@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WPIutvdhmGwgBhrj-b8xzRA-t500x500.jpg">](https://soundcloud.com/tejvirjogani/esdeekid-4-raws-tej-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWu5UIW86MOWZz4M-rGJyAg-t500x500.png">](https://soundcloud.com/tofushop_delivery/tofushop-x-edenna-physical)
 
-**Artist**: Tej 
+**Artist**: TOFUSHOP, EDENNA  
 
-**Track**: esdeekid - 4 RAWS (tej's homemade flip)
+**Track**: TOFUSHOP X EDENNA - PHYSICAL
 
-Last updated at 7/3/2026, 2:41:44 PM
+Last updated at 7/3/2026, 2:43:59 PM
