@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tyXPaizqTJzCYmz9-2XqCKQ-t500x500.png">](https://soundcloud.com/datadrain/europe-the-final-countdown-datadrain-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVM77cvQzYxJ3hlv-1QcIBg-t500x500.png">](https://soundcloud.com/eufeion/foreveralways)
 
-**Artist**: Data Drain 
+**Artist**: Eufeion 
 
-**Track**: Europe - The Final Countdown (Data Drain Flip)
+**Track**: Forever & Always - OUT NOW!!
 
-Last updated at 7/3/2026, 6:35:32 PM
+Last updated at 7/3/2026, 6:38:42 PM
