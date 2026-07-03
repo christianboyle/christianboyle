@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pjteJJyXSLihMfV4-z7SKow-t500x500.jpg">](https://soundcloud.com/deepdroprecords2011/excells-x-bellzbu-locked-n)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WPIutvdhmGwgBhrj-b8xzRA-t500x500.jpg">](https://soundcloud.com/tejvirjogani/esdeekid-4-raws-tej-flip)
 
-**Artist**: Excells, Bellzbu 
+**Artist**: Tej 
 
-**Track**: EXCELLS X BELLZBU - LOCKED 'N' LOADED
+**Track**: esdeekid - 4 RAWS (tej's homemade flip)
 
-Last updated at 7/3/2026, 2:39:24 PM
+Last updated at 7/3/2026, 2:41:44 PM
