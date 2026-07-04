@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWu5UIW86MOWZz4M-rGJyAg-t500x500.png">](https://soundcloud.com/tofushop_delivery/tofushop-x-edenna-physical)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oojUQR5tV3jenrN5-VFy0CA-t500x500.png">](https://soundcloud.com/foxela/anybody)
 
-**Artist**: TOFUSHOP, EDENNA  
+**Artist**: Foxela, Tanfa 
 
-**Track**: TOFUSHOP X EDENNA - PHYSICAL
+**Track**: Skrillex, ISOxo - Anybody (Foxela & Tanfa Remix)
 
-Last updated at 7/4/2026, 7:53:17 AM
+Last updated at 7/4/2026, 10:07:39 AM
