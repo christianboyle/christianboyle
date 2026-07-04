@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4p7TitdWtfc7Zda-qkWyDw-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-attack-the-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vWu5UIW86MOWZz4M-rGJyAg-t500x500.png">](https://soundcloud.com/tofushop_delivery/tofushop-x-edenna-physical)
 
-**Artist**: Steve Bates Music 
+**Artist**: TOFUSHOP, EDENNA  
 
-**Track**: Steve Bates - Attack The Dancefloor (FREE DOWNLOAD)
+**Track**: TOFUSHOP X EDENNA - PHYSICAL
 
-Last updated at 7/3/2026, 6:47:22 PM
+Last updated at 7/4/2026, 7:53:17 AM
