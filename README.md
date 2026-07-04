@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4p7TitdWtfc7Zda-qkWyDw-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-attack-the-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glYAfMznpvbr9j0y-WStwKg-t500x500.png">](https://soundcloud.com/lobsta-b/dj-bountyhunter-woops-lobsta-1)
 
-**Artist**: Steve Bates Music 
+**Artist**: LOBSTA B 
 
-**Track**: Steve Bates - Attack The Dancefloor (FREE DOWNLOAD)
+**Track**: DJ BOUNTYHUNTER - WOOPS (LOBSTA B REMIX)
 
-Last updated at 7/4/2026, 11:26:27 AM
+Last updated at 7/4/2026, 12:24:15 PM
