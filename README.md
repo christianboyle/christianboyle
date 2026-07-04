@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-s4pfUeO7S20exNn4-zKk1Fw-t500x500.jpg">](https://soundcloud.com/dontdieatwork/smokestax-swerve)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4p7TitdWtfc7Zda-qkWyDw-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-attack-the-1)
 
-**Artist**: Smokestax 
+**Artist**: Steve Bates Music 
 
-**Track**: Smokestax - Swerve
+**Track**: Steve Bates - Attack The Dancefloor (FREE DOWNLOAD)
 
-Last updated at 7/4/2026, 11:23:22 AM
+Last updated at 7/4/2026, 11:26:27 AM
