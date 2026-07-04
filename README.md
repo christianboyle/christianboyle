@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glYAfMznpvbr9j0y-WStwKg-t500x500.png">](https://soundcloud.com/lobsta-b/dj-bountyhunter-woops-lobsta-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0osSStMZj40vxrn4-fdcNKA-t500x500.png">](https://soundcloud.com/contact-ambraberlin/scole-luka-acid-heartbreak)
 
-**Artist**: LOBSTA B 
+**Artist**: Ambra 
 
-**Track**: DJ BOUNTYHUNTER - WOOPS (LOBSTA B REMIX)
+**Track**: SCOLE & SLEW/RATE  - Acid Heartbreak
 
-Last updated at 7/4/2026, 12:24:15 PM
+Last updated at 7/4/2026, 12:27:15 PM
