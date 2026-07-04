@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xiDhzybXdfU3zdKH-D65wMg-t500x500.jpg">](https://soundcloud.com/revolution-records-uk/revolution-dont-stop-believing)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zK8kQ4Uqlz2xjkz8-uUo6Kw-t500x500.png">](https://soundcloud.com/rankzsound/flux-pavillion-i-cant-stop)
 
-**Artist**: Revolution-Records UK 
+**Artist**: RANKZ 
 
-**Track**: REVOLUTION - DONT STOP BELIEVING  - OUT NOW
+**Track**: Flux Pavillion - I Can't Stop (RANKZ Flip) FREE DOWNLOAD
 
-Last updated at 7/4/2026, 12:32:20 PM
+Last updated at 7/4/2026, 12:35:20 PM
