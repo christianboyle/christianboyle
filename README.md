@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxGtAY4zSypHzahS-lBmCDQ-t500x500.jpg">](https://soundcloud.com/royalflushmd/royalflu-h-x-hexed-winner)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oojUQR5tV3jenrN5-VFy0CA-t500x500.png">](https://soundcloud.com/foxela/anybody)
 
-**Artist**: ROYALFLU$H, HEXED 
+**Artist**: Foxela, Tanfa 
 
-**Track**: ROYALFLU$H x HEXED - WINNER
+**Track**: Skrillex, ISOxo - Anybody (Foxela & Tanfa Remix)
 
-Last updated at 7/4/2026, 12:44:05 PM
+Last updated at 7/4/2026, 1:41:49 PM
