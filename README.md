@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zYGPpLAAquuoF8fd-z3Ly2g-t500x500.png">](https://soundcloud.com/da-bow/alaltas-las-manos-w-pryzms)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQX6gdcnhSHthjZV-zvl8YQ-t500x500.jpg">](https://soundcloud.com/c8o/starpower)
 
-**Artist**: Dabow, PRYZMS 
+**Artist**: c8o 
 
-**Track**: Dabow & PRYZMS - ALTAS LAS MANOS
+**Track**: *star*power*
 
-Last updated at 7/5/2026, 11:14:10 AM
+Last updated at 7/5/2026, 11:15:15 AM
