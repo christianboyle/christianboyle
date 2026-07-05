@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXDzW95hnlT0CD94-EMihoA-t500x500.png">](https://soundcloud.com/hellgnar/juicy-cant-m-stic-hellgnar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oojUQR5tV3jenrN5-VFy0CA-t500x500.png">](https://soundcloud.com/foxela/anybody?in=saxurn/sets/pain-101/)
 
-**Artist**: HELLGNAR 
+**Artist**: Foxela, Tanfa 
 
-**Track**: JUICY-CAN'T (M?STIC & HELLGNAR REMIX) *FREE DL*
+**Track**: Skrillex, ISOxo - Anybody (Foxela & Tanfa Remix)
 
-Last updated at 7/5/2026, 11:50:28 AM
+Last updated at 7/5/2026, 11:51:27 AM
