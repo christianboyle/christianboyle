@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvAEVLGF1NK73NwQ-IJtobw-t500x500.png">](https://soundcloud.com/hemi-wav/galaxies-expanding?in=saxurn/sets/pain-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SVM77cvQzYxJ3hlv-1QcIBg-t500x500.png">](https://soundcloud.com/eufeion/foreveralways?in=saxurn/sets/pain-101)
 
-**Artist**: Smokestax 
+**Artist**: Eufeion 
 
-**Track**: Galaxies Expanding
+**Track**: Forever & Always - OUT NOW!!
 
-Last updated at 7/5/2026, 12:03:53 PM
+Last updated at 7/5/2026, 12:06:48 PM
