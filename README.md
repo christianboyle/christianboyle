@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEdlj8gHyuHSBUXy-5AM2zw-t500x500.jpg">](https://soundcloud.com/pastnoon/fission-final-om2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z3P8xBko2nEQFSCT-4GzHzg-t500x500.png">](https://soundcloud.com/travelermusic/fade-original-mix)
 
-**Artist**: past noon 
+**Artist**: TRAVELER 
 
-**Track**: FISSION
+**Track**: Fade (Original Mix)
 
-Last updated at 7/5/2026, 11:25:11 AM
+Last updated at 7/5/2026, 11:26:11 AM
