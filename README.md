@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zcFmymBOAYelj2TS-3rYraQ-t500x500.png">](https://soundcloud.com/earth-hz/often)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mA4cSfSsWcCIhpZj-mMdsIw-t500x500.png">](https://soundcloud.com/piercesounds/the-prodigy-smack-my-bitch-1)
 
-**Artist**: earth Hz 
+**Artist**: PIERCE, STAR SEED 
 
-**Track**: JiLLi - OFTEN
+**Track**: THE PRODIGY - SMACK MY BITCH UP (STAR SEED & PIERCE REMIX)
 
-Last updated at 7/5/2026, 11:27:16 AM
+Last updated at 7/5/2026, 11:28:23 AM
