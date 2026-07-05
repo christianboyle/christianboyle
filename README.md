@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHRTTvHL55MXBx8S-x9PmxA-t500x500.jpg">](https://soundcloud.com/leeroy71official/best-of-dj-dave-curtis-2026-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HMxPFVTSncQTysdz-rHSgSA-t500x500.png">](https://soundcloud.com/lofreqrecords/02_smithworks_overstimulated-2)
 
-**Artist**: Lee,j  
+**Artist**: SMITHWORKS, 
 
-**Track**: best of dj dave curtis 2026
+**Track**: SMITHWORKS - OVERSTIMULATED
 
-Last updated at 7/5/2026, 11:19:52 AM
+Last updated at 7/5/2026, 11:20:55 AM
