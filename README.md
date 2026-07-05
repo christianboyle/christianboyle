@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CQX6gdcnhSHthjZV-zvl8YQ-t500x500.jpg">](https://soundcloud.com/c8o/starpower)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itZLXaImt0zHljIK-Wzv0fQ-t500x500.jpg">](https://soundcloud.com/umbralsound/055-sorsari-captivate)
 
-**Artist**: c8o 
+**Artist**: Umbral Sound System 
 
-**Track**: *star*power*
+**Track**: 055 | Sorsari, Captivate
 
-Last updated at 7/5/2026, 11:15:15 AM
+Last updated at 7/5/2026, 11:16:22 AM
