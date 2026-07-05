@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-n6lj4qfTRm9OZZN2-aTyNjw-t500x500.png">](https://soundcloud.com/radiorudina/ypsy-radio-rudina-x-fm4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u7tlvXWiX9YDonXz-TR8CRA-t500x500.png">](https://soundcloud.com/musicbyoats/yu-talkin)
 
-**Artist**: Radio Rudina 
+**Artist**: Oats 
 
-**Track**: Ypsy | Radio Rudina x FM4
+**Track**: Oats - Yu Talkin'
 
-Last updated at 7/5/2026, 8:39:10 AM
+Last updated at 7/5/2026, 11:06:15 AM
