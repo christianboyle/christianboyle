@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fUsmSuXdbvAl6uFk-e7J6gg-t500x500.jpg">](https://soundcloud.com/hgods/mmoottiiff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oy5ejymiRMoKFyrs-qzi9lA-t500x500.png">](https://soundcloud.com/whoisee_music/smacked)
 
-**Artist**: HGods 
+**Artist**: WHOiSEE 
 
-**Track**: MMOOTTIIFF
+**Track**: Smacked
 
-Last updated at 7/5/2026, 11:08:15 AM
+Last updated at 7/5/2026, 11:09:15 AM
