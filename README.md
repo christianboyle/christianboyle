@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mA4cSfSsWcCIhpZj-mMdsIw-t500x500.png">](https://soundcloud.com/piercesounds/the-prodigy-smack-my-bitch-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I2ZLNMIsBVu5mTiG-yXKzyg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-i-drove-1)
 
-**Artist**: PIERCE, STAR SEED 
+**Artist**: DRIFT & STEVEN STRAUB 
 
-**Track**: THE PRODIGY - SMACK MY BITCH UP (STAR SEED & PIERCE REMIX)
+**Track**: DRIFT & STEVEN STRAUB - I DROVE ALL NIGHT (RADIO EDIT) FULL TRACK OUT NOW
 
-Last updated at 7/5/2026, 11:28:23 AM
+Last updated at 7/5/2026, 11:29:47 AM
