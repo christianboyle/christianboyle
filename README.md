@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bdx0BvEE2FK1BUhg-aiW2UA-t500x500.png">](https://soundcloud.com/soukai-maxxx/valanga-souka-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dEumyjiJJm4O9zye-Sw5iWg-t500x500.png">](https://soundcloud.com/paobeats/tik-tok-pao-flip)
 
-**Artist**: Souka* 
+**Artist**: PAO 
 
-**Track**: Valanga (Souka* 最強 Remix)
+**Track**: Tik Tok - Kesha (PAO Flip)
 
-Last updated at 7/5/2026, 8:12:23 AM
+Last updated at 7/5/2026, 8:15:58 AM
