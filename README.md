@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bvs4LhPJiiojk8Hp-h82mfA-t500x500.png">](https://soundcloud.com/freul/lieks-redhot-xplode-free-dl?in=saxurn/sets/pain-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SXDzW95hnlT0CD94-EMihoA-t500x500.png">](https://soundcloud.com/hellgnar/juicy-cant-m-stic-hellgnar)
 
-**Artist**: LIEKS, Redhot 
+**Artist**: HELLGNAR 
 
-**Track**: LIEKS, Redhot - XPLODE (FREE DL) [Freul Records]
+**Track**: JUICY-CAN'T (M?STIC & HELLGNAR REMIX) *FREE DL*
 
-Last updated at 7/5/2026, 11:49:18 AM
+Last updated at 7/5/2026, 11:50:28 AM
