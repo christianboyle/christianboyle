@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-itZLXaImt0zHljIK-Wzv0fQ-t500x500.jpg">](https://soundcloud.com/umbralsound/055-sorsari-captivate)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JHRTTvHL55MXBx8S-x9PmxA-t500x500.jpg">](https://soundcloud.com/leeroy71official/best-of-dj-dave-curtis-2026-1)
 
-**Artist**: Umbral Sound System 
+**Artist**: Lee,j  
 
-**Track**: 055 | Sorsari, Captivate
+**Track**: best of dj dave curtis 2026
 
-Last updated at 7/5/2026, 11:16:22 AM
+Last updated at 7/5/2026, 11:17:55 AM
