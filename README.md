@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-banb4czAZR4CRXJe-qRny5Q-t500x500.png">](https://soundcloud.com/starseedsound/unloveu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HlGDvSwVUY2Kzzy3-AStl9Q-t500x500.png">](https://soundcloud.com/yottabytedubs/whalespeak)
 
-**Artist**: William Black, STAR SEED 
+**Artist**: Yottabyte x BRRiSKT 
 
-**Track**: William Black - Unlove U (STAR SEED Remix)
+**Track**: Whalespeak
 
-Last updated at 7/5/2026, 11:21:55 AM
+Last updated at 7/5/2026, 11:23:10 AM
