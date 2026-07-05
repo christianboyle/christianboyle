@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-a4p7TitdWtfc7Zda-qkWyDw-t500x500.jpg">](https://soundcloud.com/djstevebates/steve-bates-attack-the-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0osSStMZj40vxrn4-fdcNKA-t500x500.png">](https://soundcloud.com/contact-ambraberlin/scole-luka-acid-heartbreak?in=saxurn/sets/pain-101)
 
-**Artist**: Steve Bates Music 
+**Artist**: Ambra 
 
-**Track**: Steve Bates - Attack The Dancefloor (FREE DOWNLOAD)
+**Track**: SCOLE & SLEW/RATE  - Acid Heartbreak
 
-Last updated at 7/5/2026, 12:14:36 PM
+Last updated at 7/5/2026, 12:15:38 PM
