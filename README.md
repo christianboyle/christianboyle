@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h534HIwy5wxzT0JV-4ww3YQ-t500x500.jpg">](https://soundcloud.com/bass-n-babes/underground-2?in=saxurn/sets/pain-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OyzpMV8KTdI2kmQy-m6mu8w-t500x500.jpg">](https://soundcloud.com/mj-thirtyone/ambam-x-mj31-w-the-crew)
 
-**Artist**: Vyhara 
+**Artist**: AMBAM, Mj31 
 
-**Track**: Underground
+**Track**: AMBAM x Mj31 - W THE CREW
 
-Last updated at 7/5/2026, 12:29:15 PM
+Last updated at 7/6/2026, 7:51:43 AM
