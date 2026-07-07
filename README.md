@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fUsmSuXdbvAl6uFk-e7J6gg-t500x500.jpg">](https://soundcloud.com/hgods/mmoottiiff)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ddw1pUEttF5yhDEg-1HNBuA-t500x500.png">](https://soundcloud.com/madjestickasual/magnus-brandt-learned-my)
 
-**Artist**: HGods 
+**Artist**: Madjestic Kasual 
 
-**Track**: MMOOTTIIFF
+**Track**: Magnus Brandt  - LEARNED MY LESSON (prod. dj marq) [MK PREMIERE]
 
-Last updated at 7/7/2026, 7:41:13 AM
+Last updated at 7/7/2026, 7:42:13 AM
