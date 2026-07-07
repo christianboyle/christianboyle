@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wXiB83B8y9NVf0Yp-Ob6VFQ-t500x500.jpg">](https://soundcloud.com/primalrecords/eyelander-this-form-lives)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7BmT9PZeW0bjDzt-lqa7gA-t500x500.png">](https://soundcloud.com/beetlejuke/beetlejuke-prg_404-1)
 
-**Artist**: Eyelander 
+**Artist**: Beetlejuke 
 
-**Track**: EYELANDER - THIS FORM LIVES
+**Track**: Beetlejuke - PRG_404
 
-Last updated at 7/7/2026, 7:59:08 AM
+Last updated at 7/7/2026, 8:00:13 AM
