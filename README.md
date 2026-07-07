@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OyzpMV8KTdI2kmQy-m6mu8w-t500x500.jpg">](https://soundcloud.com/mj-thirtyone/ambam-x-mj31-w-the-crew)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-glYAfMznpvbr9j0y-WStwKg-t500x500.png">](https://soundcloud.com/lobsta-b/dj-bountyhunter-woops-lobsta-1)
 
-**Artist**: AMBAM, Mj31 
+**Artist**: LOBSTA B 
 
-**Track**: AMBAM x Mj31 - W THE CREW
+**Track**: DJ BOUNTYHUNTER - WOOPS (LOBSTA B REMIX)
 
-Last updated at 7/6/2026, 7:51:43 AM
+Last updated at 7/7/2026, 7:32:49 AM
