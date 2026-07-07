@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7BmT9PZeW0bjDzt-lqa7gA-t500x500.png">](https://soundcloud.com/beetlejuke/beetlejuke-prg_404-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fUsmSuXdbvAl6uFk-e7J6gg-t500x500.jpg">](https://soundcloud.com/hgods/mmoottiiff)
 
-**Artist**: Beetlejuke 
+**Artist**: HGods 
 
-**Track**: Beetlejuke - PRG_404
+**Track**: MMOOTTIIFF
 
-Last updated at 7/7/2026, 7:38:58 AM
+Last updated at 7/7/2026, 7:41:13 AM
