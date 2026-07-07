@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tnfXjwRyDzoFncux-jMqovA-t500x500.png">](https://soundcloud.com/james-green-416232936/james-green-6-degrees)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NsbdV8NuZzXgwxV8-GL7VyA-t500x500.png">](https://soundcloud.com/inrotationrecs/hills-esse-blow-your-mind)
 
-**Artist**: James Green 
+**Artist**: HILLS, ESSE 
 
-**Track**: James Green - 6 Degrees
+**Track**: HILLS & ESSE - Blow Your Mind
 
-Last updated at 7/7/2026, 7:44:38 AM
+Last updated at 7/7/2026, 7:54:13 AM
