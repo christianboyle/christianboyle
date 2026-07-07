@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ddw1pUEttF5yhDEg-1HNBuA-t500x500.png">](https://soundcloud.com/madjestickasual/magnus-brandt-learned-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tnfXjwRyDzoFncux-jMqovA-t500x500.png">](https://soundcloud.com/james-green-416232936/james-green-6-degrees)
 
-**Artist**: Madjestic Kasual 
+**Artist**: James Green 
 
-**Track**: Magnus Brandt  - LEARNED MY LESSON (prod. dj marq) [MK PREMIERE]
+**Track**: James Green - 6 Degrees
 
-Last updated at 7/7/2026, 7:42:13 AM
+Last updated at 7/7/2026, 7:44:38 AM
