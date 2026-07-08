@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8CUHpyfcIsEQGsqI-Vw7JLA-t500x500.jpg">](https://soundcloud.com/mark-smith-carnage/audioboyz-x-roachy-satellite)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lG8HEGxY5odJC8DD-y5KMDQ-t500x500.png">](https://soundcloud.com/disciple/similar-outskirts-to-the-top)
 
-**Artist**: CARNAGE 
+**Artist**: Disciple ♛ ♜ ♞ 
 
-**Track**: AudioBoyz x Roachy - Satellite [Radio Edit].mp3
+**Track**: Similar Outskirts - TO THE TOP
 
-Last updated at 7/7/2026, 7:30:25 PM
+Last updated at 7/7/2026, 7:31:25 PM
