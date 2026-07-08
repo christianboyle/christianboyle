@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5UTouYU2CsuIhhZx-U3uoEA-t500x500.png">](https://soundcloud.com/bangerangnetwork/bn092)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T449dVXESjEnlSXw-0ttmJw-t500x500.png">](https://soundcloud.com/hendy2017/hendy-inside-my-mind)
 
-**Artist**: Bangerang Network 
+**Artist**: DJ Hendy 
 
-**Track**: KEVU - Safada
+**Track**: Hendy - Inside my mind
 
-Last updated at 7/8/2026, 5:27:08 PM
+Last updated at 7/8/2026, 5:30:23 PM
