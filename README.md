@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xB76xIy2ErhmlOf6-S0ekSw-t500x500.png">](https://soundcloud.com/rumora/euroclub-alarma-rumora-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbzffss2Wt3gpbep-v3VVnA-t500x500.png">](https://soundcloud.com/systema7a/lawrence-lee-sea-dweller-dj-tool-remix-2)
 
-**Artist**: EUROCLUB, RUMORA 
+**Artist**: A7A 
 
-**Track**: EUROCLUB - ALARMA (Rumora Remix)
+**Track**: Lawrence Lee - Sea Dweller (DJ TOOL Remix)
 
-Last updated at 7/8/2026, 7:35:54 AM
+Last updated at 7/8/2026, 7:47:09 AM
