@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T449dVXESjEnlSXw-0ttmJw-t500x500.png">](https://soundcloud.com/hendy2017/hendy-inside-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbzffss2Wt3gpbep-v3VVnA-t500x500.png">](https://soundcloud.com/systema7a/lawrence-lee-sea-dweller-dj-tool-remix-2)
 
-**Artist**: DJ Hendy 
+**Artist**: A7A 
 
-**Track**: Hendy - Inside my mind
+**Track**: Lawrence Lee - Sea Dweller (DJ TOOL Remix)
 
-Last updated at 7/8/2026, 7:57:59 AM
+Last updated at 7/8/2026, 5:19:33 PM
