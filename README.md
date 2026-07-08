@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T449dVXESjEnlSXw-0ttmJw-t500x500.png">](https://soundcloud.com/hendy2017/hendy-inside-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xB76xIy2ErhmlOf6-S0ekSw-t500x500.png">](https://soundcloud.com/rumora/euroclub-alarma-rumora-remix-1)
 
-**Artist**: DJ Hendy 
+**Artist**: EUROCLUB, RUMORA 
 
-**Track**: Hendy - Inside my mind
+**Track**: EUROCLUB - ALARMA (Rumora Remix)
 
-Last updated at 7/8/2026, 7:28:19 AM
+Last updated at 7/8/2026, 7:35:54 AM
