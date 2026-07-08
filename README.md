@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbzffss2Wt3gpbep-v3VVnA-t500x500.png">](https://soundcloud.com/systema7a/lawrence-lee-sea-dweller-dj-tool-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000262035605-06npjt-t500x500.jpg">](https://soundcloud.com/0-angel/complicated)
 
-**Artist**: A7A 
+**Artist**: 0% ANGEL 
 
-**Track**: Lawrence Lee - Sea Dweller (DJ TOOL Remix)
+**Track**: complicated
 
-Last updated at 7/7/2026, 7:38:20 PM
+Last updated at 7/8/2026, 7:17:09 AM
