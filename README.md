@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-og3lpeEdfNOqINas-i7GgYA-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/taylor-swift-anti-hero-drift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbzffss2Wt3gpbep-v3VVnA-t500x500.png">](https://soundcloud.com/systema7a/lawrence-lee-sea-dweller-dj-tool-remix-2)
 
-**Artist**: DRIFT 
+**Artist**: A7A 
 
-**Track**: TAYLOR SWIFT - ANTI HERO (DRIFT FREE DOWNLOAD)
+**Track**: Lawrence Lee - Sea Dweller (DJ TOOL Remix)
 
-Last updated at 7/7/2026, 7:37:00 PM
+Last updated at 7/7/2026, 7:38:20 PM
