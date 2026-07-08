@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7BmT9PZeW0bjDzt-lqa7gA-t500x500.png">](https://soundcloud.com/beetlejuke/beetlejuke-prg_404-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LNJyogMYsTbMIA3M-DY1XpQ-t500x500.png">](https://soundcloud.com/smokestaxmusic/need-my-heart)
 
-**Artist**: Beetlejuke 
+**Artist**: Smokestax 
 
-**Track**: Beetlejuke - PRG_404
+**Track**: Need My Heart
 
-Last updated at 7/7/2026, 8:00:13 AM
+Last updated at 7/7/2026, 7:21:20 PM
