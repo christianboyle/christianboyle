@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Nbzffss2Wt3gpbep-v3VVnA-t500x500.png">](https://soundcloud.com/systema7a/lawrence-lee-sea-dweller-dj-tool-remix-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OyzpMV8KTdI2kmQy-m6mu8w-t500x500.jpg">](https://soundcloud.com/mj-thirtyone/ambam-x-mj31-w-the-crew)
 
-**Artist**: A7A 
+**Artist**: AMBAM, Mj31 
 
-**Track**: Lawrence Lee - Sea Dweller (DJ TOOL Remix)
+**Track**: AMBAM x Mj31 - W THE CREW
 
-Last updated at 7/9/2026, 5:55:42 PM
+Last updated at 7/9/2026, 5:56:52 PM
