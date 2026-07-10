@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7FLeuVLyAyKia6cT-KmZesg-t500x500.jpg">](https://soundcloud.com/skribblemusic/dope-boy-money-skribble-x-restless)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHvhdEbhTAMs9CZ8-GEyuvg-t500x500.jpg">](https://soundcloud.com/pierce-mccaughley/pierce-omf)
 
-**Artist**: Skribble Music & Art Project 
+**Artist**: PIERCE 
 
-**Track**: Dope Boy Money - Restless x Skribble
+**Track**: Pierce - OMF
 
-Last updated at 7/10/2026, 8:31:18 AM
+Last updated at 7/10/2026, 12:19:30 PM
