@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6b0MHPkMMRN4gqHU-XOh9FA-t500x500.jpg">](https://soundcloud.com/edmfamilyextras/dua-lipa-break-my-heart-switchblade-hlx-remix-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OIkaxKnduKEk3ZZQ-qZZdPQ-t500x500.png">](https://soundcloud.com/sistekofficial/freeyourmind)
 
-**Artist**: SwitchBlade, HLX 
+**Artist**: Sistek 
 
-**Track**: Dua Lipa - Break My Heart (SwitchBlade & HLX Remix) [FREE DOWNLOAD]
+**Track**: Prospa, Cloonee - Free Your Mind (Sistek Remix)
 
-Last updated at 7/11/2026, 8:31:58 AM
+Last updated at 7/11/2026, 8:32:58 AM
