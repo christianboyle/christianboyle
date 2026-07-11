@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BpDz8Hmy4MAG9kM-76J9Lw-t500x500.png">](https://soundcloud.com/orenda/eliminatethevariables)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLaqCkcKruLyyZY6-ykNbYQ-t500x500.jpg">](https://soundcloud.com/ih8sev/slaughter)
 
-**Artist**: Orenda, Mfinity 
+**Artist**: 00sev, starry, satire 
 
-**Track**: Orenda, Mfinity - Eliminate The Variables
+**Track**: slaughter🔪w/ starry + satire (starxvi + arto)
 
-Last updated at 7/11/2026, 8:47:29 AM
+Last updated at 7/11/2026, 8:51:09 AM
