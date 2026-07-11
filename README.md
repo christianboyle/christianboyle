@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZHvhdEbhTAMs9CZ8-GEyuvg-t500x500.jpg">](https://soundcloud.com/pierce-mccaughley/pierce-omf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUWZb0DzZIyeC4Gt-gnQwXg-t500x500.jpg">](https://soundcloud.com/undefined/tik-tok-hard-techno-2026-whip)
 
-**Artist**: PIERCE 
+**Artist**: Mike Enemy 
 
-**Track**: Pierce - OMF
+**Track**: TIK TOK - Hard Techno 2026 whip!
 
-Last updated at 7/11/2026, 7:43:05 AM
+Last updated at 7/11/2026, 7:45:44 AM
