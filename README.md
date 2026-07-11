@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wIPj6miSgOYrORFD-3k09Ug-t500x500.jpg">](https://soundcloud.com/golddiggerrecs/runitback)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ERG18vORVu5p-0-t500x500.jpg">](https://soundcloud.com/blossosound/control)
 
-**Artist**: Fantom Freq & TONEZ 
+**Artist**: Blosso 
 
-**Track**: Fantom Freq x TONEZ - Run It Back [Gold Digger]
+**Track**: Control
 
-Last updated at 7/11/2026, 9:06:44 AM
+Last updated at 7/11/2026, 9:10:29 AM
