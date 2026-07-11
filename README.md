@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRaY2XJXeIoNEzGf-fmaaHg-t500x500.jpg">](https://soundcloud.com/stylusdamage/desireforamoment?in=stylusdamage/sets/towhomthismayconcern)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jyu9bJStcn0q3xqT-LSeBZg-t500x500.jpg">](https://soundcloud.com/bliss05/send-help-please-meta-1?in=bliss05/sets/keep-moving)
 
-**Artist**: Stylus Damage 
+**Artist**: bliss05 
 
-**Track**: desireforamoment
+**Track**: Send help please (meta)
 
-Last updated at 7/11/2026, 8:20:08 AM
+Last updated at 7/11/2026, 8:22:28 AM
