@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tDKtzVPwVNh5To6N-X85CyQ-t500x500.png">](https://soundcloud.com/tokyobrewcast-brewcast/brava-seimei-w)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ti0FL8Dvyycc9LDy-HgQW5Q-t500x500.png">](https://soundcloud.com/tokyobrewcast-brewcast/trekkie-trax-andrew-b2b-1)
 
 **Artist**: Tokyo Beer Lab 
 
-**Track**: BRAVA & SEIMEI w/ なかむらみなみ - 5 November 2025
+**Track**: TREKKIE TRAX (andrew b2b Carpainter b2b Seimei) | - 28 May / 2026
 
-Last updated at 7/11/2026, 1:23:25 PM
+Last updated at 7/11/2026, 2:25:05 PM
