@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mimLaR2XmF1Ilh1G-tAhX2w-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-everlasting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1BpDz8Hmy4MAG9kM-76J9Lw-t500x500.png">](https://soundcloud.com/orenda/eliminatethevariables)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: Orenda, Mfinity 
 
-**Track**: 2 Sick Puppiez - Everlasting Love
+**Track**: Orenda, Mfinity - Eliminate The Variables
 
-Last updated at 7/11/2026, 8:44:14 AM
+Last updated at 7/11/2026, 8:47:29 AM
