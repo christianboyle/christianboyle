@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZaxGSwGQHWzdXlm7-RzYgGQ-t500x500.png">](https://soundcloud.com/allblueverything/turnmeon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RaDv0dEa7ZuLgx2u-j85RLw-t500x500.png">](https://soundcloud.com/playmerecords/skellytn-just-dance)
 
-**Artist**: BLUE 
+**Artist**: Skellytn 
 
-**Track**: Turn Me On
+**Track**: Skellytn - Just Dance
 
-Last updated at 7/11/2026, 8:39:59 AM
+Last updated at 7/11/2026, 8:41:34 AM
