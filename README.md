@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BMiwH4fZfgnPhUN4-jLxXaA-t500x500.jpg">](https://soundcloud.com/vusive/20deep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pzt0k5qeqgqw9SXP-LWeEjw-t500x500.jpg">](https://soundcloud.com/mvslo/cryptic-voices)
 
-**Artist**: Vusive 
+**Artist**: MVSLO 
 
-**Track**: 20deep
+**Track**: MVSLO - Cryptic Voices
 
-Last updated at 7/11/2026, 8:23:40 AM
+Last updated at 7/11/2026, 8:24:44 AM
