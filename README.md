@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1tzdeyBkzOhBmUy-y3F7gw-t500x500.jpg">](https://soundcloud.com/tokyobrewcast-brewcast/nikita-anywhere-but-home-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tDKtzVPwVNh5To6N-X85CyQ-t500x500.png">](https://soundcloud.com/tokyobrewcast-brewcast/brava-seimei-w)
 
 **Artist**: Tokyo Beer Lab 
 
-**Track**: NIKITA | Anywhere but home [2026年6月20日]
+**Track**: BRAVA & SEIMEI w/ なかむらみなみ - 5 November 2025
 
-Last updated at 7/11/2026, 9:57:58 AM
+Last updated at 7/11/2026, 1:23:25 PM
