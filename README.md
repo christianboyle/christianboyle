@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SUWZb0DzZIyeC4Gt-gnQwXg-t500x500.jpg">](https://soundcloud.com/undefined/tik-tok-hard-techno-2026-whip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bRaY2XJXeIoNEzGf-fmaaHg-t500x500.jpg">](https://soundcloud.com/stylusdamage/takecarekid?in=stylusdamage/sets/towhomthismayconcern)
 
-**Artist**: Mike Enemy 
+**Artist**: Stylus Damage 
 
-**Track**: TIK TOK - Hard Techno 2026 whip!
+**Track**: takecarekid
 
-Last updated at 7/11/2026, 7:45:44 AM
+Last updated at 7/11/2026, 7:47:29 AM
