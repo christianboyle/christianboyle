@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLaqCkcKruLyyZY6-ykNbYQ-t500x500.jpg">](https://soundcloud.com/ih8sev/slaughter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-At6yKJweNV7nrFre-iz99Xg-t500x500.png">](https://soundcloud.com/manifestdnb/icons-hold-me-tight-1)
 
-**Artist**: 00sev, starry, satire 
+**Artist**: ICONS, Dxfferentxal 
 
-**Track**: slaughter🔪w/ starry + satire (starxvi + arto)
+**Track**: ICONS - Hold Me Tight (Dxfferentxal Remix)
 
-Last updated at 7/11/2026, 8:51:09 AM
+Last updated at 7/11/2026, 9:03:04 AM
