@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PxuJbHhH2WsUvzhW-aWXG6g-t500x500.png">](https://soundcloud.com/dewzixmusic/all-i-need-is-bass-dewzix-remix?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uSiT5GnRXCufcJDa-Nem1NQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-thursday-again-your-beautiful-out-soon?in=saxurn/sets/in-the-stu)
 
-**Artist**: DEWZIX 
+**Artist**: DRIFT 
 
-**Track**: PEEKABOO - All I Need Is Bass (DEWZIX Remix)
+**Track**: DRIFT & STEVEN STRAUB - THURSDAY AGAIN (YOUR BEAUTIFUL) 🚨 OUT NOW🚨
 
-Last updated at 7/12/2026, 10:58:31 AM
+Last updated at 7/12/2026, 11:00:30 AM
