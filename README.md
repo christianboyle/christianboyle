@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyKhNV2yvysx4Xl3-IZvmrA-t500x500.png">](https://soundcloud.com/sachsentrance/lil-peep-right-here-dj-zugzwang-edit-digitalstreammaster-3?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q3cjAz9r92MUqsdz-9spz0w-t500x500.jpg">](https://soundcloud.com/jmau5_jesse/fateofophelia?in=saxurn/sets/overflow)
 
-**Artist**: DJ Zugzwang 
+**Artist**: JMAU5 
 
-**Track**: Lil Peep - Right Here (DJ Zugzwang Edit) [ST021]
+**Track**: Taylor Swift - The Fate of Ophelia (JMAU5 X DYKOTOMI Flip) [Free DL]
 
-Last updated at 7/12/2026, 3:51:47 PM
+Last updated at 7/12/2026, 6:26:09 PM
