@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M0yaAinafwxWkUCy-VAAPEA-t500x500.png">](https://soundcloud.com/dj-iyf/farmyard-rebelz-i-got-issues?in=saxurn/sets/unc-head)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000556076793-ruk1fd-t500x500.jpg">](https://soundcloud.com/aiden-mccrae/gerry-cinnamon-canter-aidan-mccrae-bootleg?in=saxurn/sets/squarely-opposed)
 
-**Artist**: Farmyard Rebelz 
+**Artist**: Aidan McCrae 
 
-**Track**: Farmyard Rebelz - I Got Issues ***FREE DOWNLOAD***
+**Track**: Gerry Cinnamon - Canter (Aidan McCrae Bootleg)
 
-Last updated at 7/12/2026, 3:05:47 PM
+Last updated at 7/12/2026, 3:10:09 PM
