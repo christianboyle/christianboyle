@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xB76xIy2ErhmlOf6-S0ekSw-t500x500.png">](https://soundcloud.com/rumora/euroclub-alarma-rumora-remix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz5Hg0zC7HaAgEgO-R46yzA-t500x500.jpg">](https://soundcloud.com/lynyou/idc)
 
-**Artist**: EUROCLUB, RUMORA 
+**Artist**: lynU 
 
-**Track**: EUROCLUB - ALARMA (Rumora Remix)
+**Track**: Tell me prod me
 
-Last updated at 7/11/2026, 9:16:56 PM
+Last updated at 7/11/2026, 9:18:16 PM
