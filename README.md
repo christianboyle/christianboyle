@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDQ6aI2VzM9C76KD-Iukfow-t500x500.png">](https://soundcloud.com/krypttofficial/fred-again-skepta-d-double-e-victory-lap-555?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-br5mYp3AwsQwVPoo-ARHSNw-t500x500.jpg">](https://soundcloud.com/geomcd/i-surrender-geo-mcd?in=saxurn/sets/in-the-stu)
 
-**Artist**: KRYPTT 
+**Artist**: geo mcd 
 
-**Track**: Fred Again, Skepta, D Double E - VICTORY LAP 555 (KRYPTT FLIP)
+**Track**: I Surrender - Geo McD
 
-Last updated at 7/12/2026, 12:05:32 PM
+Last updated at 7/12/2026, 12:08:18 PM
