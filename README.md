@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9OKczwxXszNh3SPb-gEYQLA-t500x500.jpg">](https://soundcloud.com/geomcd/survivor-geo-mcd?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-afOCb0X1At6PEQ9D-tzh03A-t500x500.png">](https://soundcloud.com/initi8uk/cry-initi8-remix?in=saxurn/sets/the-crys)
 
-**Artist**: GEO MCD 
+**Artist**: Initi8 
 
-**Track**: Survivor - Geo McD
+**Track**: CHARLOTTE PLANK - CRY BBY - INITI8 REMIX
 
-Last updated at 7/12/2026, 10:41:35 AM
+Last updated at 7/12/2026, 10:45:55 AM
