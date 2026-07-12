@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Hc7S5xJDo4yOLNy-MapNxQ-t500x500.jpg">](https://soundcloud.com/katiekross/even-if-it-kills-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EKPUGiafYA4Da7Pr-qOIBeA-t500x500.jpg">](https://soundcloud.com/vihefoie/causeeffect)
 
-**Artist**: red letter diary 
+**Artist**: vihe, stya 
 
-**Track**: Even if it kills me
+**Track**: cause&effect w/ stya
 
-Last updated at 7/11/2026, 7:10:23 PM
+Last updated at 7/11/2026, 7:11:28 PM
