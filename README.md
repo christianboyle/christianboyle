@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVDIX4wGjL3oaNEV-rVjsAw-t500x500.png">](https://soundcloud.com/willatkinson/ebtg-missing-will-atkinson?in=saxurn/sets/small-fortune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUJGK1I6Z5sbOnSL-zTzQOg-t500x500.png">](https://soundcloud.com/barongfamily/rexy-dexy-automatic?in=saxurn/sets/small-fortune)
 
-**Artist**: Will Atkinson 
+**Artist**: REXY=DEXY 
 
-**Track**: EBTG - Missing (Will Atkinson Bootleg)
+**Track**: REXY=DEXY - Automatic
 
-Last updated at 7/12/2026, 9:07:31 AM
+Last updated at 7/12/2026, 9:11:26 AM
