@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Hfsmhq6ADy1eT4DY-wpZeMg-t500x500.jpg">](https://soundcloud.com/lwo_music/skrillex-fuze-edit-nyroz-lwo-fnrz?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHUGjhmrCH10UGG8-dWqurQ-t500x500.jpg">](https://soundcloud.com/sexy-keksy/we-are-charlie-kirk-hyperpop?in=saxurn/sets/blobby-chill)
 
-**Artist**: Nyroz, LWØ, FNRZ 
+**Artist**: Lil Kirk 
 
-**Track**: Skrillex & ISOxo - Fuze (Nyroz x LWØ x FNRZ Hard Techno Edit) [FREE DL]
+**Track**: We Are Charlie Kirk (hyperpop remix)
 
-Last updated at 7/12/2026, 12:11:33 PM
+Last updated at 7/12/2026, 12:15:17 PM
