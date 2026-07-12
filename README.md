@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q7HB54zxjiQIMiOx-aYDsng-t500x500.png">](https://soundcloud.com/tokyobrewcast-brewcast/jungle-han-23-may-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9Hc7S5xJDo4yOLNy-MapNxQ-t500x500.jpg">](https://soundcloud.com/katiekross/even-if-it-kills-me)
 
-**Artist**: TOKYO BEER LAB 
+**Artist**: red letter diary 
 
-**Track**: 정글의 한 (JUNGLE HAN) | 23 May / 2026
+**Track**: Even if it kills me
 
-Last updated at 7/11/2026, 7:07:33 PM
+Last updated at 7/11/2026, 7:10:23 PM
