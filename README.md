@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EKPUGiafYA4Da7Pr-qOIBeA-t500x500.jpg">](https://soundcloud.com/vihefoie/causeeffect)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz5Hg0zC7HaAgEgO-R46yzA-t500x500.jpg">](https://soundcloud.com/lynyou/idc)
 
-**Artist**: vihe, stya 
+**Artist**: lynU 
 
-**Track**: cause&effect w/ stya
+**Track**: Tell me prod me
 
-Last updated at 7/11/2026, 7:11:28 PM
+Last updated at 7/11/2026, 8:59:01 PM
