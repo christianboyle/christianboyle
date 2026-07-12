@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3zLwatp0vnQ7rT4O-3BXebQ-t500x500.jpg">](https://soundcloud.com/aresklas/is-this-rave-enough-aresklas-remix?in=saxurn/sets/in-the-stu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDQ6aI2VzM9C76KD-Iukfow-t500x500.png">](https://soundcloud.com/krypttofficial/fred-again-skepta-d-double-e-victory-lap-555?in=saxurn/sets/in-the-stu)
 
-**Artist**: Aresklas, Darane, Efecta 
+**Artist**: KRYPTT 
 
-**Track**: Is This Rave ENOUGH (Aresklas REMIX) [Free Dwnld]
+**Track**: Fred Again, Skepta, D Double E - VICTORY LAP 555 (KRYPTT FLIP)
 
-Last updated at 7/12/2026, 12:02:32 PM
+Last updated at 7/12/2026, 12:05:32 PM
