@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQmxCggq4OzPBky-LFualA-t500x500.jpg">](https://soundcloud.com/rvstyy/ion-like-that-fuck-you-ho?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-F7Ucy8cwLs8FYrLQ-5DecGQ-t500x500.png">](https://soundcloud.com/zelvaxoxo/idku-w-starxvi-cheeto-starry-minok0-00sev-lynu?in=saxurn/sets/overflow)
 
-**Artist**: rvsty (prod. 2ukko) 
+**Artist**: Zelva, starxvi, cheeto, starry, minok0, 00sev 
 
-**Track**: ion like that (lyrics in desc)
+**Track**: IdkU w/ starxvi, cheeto, starry, minok0, 00sev (LynU) Out on all PLATS
 
-Last updated at 7/12/2026, 3:46:32 PM
+Last updated at 7/12/2026, 3:48:34 PM
