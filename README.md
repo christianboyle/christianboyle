@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DHUGjhmrCH10UGG8-dWqurQ-t500x500.jpg">](https://soundcloud.com/sexy-keksy/we-are-charlie-kirk-hyperpop?in=saxurn/sets/blobby-chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ctfvhfi4KKhqdtMX-tEwB1g-t500x500.png">](https://soundcloud.com/starxvi/one-more-time?in=saxurn/sets/blobby-chill)
 
-**Artist**: Lil Kirk 
+**Artist**: starxvi 
 
-**Track**: We Are Charlie Kirk (hyperpop remix)
+**Track**: one more time w/ entri [cxrter x jolst]
 
-Last updated at 7/12/2026, 12:15:17 PM
+Last updated at 7/12/2026, 12:17:12 PM
