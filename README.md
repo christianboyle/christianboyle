@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz5Hg0zC7HaAgEgO-R46yzA-t500x500.jpg">](https://soundcloud.com/lynyou/idc?in=saxurn/sets/small-fortune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kVDIX4wGjL3oaNEV-rVjsAw-t500x500.png">](https://soundcloud.com/willatkinson/ebtg-missing-will-atkinson?in=saxurn/sets/small-fortune)
 
-**Artist**: lynU 
+**Artist**: Will Atkinson 
 
-**Track**: Tell me prod me
+**Track**: EBTG - Missing (Will Atkinson Bootleg)
 
-Last updated at 7/12/2026, 9:05:16 AM
+Last updated at 7/12/2026, 9:07:31 AM
