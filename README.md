@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000165772148-yeew75-t500x500.jpg">](https://soundcloud.com/oskardnz/force-styles-feat-mc-junior-pacific-sun-dj-oskar-remix?in=saxurn/sets/the-crys)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9OKczwxXszNh3SPb-gEYQLA-t500x500.jpg">](https://soundcloud.com/geomcd/survivor-geo-mcd?in=saxurn/sets/the-crys)
 
-**Artist**: DJ Oskar 
+**Artist**: GEO MCD 
 
-**Track**: Force & Styles Feat. MC Junior - Pacific sun Dj Oskar remix
+**Track**: Survivor - Geo McD
 
-Last updated at 7/12/2026, 10:35:20 AM
+Last updated at 7/12/2026, 10:41:35 AM
