@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgnvWlMrQ7JVzhOa-GzAo9A-t500x500.png">](https://soundcloud.com/swankiedj/adhd?in=saxurn/sets/blobby-chill)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MGOjVZ6ObKbThIbb-wvYVkw-t500x500.jpg">](https://soundcloud.com/notsegan/chris-lake-skrillex-la-noche?in=saxurn/sets/blobby-chill)
 
-**Artist**: Swankie DJ 
+**Artist**: Chris Lake, Skrillex, ANITA B QUEEN, Segan 
 
-**Track**: ADHD
+**Track**: Chris Lake, Skrillex, ANITA B QUEEN - LA NOCHE (Segan Remix)
 
-Last updated at 7/12/2026, 2:04:52 PM
+Last updated at 7/12/2026, 2:08:15 PM
