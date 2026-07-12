@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Q3cjAz9r92MUqsdz-9spz0w-t500x500.jpg">](https://soundcloud.com/jmau5_jesse/fateofophelia?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura?in=saxurn/sets/overflow)
 
-**Artist**: JMAU5 
+**Artist**: Virtual Riot, Eliminate, Crumb Pit 
 
-**Track**: Taylor Swift - The Fate of Ophelia (JMAU5 X DYKOTOMI Flip) [Free DL]
+**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
 
-Last updated at 7/12/2026, 6:26:09 PM
+Last updated at 7/12/2026, 6:28:24 PM
