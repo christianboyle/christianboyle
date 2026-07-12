@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Bh2c6saDEvV1PbVp-5ZlLAA-t500x500.jpg">](https://soundcloud.com/exilderschatten/f4c58eaa-8796-457c-a710-5d8007e76413)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLaqCkcKruLyyZY6-ykNbYQ-t500x500.jpg">](https://soundcloud.com/ih8sev/slaughter?in=saxurn/sets/small-fortune)
 
-**Artist**: Exil der Schatten 
+**Artist**: 00sev, starry, satire 
 
-**Track**: BACK TO BEFORE⠀[FREE DL]
+**Track**: slaughter🔪w/ starry + satire (starxvi + arto)
 
-Last updated at 7/12/2026, 7:42:06 AM
+Last updated at 7/12/2026, 9:02:26 AM
