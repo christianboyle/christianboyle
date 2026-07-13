@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyKhNV2yvysx4Xl3-IZvmrA-t500x500.png">](https://soundcloud.com/sachsentrance/lil-peep-right-here-dj-zugzwang-edit-digitalstreammaster-3?in=saxurn/sets/overflow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura)
 
-**Artist**: DJ Zugzwang 
+**Artist**: Virtual Riot, Eliminate, Crumb Pit 
 
-**Track**: Lil Peep - Right Here (DJ Zugzwang Edit) [ST021]
+**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
 
-Last updated at 7/12/2026, 7:23:43 PM
+Last updated at 7/13/2026, 6:35:26 AM
