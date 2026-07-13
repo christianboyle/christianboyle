@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xB76xIy2ErhmlOf6-S0ekSw-t500x500.png">](https://soundcloud.com/rumora/euroclub-alarma-rumora-remix-1?in=saxurn/sets/small-fortune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-npPB0RzWN9Yzfblw-oDLGXA-t500x500.jpg">](https://soundcloud.com/mugentenshin/getthatalot?in=saxurn/sets/small-fortune)
 
-**Artist**: EUROCLUB, RUMORA 
+**Artist**: Muqgen, imnotvrycreative 
 
-**Track**: EUROCLUB - ALARMA (Rumora Remix)
+**Track**: GET THAT A LOT (PROD. RAKKSTARR VIVA)
 
-Last updated at 7/13/2026, 1:58:34 PM
+Last updated at 7/13/2026, 2:02:29 PM
