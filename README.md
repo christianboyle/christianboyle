@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-npPB0RzWN9Yzfblw-oDLGXA-t500x500.jpg">](https://soundcloud.com/mugentenshin/getthatalot?in=saxurn/sets/small-fortune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7BmT9PZeW0bjDzt-lqa7gA-t500x500.png">](https://soundcloud.com/beetlejuke/beetlejuke-prg_404-1?in=saxurn/sets/small-fortune)
 
-**Artist**: Muqgen, imnotvrycreative 
+**Artist**: Beetlejuke 
 
-**Track**: GET THAT A LOT (PROD. RAKKSTARR VIVA)
+**Track**: Beetlejuke - PRG_404
 
-Last updated at 7/13/2026, 2:02:29 PM
+Last updated at 7/13/2026, 2:04:34 PM
