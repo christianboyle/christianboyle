@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0A5lsk4jGps6p1Oi-mNSq3Q-t500x500.png">](https://soundcloud.com/crumbpitmusic/virtual-riot-eliminate-aura)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz5Hg0zC7HaAgEgO-R46yzA-t500x500.jpg">](https://soundcloud.com/lynyou/idc?in=saxurn/sets/small-fortune)
 
-**Artist**: Virtual Riot, Eliminate, Crumb Pit 
+**Artist**: lynU 
 
-**Track**: virtual riot & eliminate - aura farming (crumb pit remix)
+**Track**: Tell me prod me
 
-Last updated at 7/13/2026, 6:35:26 AM
+Last updated at 7/13/2026, 6:37:05 AM
