@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oojUQR5tV3jenrN5-VFy0CA-t500x500.png">](https://soundcloud.com/foxela/anybody?in=saxurn/sets/pain-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8YR723mh9LTfirF-G6HxGw-t500x500.png">](https://soundcloud.com/ketamakina/retraced?in=saxurn/sets/pain-101)
 
-**Artist**: Foxela, Tanfa 
+**Artist**: Ketamakina 
 
-**Track**: Skrillex, ISOxo - Anybody (Foxela & Tanfa Remix)
+**Track**: Nurko & Haliene - Retraced (Ketamakina Rmx)
 
-Last updated at 7/13/2026, 2:13:14 PM
+Last updated at 7/13/2026, 2:15:39 PM
