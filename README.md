@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e8YR723mh9LTfirF-G6HxGw-t500x500.png">](https://soundcloud.com/ketamakina/retraced?in=saxurn/sets/pain-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvAEVLGF1NK73NwQ-IJtobw-t500x500.png">](https://soundcloud.com/hemi-wav/galaxies-expanding?in=saxurn/sets/pain-101)
 
-**Artist**: Ketamakina 
+**Artist**: Smokestax 
 
-**Track**: Nurko & Haliene - Retraced (Ketamakina Rmx)
+**Track**: Galaxies Expanding
 
-Last updated at 7/13/2026, 2:15:39 PM
+Last updated at 7/13/2026, 2:19:29 PM
