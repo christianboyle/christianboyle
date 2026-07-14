@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D8WKcfzYka8z0d6z-UysmKQ-t500x500.png">](https://soundcloud.com/darnturner/zoe-wees-dean-lewis-learn-to)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz5Hg0zC7HaAgEgO-R46yzA-t500x500.jpg">](https://soundcloud.com/lynyou/idc?in=saxurn/sets/small-fortune)
 
-**Artist**: DarnTurner 
+**Artist**: lynU 
 
-**Track**: Zoe Wees & Dean Lewis -  Learn To Love - DarnTurner - 25 -
+**Track**: Tell me prod me
 
-Last updated at 7/14/2026, 6:36:44 AM
+Last updated at 7/14/2026, 6:39:39 AM
