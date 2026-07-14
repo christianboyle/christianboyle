@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lvAEVLGF1NK73NwQ-IJtobw-t500x500.png">](https://soundcloud.com/hemi-wav/galaxies-expanding?in=saxurn/sets/pain-101)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-D8WKcfzYka8z0d6z-UysmKQ-t500x500.png">](https://soundcloud.com/darnturner/zoe-wees-dean-lewis-learn-to)
 
-**Artist**: Smokestax 
+**Artist**: DarnTurner 
 
-**Track**: Galaxies Expanding
+**Track**: Zoe Wees & Dean Lewis -  Learn To Love - DarnTurner - 25 -
 
-Last updated at 7/13/2026, 2:19:29 PM
+Last updated at 7/14/2026, 6:36:44 AM
