@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHy46hYXeqcjUs9w-KroKSQ-t500x500.jpg">](https://soundcloud.com/wippenberg/tag-team-whoomp-there-it-is-wippenberg-remix-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIrgSyKUxDyQATOK-WG2xGg-t500x500.png">](https://soundcloud.com/eufeion/callofthewild)
 
-**Artist**: wippenberg 
+**Artist**: Eufeion 
 
-**Track**: Tag Team - Whoomp! There It Is (WIPPENBERG REMIX) [free DL]
+**Track**: Call of The Wild - OUT NOW!!
 
-Last updated at 7/15/2026, 6:54:36 PM
+Last updated at 7/15/2026, 6:58:51 PM
