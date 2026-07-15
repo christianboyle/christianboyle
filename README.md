@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sQs5wAAUQpGCGnS6-DNfQZw-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/future-is-made-1?in=hardcoreenergy/sets/big-taste-ep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLaqCkcKruLyyZY6-ykNbYQ-t500x500.jpg">](https://soundcloud.com/ih8sev/slaughter?in=saxurn/sets/small-fortune)
 
-**Artist**: FFF 
+**Artist**: 00sev, starry, satire 
 
-**Track**: Future Is Made
+**Track**: slaughter🔪w/ starry + satire (starxvi + arto)
 
-Last updated at 7/15/2026, 7:19:09 AM
+Last updated at 7/15/2026, 4:28:47 PM
