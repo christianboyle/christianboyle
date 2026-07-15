@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NLaqCkcKruLyyZY6-ykNbYQ-t500x500.jpg">](https://soundcloud.com/ih8sev/slaughter?in=saxurn/sets/small-fortune)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mz5Hg0zC7HaAgEgO-R46yzA-t500x500.jpg">](https://soundcloud.com/lynyou/idc?in=saxurn/sets/small-fortune)
 
-**Artist**: 00sev, starry, satire 
+**Artist**: lynU 
 
-**Track**: slaughter🔪w/ starry + satire (starxvi + arto)
+**Track**: Tell me prod me
 
-Last updated at 7/15/2026, 4:28:47 PM
+Last updated at 7/15/2026, 4:32:12 PM
