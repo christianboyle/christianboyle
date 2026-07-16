@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EGdawMXWttC2NmFp-8f5JeA-t500x500.jpg">](https://soundcloud.com/euphee/gem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyHwYuOdtgqhsFZm-eibSRQ-t500x500.jpg">](https://soundcloud.com/essentialdelightsrecords/astral-bandit-crystalline)
 
-**Artist**: euphee, Convexity, Ace Aura, Nytrix 
+**Artist**: Astral Bandit 
 
-**Track**: shattered gem ΘΔ scratched by euphee + convexity
+**Track**: Astral Bandit - Crystalline Chasm
 
-Last updated at 7/16/2026, 7:52:51 AM
+Last updated at 7/16/2026, 7:56:36 AM
