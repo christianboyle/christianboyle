@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M7ChdIy7e9jlrNKG-l87QvQ-t500x500.jpg">](https://soundcloud.com/tritop-570621945/cloud-nine-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EGdawMXWttC2NmFp-8f5JeA-t500x500.jpg">](https://soundcloud.com/euphee/gem)
 
-**Artist**: TriTop 
+**Artist**: euphee, Convexity, Ace Aura, Nytrix 
 
-**Track**: Cloud nine.mp3
+**Track**: shattered gem ΘΔ scratched by euphee + convexity
 
-Last updated at 7/16/2026, 7:50:41 AM
+Last updated at 7/16/2026, 7:52:51 AM
