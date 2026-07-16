@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kIrgSyKUxDyQATOK-WG2xGg-t500x500.png">](https://soundcloud.com/eufeion/callofthewild)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yUJGK1I6Z5sbOnSL-zTzQOg-t500x500.png">](https://soundcloud.com/barongfamily/rexy-dexy-automatic)
 
-**Artist**: Eufeion 
+**Artist**: REXY=DEXY 
 
-**Track**: Call of The Wild - OUT NOW!!
+**Track**: REXY=DEXY - Automatic
 
-Last updated at 7/15/2026, 6:58:51 PM
+Last updated at 7/15/2026, 7:00:11 PM
