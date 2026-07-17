@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nEOszeftd1t9S90z-pA1Z6g-t500x500.jpg">](https://soundcloud.com/user-419900097/the-bounce-brothers-run-away)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZVGQ87rkHS9scVwE-oImRow-t500x500.jpg">](https://soundcloud.com/mindsplitter/the-one-that-whispers-1)
 
-**Artist**: Xpee - The Bounce Brothers 
+**Artist**: Mind Splitter 
 
-**Track**: The Bounce Brothers - Run Away With Me [Sample]
+**Track**: The One That Whispers
 
-Last updated at 7/17/2026, 9:22:27 AM
+Last updated at 7/17/2026, 9:23:27 AM
