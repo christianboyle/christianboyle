@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oHmcYJSm5yU1EY46-J2yTdA-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/bounce-jackerz-mystery-land)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7BmT9PZeW0bjDzt-lqa7gA-t500x500.png">](https://soundcloud.com/beetlejuke/beetlejuke-prg_404-1)
 
-**Artist**: Bounce Jackerz 
+**Artist**: Beetlejuke 
 
-**Track**: Bounce Jackerz - Mystery Land
+**Track**: Beetlejuke - PRG_404
 
-Last updated at 7/17/2026, 3:56:26 PM
+Last updated at 7/18/2026, 7:33:30 AM
