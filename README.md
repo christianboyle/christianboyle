@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyHwYuOdtgqhsFZm-eibSRQ-t500x500.jpg">](https://soundcloud.com/essentialdelightsrecords/astral-bandit-crystalline)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyHwYuOdtgqhsFZm-eibSRQ-t500x500.jpg">](https://soundcloud.com/essentialdelightsrecords/szoliver-expansion-network)
 
-**Artist**: Astral Bandit 
+**Artist**: szoliver 
 
-**Track**: Astral Bandit - Crystalline Chasm
+**Track**: szoliver - Expansion Network
 
-Last updated at 7/18/2026, 11:19:41 AM
+Last updated at 7/18/2026, 2:58:38 PM
