@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l7BmT9PZeW0bjDzt-lqa7gA-t500x500.png">](https://soundcloud.com/beetlejuke/beetlejuke-prg_404-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdRHYjGHblJwfTNz-SFQCAA-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/dj-tritop-cloud-9-darren)
 
-**Artist**: Beetlejuke 
+**Artist**: Darren Glancy 
 
-**Track**: Beetlejuke - PRG_404
+**Track**: DJ TriTop - Cloud 9 (Darren Glancy Bootleg) Free Download soon
 
-Last updated at 7/18/2026, 7:33:30 AM
+Last updated at 7/18/2026, 7:35:05 AM
