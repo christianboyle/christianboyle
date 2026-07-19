@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JXMrYztrj2f0VEG-6U7YPg-t500x500.jpg">](https://soundcloud.com/marc-armaz-armstrong/01-no-title-743923867)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBAznQ3XKbPyCYGy-b4VGcA-t500x500.jpg">](https://soundcloud.com/dnzrecords/jo-e-dex-dont-want-you)
 
-**Artist**: DJ ARMAZ 🎧 
+**Artist**: Jo E Dex 
 
-**Track**: ARMAZ / AGENT BLUE - Empyre Fantasy 2024 (Remix) In loving memory of Craig James Brown 1986 - 2006
+**Track**: Jo E Dex - Don't Want You
 
-Last updated at 7/19/2026, 7:45:48 AM
+Last updated at 7/19/2026, 9:52:21 AM
