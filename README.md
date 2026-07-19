@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBAznQ3XKbPyCYGy-b4VGcA-t500x500.jpg">](https://soundcloud.com/dnzrecords/jo-e-dex-dont-want-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdRHYjGHblJwfTNz-SFQCAA-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/dj-tritop-cloud-9-darren)
 
-**Artist**: Jo E Dex 
+**Artist**: Darren Glancy 
 
-**Track**: Jo E Dex - Don't Want You
+**Track**: DJ TriTop - Cloud 9 (Darren Glancy Bootleg) Free Download soon
 
-Last updated at 7/19/2026, 9:52:21 AM
+Last updated at 7/19/2026, 9:54:36 AM
