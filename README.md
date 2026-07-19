@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UGBgdQ7DDudE7JC2-CCnWxg-t500x500.jpg">](https://soundcloud.com/undefined/hysteria-rave-to-the-grave-northeast-makina-anthems-2024-dj-browny)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-B6dryRFZWv3tIVm2-onfztA-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-jonesa-fantasies)
 
-**Artist**: DJ BROWNY !!!!!!!!!!!!!!!!!!! 
+**Artist**: Agent Blue 
 
-**Track**: HYSTERIA & RAVE TO THE GRAVE NORTHEAST MAKINA ANTHEMS 2024 - DJ BROWNY
+**Track**: Agent Blue & Jones'a - Fantasies
 
-Last updated at 7/19/2026, 7:21:53 AM
+Last updated at 7/19/2026, 7:23:48 AM
