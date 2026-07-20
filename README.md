@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JXMrYztrj2f0VEG-6U7YPg-t500x500.jpg">](https://soundcloud.com/marc-armaz-armstrong/01-no-title-743923867)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pGww83KgM08FvwsU-5mwnYA-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/jgs-intent-make-me-feel)
 
-**Artist**: DJ ARMAZ 🎧 
+**Artist**: Rewired Records 
 
-**Track**: ARMAZ / AGENT BLUE - Empyre Fantasy 2024 (Remix) In loving memory of Craig James Brown 1986 - 2006
+**Track**: JGS & INTENT - Make Me Feel
 
-Last updated at 7/19/2026, 7:07:13 PM
+Last updated at 7/19/2026, 7:08:38 PM
