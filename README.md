@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xyHwYuOdtgqhsFZm-eibSRQ-t500x500.jpg">](https://soundcloud.com/essentialdelightsrecords/astral-bandit-crystalline?in=saxurn/sets/hole-in-none/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JXMrYztrj2f0VEG-6U7YPg-t500x500.jpg">](https://soundcloud.com/marc-armaz-armstrong/01-no-title-743923867)
 
-**Artist**: Astral Bandit 
+**Artist**: DJ ARMAZ 🎧 
 
-**Track**: Astral Bandit - Crystalline Chasm
+**Track**: ARMAZ / AGENT BLUE - Empyre Fantasy 2024 (Remix) In loving memory of Craig James Brown 1986 - 2006
 
-Last updated at 7/19/2026, 10:46:04 AM
+Last updated at 7/19/2026, 7:07:13 PM
