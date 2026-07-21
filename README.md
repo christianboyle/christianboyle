@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PmGfapYIhXMarxKD-30buTA-t500x500.png">](https://soundcloud.com/heyimnire/intouch)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WZ41v8EoXEGBWC95-m2bcYQ-t500x500.jpg">](https://soundcloud.com/nohypemusicofficial/astro-eric-bounce)
 
-**Artist**: NIRE 
+**Artist**: Astro Eric 
 
-**Track**: in touch ☆~°`
+**Track**: Astro Eric  - Bounce
 
-Last updated at 7/20/2026, 7:09:31 PM
+Last updated at 7/20/2026, 7:19:03 PM
