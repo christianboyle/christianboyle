@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YImCZpyAiFhWikoo-QfaX1g-t500x500.jpg">](https://soundcloud.com/41rossco/s27)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDmxg1VRLBANTegt-3JvIrw-t500x500.jpg">](https://soundcloud.com/asaubeats/damage)
 
-**Artist**: DJ.Rossco 
+**Artist**: asáu 
 
-**Track**: 21.7.26
+**Track**: damage
 
-Last updated at 7/21/2026, 7:58:04 AM
+Last updated at 7/21/2026, 8:38:37 AM
