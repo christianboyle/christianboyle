@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MLaLnAjj3DUPRofq-wQiEXg-t500x500.jpg">](https://soundcloud.com/alyxtrick/all-my-friends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxGtAY4zSypHzahS-lBmCDQ-t500x500.jpg">](https://soundcloud.com/royalflushmd/royalflu-h-x-hexed-winner)
 
-**Artist**: Alyx Trick 
+**Artist**: ROYALFLU$H, HEXED 
 
-**Track**: All My Friends
+**Track**: ROYALFLU$H x HEXED - WINNER
 
-Last updated at 7/20/2026, 7:48:17 AM
+Last updated at 7/20/2026, 7:06:41 PM
