@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VUVB5B4BpXb1PISY-LYVbJA-t500x500.jpg">](https://soundcloud.com/djbastydy/victory-lap-prev)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YImCZpyAiFhWikoo-QfaX1g-t500x500.jpg">](https://soundcloud.com/41rossco/s27)
 
-**Artist**: Basty Dy, Fred Again, PlaqueBoyMax, and Skepta X CHAMOS 
+**Artist**: DJ.Rossco 
 
-**Track**: Victory Lap (Basty Dy Edit) [Preview Only]
+**Track**: 21.7.26
 
-Last updated at 7/21/2026, 7:56:59 AM
+Last updated at 7/21/2026, 7:58:04 AM
