@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxGtAY4zSypHzahS-lBmCDQ-t500x500.jpg">](https://soundcloud.com/royalflushmd/royalflu-h-x-hexed-winner)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-y1b5KriysPLW0hiH-lL1uXQ-t500x500.jpg">](https://soundcloud.com/rynocerousmusic/drake-jumpman-ft-future-x-1)
 
-**Artist**: ROYALFLU$H, HEXED 
+**Artist**: RYNO 
 
-**Track**: ROYALFLU$H x HEXED - WINNER
+**Track**: Drake - Jumpman ft Future x Everyone Sounds Like - Mindset (Ryno edit)
 
-Last updated at 7/20/2026, 7:06:41 PM
+Last updated at 7/20/2026, 7:08:31 PM
