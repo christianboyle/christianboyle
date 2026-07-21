@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EDmxg1VRLBANTegt-3JvIrw-t500x500.jpg">](https://soundcloud.com/asaubeats/damage)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NjHqGVuHdfktYBws-skpWSw-t500x500.jpg">](https://soundcloud.com/bondzeye/sipping-t)
 
-**Artist**: asáu 
+**Artist**: Bondzeye 
 
-**Track**: damage
+**Track**: XXX Tentacion - Sipping  Tea (Bondzeye remix) <Free DL>
 
-Last updated at 7/21/2026, 7:22:52 AM
+Last updated at 7/21/2026, 7:55:59 AM
