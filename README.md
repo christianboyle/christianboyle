@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jPIAypn8Ov7yK3lF-Jtg3YA-t500x500.png">](https://soundcloud.com/notzo/ian-van-dahl-castles-in-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X1zkUvBKEusUtrST-F19FKg-t500x500.png">](https://soundcloud.com/satoshijpn/blowremix)
 
-**Artist**: NOTZO 
+**Artist**:  Ke$ha 
 
-**Track**: Ian Van Dahl - Castles In The Sky (Notzo 2026 Remix) [FREE DOWNLOAD]
+**Track**: Ke$ha - Blow (Ezra Hazard & SATOSHI Remix)
 
-Last updated at 7/22/2026, 7:21:40 AM
+Last updated at 7/23/2026, 7:24:54 AM
