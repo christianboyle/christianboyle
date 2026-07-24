@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vau0MLMpKWgoty1E-RO93fg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hard-destiny-headrush-acid)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bNYggvV6SZ8rCBNA-PfXyzg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/coone-psycho)
 
-**Artist**: Hard Destiny 
+**Artist**: Coone 
 
-**Track**: Hard Destiny - Headrush (Acid Reign)
+**Track**: Coone - PSYCHO
 
-Last updated at 7/24/2026, 10:19:06 AM
+Last updated at 7/24/2026, 10:20:06 AM
