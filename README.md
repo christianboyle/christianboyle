@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MAcN2oMUXcJoqTfQ-UQlm5g-t500x500.jpg">](https://soundcloud.com/mousaitherealest/ball-so-hard-mousai-urboin8?in=saxurn/sets/vizsistor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6BQVp4MpfKF7yDA5-fFwbBg-t500x500.jpg">](https://soundcloud.com/dj_ghepard/rihanna-x-push-we-found-love?in=saxurn/sets/vizsistor)
 
-**Artist**: MOUSAI & Urboin8 
+**Artist**: DJ GHEPARD 
 
-**Track**: BALL SO HARD (Mousai & UrBoiN8)
+**Track**: Rihanna x Push - We Found Love In A Strange World (DJ GHEPARD Mix)
 
-Last updated at 7/24/2026, 3:09:34 PM
+Last updated at 7/24/2026, 3:12:59 PM
