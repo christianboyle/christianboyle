@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CbsMDvb9nUVzoFGv-yUvyZw-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-its-a-nah)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdRHYjGHblJwfTNz-SFQCAA-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/dj-tritop-cloud-9-darren?in=saxurn/sets/vizsistor)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: Darren Glancy 
 
-**Track**: Dj Ainzi - It's A Nah
+**Track**: DJ TriTop - Cloud 9 (Darren Glancy Bootleg) Free Download soon
 
-Last updated at 7/24/2026, 11:21:32 AM
+Last updated at 7/24/2026, 12:13:47 PM
