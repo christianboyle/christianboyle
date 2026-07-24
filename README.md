@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AevzylDcB1Xca6fF-PepPqA-t500x500.jpg">](https://soundcloud.com/only-the-rave-music/otr023sd-ezkill-feel-alive)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwo3aLAFMayN1DxY-IIWgGA-t500x500.png">](https://soundcloud.com/crucialwav/beskar)
 
-**Artist**: EzKill 
+**Artist**: Crucial 
 
-**Track**: OTR023SD / Ezkill - Feel Alive
+**Track**: BESKAR
 
-Last updated at 7/24/2026, 10:23:52 AM
+Last updated at 7/24/2026, 10:25:07 AM
