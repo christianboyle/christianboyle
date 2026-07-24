@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-I2nOVS5EAUsMEpbv-rIRjlA-t500x500.jpg">](https://soundcloud.com/deanmichaelburns89/dj-dmb-cmk-say-you-love-me?in=saxurn/sets/visualsistor/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15zmlkos38oJZOA4-k3ixWw-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-changes?in=saxurn/sets/visualsistor/)
 
-**Artist**: DMB Makina Productions 
+**Artist**: The Bounce Brothers 
 
-**Track**: Dj Dmb & Cmk - Say You Love Me
+**Track**: The Bounce Brothers - Changes
 
-Last updated at 7/24/2026, 9:56:26 AM
+Last updated at 7/24/2026, 9:57:29 AM
