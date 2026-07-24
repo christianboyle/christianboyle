@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aqBnyGRuFhMfNeO4-6GM29Q-t500x500.jpg">](https://soundcloud.com/anatolol/dont-take-me-home-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OG3d35EZjeM2Q7bD-ShWY1g-t500x500.png">](https://soundcloud.com/presentlylifted/zero-point-shake)
 
-**Artist**: Anatol 
+**Artist**: zero point 
 
-**Track**: Don’t Take me HOME - ANATOL (FREE DL)
+**Track**: zero point - Shake
 
-Last updated at 7/24/2026, 10:03:54 AM
+Last updated at 7/24/2026, 10:05:03 AM
