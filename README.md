@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwo3aLAFMayN1DxY-IIWgGA-t500x500.png">](https://soundcloud.com/crucialwav/beskar?in=saxurn/sets/vizsistor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OG3d35EZjeM2Q7bD-ShWY1g-t500x500.png">](https://soundcloud.com/presentlylifted/zero-point-shake?in=saxurn/sets/vizsistor)
 
-**Artist**: Crucial 
+**Artist**: zero point 
 
-**Track**: BESKAR
+**Track**: zero point - Shake
 
-Last updated at 7/24/2026, 3:16:54 PM
+Last updated at 7/24/2026, 3:20:09 PM
