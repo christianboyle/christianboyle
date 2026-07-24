@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fA84Ej44qxWv5KyV-ZDVSTA-t500x500.jpg">](https://soundcloud.com/bassrush/chozen-hit-you-with-the-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fno58RxnThkHg2M2-iWtpzw-t500x500.jpg">](https://soundcloud.com/dash_beats/dash-beats-the-jury-140-fmin-1)
 
-**Artist**: Bassrush 
+**Artist**: Dash Beats 
 
-**Track**: CHOZEN - Hit You With The
+**Track**: Dash Beats - The Jury
 
-Last updated at 7/24/2026, 10:07:25 AM
+Last updated at 7/24/2026, 10:08:45 AM
