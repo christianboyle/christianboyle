@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ae0yPgpyDDgUyKAh-X15vmA-t500x500.jpg">](https://soundcloud.com/paul-maxwell-476935967/bouncy-vibes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-omlZCyV6CrFReX5X-L5ejpA-t500x500.jpg">](https://soundcloud.com/brainable/tynan-his-name-is-brainable)
 
-**Artist**: MAXI 
+**Artist**: Brainable 
 
-**Track**: BOUNCY VIBES...
+**Track**: TYNAN - his name is (Brainable Remix) [FREE DL]
 
-Last updated at 7/23/2026, 8:52:40 PM
+Last updated at 7/23/2026, 8:54:16 PM
