@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z3NtlTml9JdA16fc-wzcyUQ-t500x500.png">](https://soundcloud.com/djthera/driftaway/s-2oyhcE6gFa3?in=saxurn/sets/hole-in-none/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJ8p0BqCEgKZvmBu-WT6S7w-t500x500.png">](https://soundcloud.com/blu_beats/caprice-classic-3?in=saxurn/sets/visualsistor/)
 
-**Artist**: Dj Thera 
+**Artist**: blu 
 
-**Track**: TPCY022 Dj Thera - Drift Away
+**Track**: Caprice Classic
 
-Last updated at 7/24/2026, 9:43:38 AM
+Last updated at 7/24/2026, 9:44:58 AM
