@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X1zkUvBKEusUtrST-F19FKg-t500x500.png">](https://soundcloud.com/satoshijpn/blowremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ae0yPgpyDDgUyKAh-X15vmA-t500x500.jpg">](https://soundcloud.com/paul-maxwell-476935967/bouncy-vibes)
 
-**Artist**:  Ke$ha 
+**Artist**: MAXI 
 
-**Track**: Ke$ha - Blow (Ezra Hazard & SATOSHI Remix)
+**Track**: BOUNCY VIBES...
 
-Last updated at 7/23/2026, 7:24:54 AM
+Last updated at 7/23/2026, 8:52:40 PM
