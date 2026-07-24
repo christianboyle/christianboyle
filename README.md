@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJ8p0BqCEgKZvmBu-WT6S7w-t500x500.png">](https://soundcloud.com/blu_beats/caprice-classic-3?in=saxurn/sets/vizsistor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MAcN2oMUXcJoqTfQ-UQlm5g-t500x500.jpg">](https://soundcloud.com/mousaitherealest/ball-so-hard-mousai-urboin8?in=saxurn/sets/vizsistor)
 
-**Artist**: blu 
+**Artist**: MOUSAI & Urboin8 
 
-**Track**: Caprice Classic
+**Track**: BALL SO HARD (Mousai & UrBoiN8)
 
-Last updated at 7/24/2026, 3:05:59 PM
+Last updated at 7/24/2026, 3:09:34 PM
