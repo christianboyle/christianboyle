@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fno58RxnThkHg2M2-iWtpzw-t500x500.jpg">](https://soundcloud.com/dash_beats/dash-beats-the-jury-140-fmin-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vau0MLMpKWgoty1E-RO93fg-t500x500.jpg">](https://soundcloud.com/dirtyworkzofficial/hard-destiny-headrush-acid)
 
-**Artist**: Dash Beats 
+**Artist**: Hard Destiny 
 
-**Track**: Dash Beats - The Jury
+**Track**: Hard Destiny - Headrush (Acid Reign)
 
-Last updated at 7/24/2026, 10:08:45 AM
+Last updated at 7/24/2026, 10:19:06 AM
