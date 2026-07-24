@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OaRyMzNzEiZCBzK2-hgN18g-t500x500.jpg">](https://soundcloud.com/officialpedromc/pedro-im-alive-2026-revamp?in=saxurn/sets/vizsistor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdRHYjGHblJwfTNz-SFQCAA-t500x500.jpg">](https://soundcloud.com/darren-glancy-213424437/dj-tritop-cloud-9-darren?in=saxurn/sets/vizsistor)
 
-**Artist**: OfficialPedro 
+**Artist**: Darren Glancy 
 
-**Track**: Pedro - Im Alive [ 2026 Revamp ] Free Download
+**Track**: DJ TriTop - Cloud 9 (Darren Glancy Bootleg) Free Download soon
 
-Last updated at 7/24/2026, 11:09:08 AM
+Last updated at 7/24/2026, 11:12:47 AM
