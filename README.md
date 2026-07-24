@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GZw7p1EX2Is6LY2y-UqBNig-t500x500.jpg">](https://soundcloud.com/ethanmitchelldj/forever-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aqBnyGRuFhMfNeO4-6GM29Q-t500x500.jpg">](https://soundcloud.com/anatolol/dont-take-me-home-v2)
 
-**Artist**: ETHAN MITCHELL 
+**Artist**: Anatol 
 
-**Track**: FOREVER
+**Track**: Don’t Take me HOME - ANATOL (FREE DL)
 
-Last updated at 7/24/2026, 10:02:55 AM
+Last updated at 7/24/2026, 10:03:54 AM
