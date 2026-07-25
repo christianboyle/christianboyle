@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OG3d35EZjeM2Q7bD-ShWY1g-t500x500.png">](https://soundcloud.com/presentlylifted/zero-point-shake?in=saxurn/sets/vizsistor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0osSStMZj40vxrn4-fdcNKA-t500x500.png">](https://soundcloud.com/contact-ambraberlin/scole-luka-acid-heartbreak)
 
-**Artist**: zero point 
+**Artist**: Ambra 
 
-**Track**: zero point - Shake
+**Track**: SCOLE & SLEW/RATE  - Acid Heartbreak
 
-Last updated at 7/24/2026, 3:20:09 PM
+Last updated at 7/25/2026, 7:21:29 AM
