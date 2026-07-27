@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pJ8p0BqCEgKZvmBu-WT6S7w-t500x500.png">](https://soundcloud.com/blu_beats/caprice-classic-3?in=saxurn/sets/vizsistor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hwo3aLAFMayN1DxY-IIWgGA-t500x500.png">](https://soundcloud.com/crucialwav/beskar)
 
-**Artist**: blu 
+**Artist**: Crucial 
 
-**Track**: Caprice Classic
+**Track**: BESKAR
 
-Last updated at 7/26/2026, 6:19:19 PM
+Last updated at 7/27/2026, 7:15:33 AM
