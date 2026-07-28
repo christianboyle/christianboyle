@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szWjBUY2Luoq7J2o-pZxZyA-t500x500.jpg">](https://soundcloud.com/sqwurl/dancingisforbidden)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y6FTPKNgpX3cma58-mepc0Q-t500x500.jpg">](https://soundcloud.com/nothimusic/brick-2)
 
-**Artist**: SQWURL  
+**Artist**: Nothi. 
 
-**Track**: Dancing Is Forbidden
+**Track**: BRICK (Swell Times Brick Break remix)
 
-Last updated at 7/27/2026, 7:06:30 PM
+Last updated at 7/27/2026, 7:07:29 PM
