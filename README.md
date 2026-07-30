@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iRIumruheTvbTK2v-MWRV8Q-t500x500.jpg">](https://soundcloud.com/user-219822492/ryan-mccall-more-and-more)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yh8hzgok8uiEH0L5-PsB4Qg-t500x500.jpg">](https://soundcloud.com/jimmer-mcallister/jimmer-summer-dream-of-love)
 
-**Artist**: Ryan McCall 
+**Artist**: Jimmer • DJs Factory 
 
-**Track**: Ryan McCall - More And More ( Mambo Sunset Mix )
+**Track**: JIMMER - Summer Dream of Love 2026
 
-Last updated at 7/29/2026, 8:40:39 PM
+Last updated at 7/29/2026, 8:51:20 PM
