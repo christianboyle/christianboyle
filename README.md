@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Yh8hzgok8uiEH0L5-PsB4Qg-t500x500.jpg">](https://soundcloud.com/jimmer-mcallister/jimmer-summer-dream-of-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rRlIuSU03r1YuCkv-CzLg0g-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/chunkee-monkee-goes-bananas-4)
 
-**Artist**: Jimmer • DJs Factory 
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: JIMMER - Summer Dream of Love 2026
+**Track**: Chunkee Monkee Goes Bananas EP1: Healy Guest Mix
 
-Last updated at 7/29/2026, 8:51:20 PM
+Last updated at 7/30/2026, 7:35:09 AM
