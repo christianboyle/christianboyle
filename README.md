@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rRlIuSU03r1YuCkv-CzLg0g-t500x500.png">](https://soundcloud.com/boston_bounce_sessions/chunkee-monkee-goes-bananas-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6V6BLJ3kza8dy5cS-u8HEVA-t500x500.jpg">](https://soundcloud.com/eufeion/summer2026)
 
-**Artist**: ChunkeeMonkee_official 
+**Artist**: Eufeion 
 
-**Track**: Chunkee Monkee Goes Bananas EP1: Healy Guest Mix
+**Track**: [DOWNLOAD] Eufeion - 2026 Summer Showcase
 
-Last updated at 7/31/2026, 7:36:49 AM
+Last updated at 7/31/2026, 5:16:09 PM
