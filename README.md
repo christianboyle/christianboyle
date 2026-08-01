@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wycyWxlFyOyMy8p7-RkLNnA-t500x500.jpg">](https://soundcloud.com/jilli_music/what-u-sayin-w-past-noon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ithVYgSTnyGTnC9D-ulzmXw-t500x500.jpg">](https://soundcloud.com/bassurgence/widowmaker-1)
 
-**Artist**: JiLLi 
+**Artist**: Bassurgence 
 
-**Track**: JiLLi x PAST NOON - WHAT U SAYIN?
+**Track**: WIDOWMAKER
 
-Last updated at 8/1/2026, 9:13:51 AM
+Last updated at 8/1/2026, 9:15:01 AM
