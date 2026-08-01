@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OZkdB2LPRyuSyuSH-gjupNg-t500x500.png">](https://soundcloud.com/sound-playground/deletetheinternet-nukumori)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHRKevZp6mvsFDyu-oZFdNQ-t500x500.jpg">](https://soundcloud.com/undefined/chunkee-monkee-goes-639486664)
 
-**Artist**: Sound Playground, delete.the.internet, Nukumori 
+**Artist**: ChunkeeMonkee_official 
 
-**Track**: deletetheinternet, Nukumori - haunt.my.mind [SNT V.I]
+**Track**: Chunkee Monkee Goes Bananas EP21 GAZ SUMMERS
 
-Last updated at 8/1/2026, 10:08:29 AM
+Last updated at 8/1/2026, 10:09:29 AM
