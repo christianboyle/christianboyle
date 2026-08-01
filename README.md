@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRIZ02Nw6R3jziK5-A9ySsQ-t500x500.jpg">](https://soundcloud.com/undefined/lola-young-messy-zero-hypetekk-techno-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6DYGGb8GoINFpiD1-4stPDA-t500x500.jpg">](https://soundcloud.com/dustinhertz/dustin-hertz-kids-bootleg-mix)
 
-**Artist**: ZERO 
+**Artist**: Dustin Hertz 
 
-**Track**: Lola Young - Messy (ZERO & HypeTekk Techno Remix)
+**Track**: Dustin Hertz - Kids (Bootleg Mix)
 
-Last updated at 8/1/2026, 5:43:51 PM
+Last updated at 8/1/2026, 5:48:42 PM
