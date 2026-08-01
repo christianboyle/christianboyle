@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fkQTZNLlTKfw7eHY-uljI5A-t500x500.png">](https://soundcloud.com/deejaypotato/potato-underground-vibes-godshouse-anthem)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zRIZ02Nw6R3jziK5-A9ySsQ-t500x500.jpg">](https://soundcloud.com/undefined/lola-young-messy-zero-hypetekk-techno-remix)
 
-**Artist**: Potato 
+**Artist**: ZERO 
 
-**Track**: Potato - Underground Vibes (Godshouse Anthem)
+**Track**: Lola Young - Messy (ZERO & HypeTekk Techno Remix)
 
-Last updated at 8/1/2026, 5:42:05 PM
+Last updated at 8/1/2026, 5:43:51 PM
