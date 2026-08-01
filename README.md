@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z89zIjHdl2q6TC4z-Vy1MGw-t500x500.jpg">](https://soundcloud.com/bitbird/kissing-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3uGFabM5cIzweehW-sEpa5w-t500x500.jpg">](https://soundcloud.com/jjjacksen/jjjacksen-stop-go)
 
-**Artist**: Sam Day, Conni 
+**Artist**: jjjacksen 
 
-**Track**: KISSING U
+**Track**: jjjacksen - Stop & Go
 
-Last updated at 8/1/2026, 9:22:41 AM
+Last updated at 8/1/2026, 9:25:48 AM
