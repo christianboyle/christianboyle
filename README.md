@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-15zmlkos38oJZOA4-k3ixWw-t500x500.png">](https://soundcloud.com/dnzrecords/the-bounce-brothers-changes?in=saxurn/sets/hole-in-none)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JXMrYztrj2f0VEG-6U7YPg-t500x500.jpg">](https://soundcloud.com/marc-armaz-armstrong/01-no-title-743923867?in=saxurn/sets/hole-in-none)
 
-**Artist**: The Bounce Brothers 
+**Artist**: DJ ARMAZ 🎧 
 
-**Track**: The Bounce Brothers - Changes
+**Track**: ARMAZ / AGENT BLUE - Empyre Fantasy 2024 (Remix) In loving memory of Craig James Brown 1986 - 2006
 
-Last updated at 8/1/2026, 6:48:52 PM
+Last updated at 8/1/2026, 6:50:27 PM
