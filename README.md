@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6wa5r2jEesuz1dC5-T9ZmIg-t500x500.jpg">](https://soundcloud.com/wearestudio/janus-doyou-premiere)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8LMABHvcoS2y92dt-Ps0Clw-t500x500.jpg">](https://soundcloud.com/bankaji/deadline-2)
 
-**Artist**: STUDIO, Janus 
+**Artist**: BANkaJI 
 
-**Track**: Janus - doyou [Premiere]
+**Track**: Deadline
 
-Last updated at 8/1/2026, 10:00:03 AM
+Last updated at 8/1/2026, 10:01:03 AM
