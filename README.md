@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7JXMrYztrj2f0VEG-6U7YPg-t500x500.jpg">](https://soundcloud.com/marc-armaz-armstrong/01-no-title-743923867?in=saxurn/sets/hole-in-none)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCrq9Yk304SqQfUA-8zTAXg-t500x500.png">](https://soundcloud.com/denisdekay/nightshift-welcome-to-the-1)
 
-**Artist**: DJ ARMAZ 🎧 
+**Artist**: Denis Dekay 
 
-**Track**: ARMAZ / AGENT BLUE - Empyre Fantasy 2024 (Remix) In loving memory of Craig James Brown 1986 - 2006
+**Track**: Nightshift - Welcome To The 90's (Denis Dekay Schranz Edit) | Free DL
 
-Last updated at 8/1/2026, 6:50:27 PM
+Last updated at 8/1/2026, 6:56:45 PM
