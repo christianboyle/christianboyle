@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ky8vysJ94GCRNDzk-Src6Pw-t500x500.png">](https://soundcloud.com/badboombox/bump)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LHCydkogaoit1I68-3DiVtA-t500x500.png">](https://soundcloud.com/mystyk-forest/cross-your-mind-mystyk-forest)
 
-**Artist**: Bad Boombox 
+**Artist**: Mystyk Forest, G-Space, NKTA 
 
-**Track**: Bad Boombox - Baby Do You Wanna Bump
+**Track**: Cross Your Mind - Mystyk Forest (ft. G-Space & NKTA)
 
-Last updated at 8/1/2026, 6:46:04 PM
+Last updated at 8/1/2026, 6:47:16 PM
