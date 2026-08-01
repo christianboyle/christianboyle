@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-By36UG47JSx4B7vy-h8Qy6g-t500x500.jpg">](https://soundcloud.com/doof_music/we-like-that-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-azSyTCXAgff2XgTd-647rHg-t500x500.png">](https://soundcloud.com/dj-lenn-e/moonlight)
 
-**Artist**: YROR? 
+**Artist**: DJ Lenn-E 
 
-**Track**: We Like That
+**Track**: Moonlight
 
-Last updated at 8/1/2026, 2:37:06 PM
+Last updated at 8/1/2026, 2:38:26 PM
