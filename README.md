@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LHCydkogaoit1I68-3DiVtA-t500x500.png">](https://soundcloud.com/mystyk-forest/cross-your-mind-mystyk-forest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wycyWxlFyOyMy8p7-RkLNnA-t500x500.jpg">](https://soundcloud.com/jilli_music/what-u-sayin-w-past-noon)
 
-**Artist**: Mystyk Forest, G-Space, NKTA 
+**Artist**: JiLLi 
 
-**Track**: Cross Your Mind - Mystyk Forest (ft. G-Space & NKTA)
+**Track**: JiLLi x PAST NOON - WHAT U SAYIN?
 
-Last updated at 8/1/2026, 9:12:46 AM
+Last updated at 8/1/2026, 9:13:51 AM
