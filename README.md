@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-S17mMdJZyPHtNfoN-xsAirQ-t500x500.png">](https://soundcloud.com/etcrecds/lola-young-messy-techno-clan-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yYLvVTFZd9ENg5sJ-PYmErw-t500x500.jpg">](https://soundcloud.com/erixh/gym-hardstyle-messy-in-heaven-hxrmano-rxmano-remix)
 
-**Artist**: German Techno Clan 
+**Artist**: ERIXH 
 
-**Track**: Lola Young - Messy (TECHNO REMIX)
+**Track**: GYM HARDSTYLE - "Messy in Heaven" Hardstyle Remix
 
-Last updated at 8/1/2026, 5:57:17 PM
+Last updated at 8/1/2026, 5:58:17 PM
