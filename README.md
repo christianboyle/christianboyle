@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Z0FPgEjsSz4fgMSl-oqGbvw-t500x500.jpg">](https://soundcloud.com/seancomma/aliveagain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-LHCydkogaoit1I68-3DiVtA-t500x500.png">](https://soundcloud.com/mystyk-forest/cross-your-mind-mystyk-forest)
 
-**Artist**: Sean Comma 
+**Artist**: Mystyk Forest, G-Space, NKTA 
 
-**Track**: Alive Again
+**Track**: Cross Your Mind - Mystyk Forest (ft. G-Space & NKTA)
 
-Last updated at 8/1/2026, 9:11:31 AM
+Last updated at 8/1/2026, 9:12:46 AM
