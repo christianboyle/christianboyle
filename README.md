@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3uGFabM5cIzweehW-sEpa5w-t500x500.jpg">](https://soundcloud.com/jjjacksen/jjjacksen-stop-go)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYlAXiowY9LMYF9A-IjjRxA-t500x500.jpg">](https://soundcloud.com/satoshijpn/sexybitchremix)
 
-**Artist**: jjjacksen 
+**Artist**: SATOSHI 
 
-**Track**: jjjacksen - Stop & Go
+**Track**: David Guetta ft. Akon - Sexy Bitch (SATOSHI Remix)
 
-Last updated at 8/1/2026, 9:25:48 AM
+Last updated at 8/1/2026, 9:28:51 AM
