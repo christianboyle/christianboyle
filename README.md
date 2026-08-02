@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MChQ5gJCOWfN47lf-26zykg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-trying-to-exist?in=saxurn/sets/hole-in-none)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYlAXiowY9LMYF9A-IjjRxA-t500x500.jpg">](https://soundcloud.com/satoshijpn/sexybitchremix?in=saxurn/sets/hole-in-none)
 
-**Artist**: DRIFT 
+**Artist**: SATOSHI 
 
-**Track**: DRIFT & IRWIIN - TRYING TO EXIST (🎶OUT NOW🎶)
+**Track**: David Guetta ft. Akon - Sexy Bitch (SATOSHI Remix)
 
-Last updated at 8/1/2026, 9:04:15 PM
+Last updated at 8/1/2026, 9:08:30 PM
