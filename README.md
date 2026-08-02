@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PupQA12QQQO8EY8P-30boeA-t500x500.jpg">](https://soundcloud.com/senridubs/senri-professor-come-out-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ry3aU8VEcXUmUGjO-fsqzuQ-t500x500.jpg">](https://soundcloud.com/djtoadz/tribute-to-clubscene-records)
 
-**Artist**: SENRI 
+**Artist**: Barry Mcguigan (Dj Toadz) 
 
-**Track**: SENRI -  PROFESSOR, COME OUT! [FREE DOWNLOAD]
+**Track**: Tribute To Clubscene Records
 
-Last updated at 8/2/2026, 12:11:54 PM
+Last updated at 8/2/2026, 12:13:09 PM
