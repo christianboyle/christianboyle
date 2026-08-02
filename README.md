@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYlAXiowY9LMYF9A-IjjRxA-t500x500.jpg">](https://soundcloud.com/satoshijpn/sexybitchremix?in=saxurn/sets/hole-in-none)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBAznQ3XKbPyCYGy-b4VGcA-t500x500.jpg">](https://soundcloud.com/dnzrecords/jo-e-dex-dont-want-you)
 
-**Artist**: SATOSHI 
+**Artist**: Jo E Dex 
 
-**Track**: David Guetta ft. Akon - Sexy Bitch (SATOSHI Remix)
+**Track**: Jo E Dex - Don't Want You
 
-Last updated at 8/1/2026, 9:08:30 PM
+Last updated at 8/2/2026, 8:01:28 AM
