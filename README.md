@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z89zIjHdl2q6TC4z-Vy1MGw-t500x500.jpg">](https://soundcloud.com/bitbird/kissing-u?in=saxurn/sets/hole-in-none)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rq6rdAIaj3pdceUP-ksqyBA-t500x500.jpg">](https://soundcloud.com/eyezic-music/eyezic-jeanne-taylor-wasnt)
 
-**Artist**: Sam Day, Conni 
+**Artist**: eyezic, Jeanne Taylor 
 
-**Track**: KISSING U
+**Track**: EYEZIC & JEANNE TAYLOR - WASN'T SMALL
 
-Last updated at 8/1/2026, 8:31:45 PM
+Last updated at 8/1/2026, 8:37:44 PM
