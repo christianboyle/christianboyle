@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBAznQ3XKbPyCYGy-b4VGcA-t500x500.jpg">](https://soundcloud.com/dnzrecords/jo-e-dex-dont-want-you)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDstNon8xomSL43m-3Crakg-t500x500.jpg">](https://soundcloud.com/hexed-official/how-does-it-feel)
 
-**Artist**: Jo E Dex 
+**Artist**: HEXED, BASSBABE 
 
-**Track**: Jo E Dex - Don't Want You
+**Track**: HOW DOES IT FEEL (FT. CASEY VEGGIES)
 
-Last updated at 8/2/2026, 8:01:28 AM
+Last updated at 8/2/2026, 12:09:19 PM
