@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cDstNon8xomSL43m-3Crakg-t500x500.jpg">](https://soundcloud.com/hexed-official/how-does-it-feel)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p0v5LrIFs7yfLITA-fU3JUg-t500x500.jpg">](https://soundcloud.com/raynbass/in-this-bih-remix)
 
-**Artist**: HEXED, BASSBABE 
+**Artist**: Rayn.. 
 
-**Track**: HOW DOES IT FEEL (FT. CASEY VEGGIES)
+**Track**: Chris Lorenzo, Kah-Lo - In This Bih (Rayn.. Flip)
 
-Last updated at 8/2/2026, 12:09:19 PM
+Last updated at 8/2/2026, 12:10:19 PM
