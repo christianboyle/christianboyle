@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VBAznQ3XKbPyCYGy-b4VGcA-t500x500.jpg">](https://soundcloud.com/dnzrecords/jo-e-dex-dont-want-you?in=saxurn/sets/hole-in-none)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MChQ5gJCOWfN47lf-26zykg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-irwiin-trying-to-exist?in=saxurn/sets/hole-in-none)
 
-**Artist**: Jo E Dex 
+**Artist**: DRIFT 
 
-**Track**: Jo E Dex - Don't Want You
+**Track**: DRIFT & IRWIIN - TRYING TO EXIST (🎶OUT NOW🎶)
 
-Last updated at 8/1/2026, 9:02:00 PM
+Last updated at 8/1/2026, 9:04:15 PM
