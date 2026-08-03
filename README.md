@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JYzuD9keXz0xL8tx-AH4KAQ-t500x500.jpg">](https://soundcloud.com/nick-hughes-9/nick-hughes-darren-brown-love)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUMNrRuuqIsMMGI5-T0GYDA-t500x500.jpg">](https://soundcloud.com/lastlifemusic/dog_whistle)
 
-**Artist**: Nick Hughes 
+**Artist**: Last Life, Vanirz 
 
-**Track**: Nick Hughes Darren Brown Love Kicking
+**Track**: VANIRZ - DOG WHISTLE(LAST LIFE PL8LIST EXCLUSIVE)
 
-Last updated at 8/3/2026, 6:56:33 PM
+Last updated at 8/3/2026, 6:57:38 PM
