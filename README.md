@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5wUVydzq9KAFyy3y-h0BVlQ-t500x500.jpg">](https://soundcloud.com/borgeousmusic/the-beatles-hey-jude-borgeous)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OKNGy2Zw2cm72r5E-qkcHfg-t500x500.jpg">](https://soundcloud.com/mikesteventonmusic/mike-steventon-veracocha-carte)
 
-**Artist**: BORGEOUS 
+**Artist**: Mike Steventon 
 
-**Track**: The Beatles - Hey Jude (Borgeous Remix)
+**Track**: Mike Steventon - Veracocha - Carte Blanche (Mike Steventon Remix)
 
-Last updated at 8/3/2026, 7:27:43 AM
+Last updated at 8/3/2026, 5:13:52 PM
