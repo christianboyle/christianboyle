@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wq3ymqA3iNYNZwKz-pkk0iw-t500x500.jpg">](https://soundcloud.com/bassrush/furtha-inari-bad-8)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uFvQLSXzYxblDIvT-OftI4Q-t500x500.jpg">](https://soundcloud.com/claire-brown-176201002/rec015)
 
-**Artist**: Bassrush 
+**Artist**: Claire Brown DJ 
 
-**Track**: FURTHA & Inari - BAD
+**Track**: CLUB 69 24th JULY -DYNMO
 
-Last updated at 8/3/2026, 7:00:54 PM
+Last updated at 8/4/2026, 7:16:10 AM
