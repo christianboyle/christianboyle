@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-osrpvwb2kHXPez8e-K1VF3A-t500x500.jpg">](https://soundcloud.com/i-am-seimei/tokyo-city-sessions-x-record)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wq3ymqA3iNYNZwKz-pkk0iw-t500x500.jpg">](https://soundcloud.com/bassrush/furtha-inari-bad-8)
 
-**Artist**: Seimei 
+**Artist**: Bassrush 
 
-**Track**: Tokyo City Sessions x Record City (Techno Vinyl Set) [Jul 17, 2026]
+**Track**: FURTHA & Inari - BAD
 
-Last updated at 8/3/2026, 6:59:43 PM
+Last updated at 8/3/2026, 7:00:54 PM
