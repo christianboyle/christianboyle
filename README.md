@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-KmwbwclgFaN2DRLl-NO5QzA-t500x500.jpg">](https://soundcloud.com/djfinny1/lets-bounce-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sL1uAA4BrgOhviG1-2qJvqg-t500x500.jpg">](https://soundcloud.com/user-341394321/spaceman-joe-rainah-cherry)
 
-**Artist**: djfinny1 (Darren Finlayson) 
+**Artist**: Spaceman & Spacecadet 
 
-**Track**: Let's Bounce 1
+**Track**: Spaceman & Joe Rainah - Cherry Lambrini
 
-Last updated at 8/5/2026, 7:31:13 AM
+Last updated at 8/6/2026, 7:50:05 AM
