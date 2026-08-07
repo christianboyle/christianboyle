@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sL1uAA4BrgOhviG1-2qJvqg-t500x500.jpg">](https://soundcloud.com/user-341394321/spaceman-joe-rainah-cherry)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIG1Qyid2vz50Zc8-V1aprA-t500x500.jpg">](https://soundcloud.com/sam-segan/thin?in=saxurn/sets/doja-who)
 
-**Artist**: Spaceman & Spacecadet 
+**Artist**: Segan 
 
-**Track**: Spaceman & Joe Rainah - Cherry Lambrini
+**Track**: KEEP YOUR HEAD THIN
 
-Last updated at 8/7/2026, 7:24:59 AM
+Last updated at 8/7/2026, 8:47:15 AM
