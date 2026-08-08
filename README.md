@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZKDMreehfXTt5UV6-SXRe5w-t500x500.jpg">](https://soundcloud.com/harelatias/kmwyk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DKFgm1nawPFO6aVt-xUYI6g-t500x500.jpg">](https://soundcloud.com/brainwavezmusic/loveisgoneremix)
 
-**Artist**: Harel 
+**Artist**: BRAINWAVEZ 
 
-**Track**: Kill Me With Your Kiss
+**Track**: David Guetta - Love is Gone (BRAINWAVEZ Remix)
 
-Last updated at 8/8/2026, 8:41:21 AM
+Last updated at 8/8/2026, 8:42:21 AM
