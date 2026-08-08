@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz1LTwrpgfPK1MX5-eZXZAQ-t500x500.jpg">](https://soundcloud.com/mcletrix/short-sweet-2026-v1-wav)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3Nt3kDJnqH7he71-d2J67Q-t500x500.png">](https://soundcloud.com/sound-transitions/premiere-fatshaudi-raindrops?in=saxurn/sets/makina-blood-memory/)
 
-**Artist**: MC LETRIX 
+**Artist**: Fatshaudi 
 
-**Track**: SHORT & SWEET 2026 - STEMz & MC Letrix
+**Track**: *PREMIERE* Fatshaudi - Raindrops In My Eyes (Jetserver Clarity Mix)
 
-Last updated at 8/8/2026, 8:47:49 AM
+Last updated at 8/8/2026, 8:59:24 AM
