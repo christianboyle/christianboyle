@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gjcHG0qmGsr6F7MX-7IEK6A-t500x500.jpg">](https://soundcloud.com/artful-1/mikey-cee-satturday-shifters)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kz1LTwrpgfPK1MX5-eZXZAQ-t500x500.jpg">](https://soundcloud.com/mcletrix/short-sweet-2026-v1-wav)
 
-**Artist**: Bounce Master.™ 
+**Artist**: MC LETRIX 
 
-**Track**: Mikey Cee Saturday Shifters Bounce Mix.WAV
+**Track**: SHORT & SWEET 2026 - STEMz & MC Letrix
 
-Last updated at 8/8/2026, 8:45:26 AM
+Last updated at 8/8/2026, 8:46:26 AM
