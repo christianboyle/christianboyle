@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szcCbufy3kjz6er5-o2j45Q-t500x500.png">](https://soundcloud.com/whzly/mcriddim-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Li9hAeqsIr1HYu4w-mtTdNA-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-searchin-dub-mikrodot-remix-28)
 
-**Artist**: WHZLY 
+**Artist**: The Widdler, Mikrodot 
 
-**Track**: McRiddim
+**Track**: The Widdler - Searchin Dub (Mikrodot Remix)
 
-Last updated at 8/8/2026, 8:38:56 AM
+Last updated at 8/8/2026, 8:40:16 AM
