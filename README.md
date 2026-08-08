@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QIG1Qyid2vz50Zc8-V1aprA-t500x500.jpg">](https://soundcloud.com/sam-segan/thin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-szcCbufy3kjz6er5-o2j45Q-t500x500.png">](https://soundcloud.com/whzly/mcriddim-2)
 
-**Artist**: Segan 
+**Artist**: WHZLY 
 
-**Track**: KEEP YOUR HEAD THIN
+**Track**: McRiddim
 
-Last updated at 8/8/2026, 7:11:44 AM
+Last updated at 8/8/2026, 8:38:56 AM
