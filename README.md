@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MI2HjIS5zprZRvmT-uZhYwQ-t500x500.jpg">](https://soundcloud.com/nillbeats/psychsymph)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uItb9cQg1uTcl7N9-ZEDl0w-t500x500.jpg">](https://soundcloud.com/dropkick/5-am-est-dropkick-remix)
 
-**Artist**: NILL 
+**Artist**: Dropkick 
 
-**Track**: AVELLO & BIG GIGANTIC - PSYCHEDELIC SYMPHONY (NILL REMIX)
+**Track**: 5AM - EST (Dropkick Remix)
 
-Last updated at 8/9/2026, 8:58:26 AM
+Last updated at 8/9/2026, 9:01:11 AM
