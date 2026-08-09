@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Li9hAeqsIr1HYu4w-mtTdNA-t500x500.jpg">](https://soundcloud.com/subcarbon/the-widdler-wildcard-medicine-place-remix-12)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FpyEofsJJXdeJN8g-PmHzzg-t500x500.png">](https://soundcloud.com/kimatimusic/t-wayne-nasty-kimati-flip-1)
 
-**Artist**: The Widdler, Medicine Place 
+**Artist**: Kimati 
 
-**Track**: The Widdler - Wildcard (Medicine Place Remix)
+**Track**: T Wayne - Nasty (Kimati Flip)
 
-Last updated at 8/9/2026, 8:33:11 AM
+Last updated at 8/9/2026, 8:35:21 AM
