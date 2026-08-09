@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dKYgDaZmaaLr-0-t500x500.jpg">](https://soundcloud.com/egzod/meltdown-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZgMR3sY5ectyzqoZ-HZyoFA-t500x500.png">](https://soundcloud.com/ruvlo/vibe)
 
-**Artist**: Egzod 
+**Artist**: RUVLO, PapaJay 
 
-**Track**: Meltdown
+**Track**: DON'T KILL MY VIBE (RUVLO X PAPAJAY FLIP)
 
-Last updated at 8/9/2026, 9:10:11 AM
+Last updated at 8/9/2026, 9:19:15 AM
