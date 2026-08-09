@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-i3Nt3kDJnqH7he71-d2J67Q-t500x500.png">](https://soundcloud.com/sound-transitions/premiere-fatshaudi-raindrops?in=saxurn/sets/makina-blood-memory/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vagrF6O9A9Kdc9XG-EIQuCQ-t500x500.jpg">](https://soundcloud.com/livefromearth/live-from-earth-mix-w-bambinodj-79)
 
-**Artist**: Fatshaudi 
+**Artist**: bambinodj 
 
-**Track**: *PREMIERE* Fatshaudi - Raindrops In My Eyes (Jetserver Clarity Mix)
+**Track**: LIVE FROM EARTH Mix w/ bambinodj (79)
 
-Last updated at 8/8/2026, 8:59:24 AM
+Last updated at 8/9/2026, 8:31:01 AM
