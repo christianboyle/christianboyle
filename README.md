@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jWEvoU6UECU5M3h4-rcyGmQ-t500x500.png">](https://soundcloud.com/david-doak/doaky-dj-jas-l-695666934)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FZRTwckz4vhv1m4t-WX0Hwg-t500x500.jpg">](https://soundcloud.com/david-doak/lost-in-spain)
 
-**Artist**: Doaky & Dj Jas L 
+**Artist**: Doaky & Rosey 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 31(Tracklist In Description)
+**Track**: Lost In Spain
 
-Last updated at 8/9/2026, 8:40:16 AM
+Last updated at 8/9/2026, 8:41:21 AM
