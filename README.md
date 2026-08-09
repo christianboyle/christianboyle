@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Op3vzRh9f1AEfvCE-b5HkjA-t500x500.jpg">](https://soundcloud.com/virxmusic/disco-lines-techno-tequila)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cFVXxUV6aNdU60jD-zOsw2A-t500x500.jpg">](https://soundcloud.com/edmfamilyreposts/harder-better-faster-island-nation-remix-free-dl)
 
-**Artist**: VIRX 
+**Artist**: Island Nation 
 
-**Track**: Disco Lines -  TECHNO + TEQUILA (Virx Remix)
+**Track**: Harder, Better, Faster, Stronger (Island Nation Remix) [FREE DOWNLOAD] Supported by Hardwell!
 
-Last updated at 8/9/2026, 9:07:26 AM
+Last updated at 8/9/2026, 9:08:31 AM
