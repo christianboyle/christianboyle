@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NpN7UUh2xNh5RTjz-fLGCYA-t500x500.jpg">](https://soundcloud.com/qualiasound/lowshade-getme)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7G4zP4xfpszGUhdO-KJpDvg-t500x500.jpg">](https://soundcloud.com/vincenzo-capozzi/letting-go-140bpm-master-v1)
 
-**Artist**: Lowshade 
+**Artist**: VinnyBo! 
 
-**Track**: Getme
+**Track**: Letting Go
 
-Last updated at 8/9/2026, 12:51:31 PM
+Last updated at 8/9/2026, 12:52:31 PM
