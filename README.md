@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uItb9cQg1uTcl7N9-ZEDl0w-t500x500.jpg">](https://soundcloud.com/dropkick/5-am-est-dropkick-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Op3vzRh9f1AEfvCE-b5HkjA-t500x500.jpg">](https://soundcloud.com/virxmusic/disco-lines-techno-tequila)
 
-**Artist**: Dropkick 
+**Artist**: VIRX 
 
-**Track**: 5AM - EST (Dropkick Remix)
+**Track**: Disco Lines -  TECHNO + TEQUILA (Virx Remix)
 
-Last updated at 8/9/2026, 9:01:11 AM
+Last updated at 8/9/2026, 9:04:36 AM
