@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FZRTwckz4vhv1m4t-WX0Hwg-t500x500.jpg">](https://soundcloud.com/david-doak/lost-in-spain)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RSYZiKPfRDJMZryv-MBkzXA-t500x500.jpg">](https://soundcloud.com/david-doak/bbz-how-you-like-weekends-sc)
 
-**Artist**: Doaky & Rosey 
+**Artist**: Doaky & Dj Jas L 
 
-**Track**: Lost In Spain
+**Track**: BBZ -  How You Like Weekends(Sc Edit)
 
-Last updated at 8/9/2026, 8:41:21 AM
+Last updated at 8/9/2026, 8:53:01 AM
