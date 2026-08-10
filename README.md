@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QWRsUz7k7S5Qyu43-bow4jQ-t500x500.jpg">](https://soundcloud.com/david-doak/doaky-these-dreams)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SHuHRr8dyLJciMDd-5wzFmw-t500x500.png">](https://soundcloud.com/keebmusic/on-the-block)
 
-**Artist**: Doaky 
+**Artist**: Keeb 
 
-**Track**: Doaky - These Dreams
+**Track**: On the Block
 
-Last updated at 8/10/2026, 7:29:03 AM
+Last updated at 8/10/2026, 6:03:31 PM
