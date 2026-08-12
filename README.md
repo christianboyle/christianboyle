@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zUnDyS4IR1yzyDVc-8XYHYg-t500x500.png">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-summer-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INuKuY5YAycerv11-u0zeyg-t500x500.jpg">](https://soundcloud.com/justin-fallon12/big-tingz-06)
 
-**Artist**: DRIFT 
+**Artist**: Justin Fallon 
 
-**Track**: DRIFT & STEVEN STRAUB - SUMMER FEELING (OUT NOW OUT NOW OUT NOW)
+**Track**: big tingz 06
 
-Last updated at 8/12/2026, 5:20:06 PM
+Last updated at 8/12/2026, 5:21:11 PM
