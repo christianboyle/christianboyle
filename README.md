@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2dEYg2aUnBMBDpzf-0joVFw-t500x500.jpg">](https://soundcloud.com/ghost_rook/i-found-a-way)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G9VjUf98Tjg4uu4I-orRdzg-t500x500.jpg">](https://soundcloud.com/sewer-ratz37/ew-thebassment)
 
-**Artist**: Ghost Rook 
+**Artist**: Sewer Ratz 
 
-**Track**: I Found a Way
+**Track**: Ew - The Bassment Takeover
 
-Last updated at 8/11/2026, 7:21:16 PM
+Last updated at 8/11/2026, 7:24:01 PM
