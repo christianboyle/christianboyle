@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G9VjUf98Tjg4uu4I-orRdzg-t500x500.jpg">](https://soundcloud.com/sewer-ratz37/ew-thebassment)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2a6nrOWpqrlNDngu-2tONCw-t500x500.jpg">](https://soundcloud.com/peakdial/boutta-way-back-peak-dial)
 
-**Artist**: Sewer Ratz 
+**Artist**: PEAK DIAL 
 
-**Track**: Ew - The Bassment Takeover
+**Track**: Boutta - Way Back [Peak Dial]
 
-Last updated at 8/11/2026, 7:24:01 PM
+Last updated at 8/12/2026, 7:44:14 AM
