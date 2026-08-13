@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dTtHNKSIn3UwH3hL-rQ2akg-t500x500.jpg">](https://soundcloud.com/0skamaxx/rainbow-high-edit-x-ademes-v3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0JKqCX0awIMUqy1y-uIn9Bw-t500x500.png">](https://soundcloud.com/immoyo/drake-janice-stfu-moyo-remix-1?in=saxurn/sets/makina-blood-memory/)
 
-**Artist**: OSKAMAXX, ADEMES 
+**Artist**: Moyo 
 
-**Track**: Rainbow in the Sky (edit) - OSKAMAXX & ADEMES
+**Track**: Drake - Janice STFU  (Moyo Remix)
 
-Last updated at 8/12/2026, 7:12:04 PM
+Last updated at 8/12/2026, 7:16:19 PM
