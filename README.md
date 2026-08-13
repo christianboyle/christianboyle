@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-INuKuY5YAycerv11-u0zeyg-t500x500.jpg">](https://soundcloud.com/justin-fallon12/big-tingz-06)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dTtHNKSIn3UwH3hL-rQ2akg-t500x500.jpg">](https://soundcloud.com/0skamaxx/rainbow-high-edit-x-ademes-v3)
 
-**Artist**: Justin Fallon 
+**Artist**: OSKAMAXX, ADEMES 
 
-**Track**: big tingz 06
+**Track**: Rainbow in the Sky (edit) - OSKAMAXX & ADEMES
 
-Last updated at 8/12/2026, 5:21:11 PM
+Last updated at 8/12/2026, 7:10:39 PM
