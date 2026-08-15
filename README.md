@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0MygzPhkXrszfaG7-ft3hsw-t500x500.jpg">](https://soundcloud.com/enraile/thing-today-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kqqffcogwECWycBm-XDzNgw-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-pandora?in=natepattaz/sets/track-pack-volume-2)
 
-**Artist**: Enraile 
+**Artist**: Agent Blue 
 
-**Track**: Thing Today
+**Track**: Agent Blue - Pandora
 
-Last updated at 8/15/2026, 9:59:57 AM
+Last updated at 8/15/2026, 10:00:57 AM
