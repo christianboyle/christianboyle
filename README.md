@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kqqffcogwECWycBm-XDzNgw-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-close-to-you-1?in=natepattaz/sets/track-pack-volume-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GMY6CY7YJTQZxYpa-4evBAg-t500x500.jpg">](https://soundcloud.com/natepattaz/r3habinnasash-move-your-body-ecuador-agent-blue-rmx?in=natepattaz/sets/track-pack-volume-1)
 
 **Artist**: Agent Blue 
 
-**Track**: Agent Blue - Close To You
+**Track**: R3HAB,INNA,SASH! - Move Your Body ( Ecuador ) [AGENT BLUE RMX]
 
-Last updated at 8/15/2026, 10:02:57 AM
+Last updated at 8/15/2026, 10:03:57 AM
