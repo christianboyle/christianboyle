@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jlxRB9ddQPsQbEp-pmJCcg-t500x500.jpg">](https://soundcloud.com/galactic-harmony-records/fonola-band-bella-ciao)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vu2IzUPbscfKX9FG-aHOyaw-t500x500.jpg">](https://soundcloud.com/cure97/ride)
 
-**Artist**: Galactic Harmony 
+**Artist**: CURE97, YZENIA 
 
-**Track**: Fonola Band - Bella Ciao (Germalog & R2B Edit)
+**Track**: RIDE
 
-Last updated at 8/15/2026, 9:56:47 AM
+Last updated at 8/15/2026, 9:57:57 AM
