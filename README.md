@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vu2IzUPbscfKX9FG-aHOyaw-t500x500.jpg">](https://soundcloud.com/cure97/ride)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JsIaYeBeQojqEJkH-wyfhuw-t500x500.jpg">](https://soundcloud.com/bruno-brero/bruno-brero-hanne-brepeat)
 
-**Artist**: CURE97, YZENIA 
+**Artist**: Bruno Brero, Hanne B 
 
-**Track**: RIDE
+**Track**: REPEAT [FREE DL]
 
-Last updated at 8/15/2026, 9:57:57 AM
+Last updated at 8/15/2026, 9:58:57 AM
