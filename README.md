@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9EzHyE121BiZ3QKu-gNUVYA-t500x500.jpg">](https://soundcloud.com/user-668791245/01-gbx2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-drlVGozZ5xAPaNXt-jRQFog-t500x500.png">](https://soundcloud.com/xaebor/needleguy?in=saxurn/sets/happy-bardcore)
 
-**Artist**: DJ CLEVY 
+**Artist**: XAEBOR 
 
-**Track**: DJ CLEVY - Gbx/makina mix November 2023
+**Track**: DYLAN BRADY - NEEDLE GUY (XAEBOR REMIX)
 
-Last updated at 8/15/2026, 7:33:24 AM
+Last updated at 8/15/2026, 9:44:57 AM
