@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ZdyE9H3NEBKrQOMm-r0O84Q-t500x500.jpg">](https://soundcloud.com/jgt100/twinbeats-2-times-cover-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kqqffcogwECWycBm-XDzNgw-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-fes-la-pin)
 
-**Artist**: JGT | JUST GOOD TUNES  
+**Artist**: Agent Blue 
 
-**Track**: TwinBeats - 2 Times (Cover Remix)
+**Track**: agent blue & fes - la pin
 
-Last updated at 8/15/2026, 10:34:30 AM
+Last updated at 8/15/2026, 10:35:45 AM
