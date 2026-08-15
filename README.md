@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tI64W0NHFgQxcM22-OKWldg-t500x500.jpg">](https://soundcloud.com/heyzmsc/heyzd-and-confused-vol-2-live)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MWypgzjkq56fyhBR-lHr4wQ-t500x500.jpg">](https://soundcloud.com/notsegan/boom)
 
-**Artist**: HEYZ 
+**Artist**: Segan's Selects 
 
-**Track**: HEYZ'D And Confused Vol. 2 (LIVE from Electric Forest)
+**Track**: BOOM BOOM BOOM
 
-Last updated at 8/15/2026, 9:51:02 AM
+Last updated at 8/15/2026, 9:52:12 AM
