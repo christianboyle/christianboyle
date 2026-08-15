@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iQ5JmHvrRoHhcc7D-dDe5Hw-t500x500.png">](https://soundcloud.com/kaiyo_music/disclosure-ft-sam-387180400)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5jlxRB9ddQPsQbEp-pmJCcg-t500x500.jpg">](https://soundcloud.com/galactic-harmony-records/fonola-band-bella-ciao)
 
-**Artist**: Kaiyo 
+**Artist**: Galactic Harmony 
 
-**Track**: Disclosure ft. Sam Smith - Latch (KAIYO REMIX)
+**Track**: Fonola Band - Bella Ciao (Germalog & R2B Edit)
 
-Last updated at 8/15/2026, 9:55:47 AM
+Last updated at 8/15/2026, 9:56:47 AM
