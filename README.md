@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QHBq8KjN6sAVt2KR-yddpSw-t500x500.png">](https://soundcloud.com/andrew-gillon/archaos-memories-side-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TP5rt9iTnm1uydB3-JTt3Mw-t500x500.jpg">](https://soundcloud.com/stratisbambam/filth-factory-v2)
 
-**Artist**: Dj AndyG 
+**Artist**: INF3RNUS 
 
-**Track**: Archaos memories side B
+**Track**: Filth Factory v2
 
-Last updated at 8/15/2026, 10:37:10 AM
+Last updated at 8/15/2026, 10:38:33 AM
