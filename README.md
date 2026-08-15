@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-kqqffcogwECWycBm-XDzNgw-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-fes-la-pin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QHBq8KjN6sAVt2KR-yddpSw-t500x500.png">](https://soundcloud.com/andrew-gillon/archaos-memories-side-b)
 
-**Artist**: Agent Blue 
+**Artist**: Dj AndyG 
 
-**Track**: agent blue & fes - la pin
+**Track**: Archaos memories side B
 
-Last updated at 8/15/2026, 10:35:45 AM
+Last updated at 8/15/2026, 10:37:10 AM
