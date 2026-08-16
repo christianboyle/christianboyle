@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5fJ4uI9DlkBrzCTN-1vTf8w-t500x500.jpg">](https://soundcloud.com/edm-family-remixes/yellow-claw-dj-turn-it-up-rogerson-vip-edit-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Yy0V8KzyGZWP4lb-UHmsFw-t500x500.jpg">](https://soundcloud.com/skellytn/skellytn-zombie-nation)
 
-**Artist**: Rogerson 
+**Artist**: Skellytn 
 
-**Track**: Yellow Claw - DJ Turn It Up (Rogerson VIP Edit) [FREE DOWNLOAD] Supported by R3WIRE!
+**Track**: Zombie Nation - Kernkraft 400 (Skellytn Flip)
 
-Last updated at 8/16/2026, 9:00:21 AM
+Last updated at 8/16/2026, 9:02:36 AM
