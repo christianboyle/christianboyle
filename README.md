@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izukTB8cnu9kHdJ9-bHZ8DA-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/gzmo-lubo-everything-i-do?in=saxurn/sets/untitled-playlist/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-u4ylO1ugHRgNJnCU-nZjIaA-t500x500.jpg">](https://soundcloud.com/natepattaz/analog-angels)
 
-**Artist**: LUBO 
+**Artist**: AGENT BLUE 
 
-**Track**: GZMO & LUBO - Everything i do
+**Track**: Analog - Angels
 
-Last updated at 8/16/2026, 7:42:19 AM
+Last updated at 8/16/2026, 7:45:26 AM
