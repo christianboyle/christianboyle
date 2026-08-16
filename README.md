@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TP5rt9iTnm1uydB3-JTt3Mw-t500x500.jpg">](https://soundcloud.com/stratisbambam/filth-factory-v2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8A1HQdo3DOOsN6p-9bc7Sw-t500x500.png">](https://soundcloud.com/cyclopsrecs/defender-of-illusions-3)
 
-**Artist**: INF3RNUS 
+**Artist**: Filthy 
 
-**Track**: Filth Factory v2
+**Track**: Filthy - Defender Of Illusions
 
-Last updated at 8/15/2026, 11:00:54 AM
+Last updated at 8/15/2026, 7:59:47 PM
