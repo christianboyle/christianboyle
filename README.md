@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z8A1HQdo3DOOsN6p-9bc7Sw-t500x500.png">](https://soundcloud.com/cyclopsrecs/defender-of-illusions-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izukTB8cnu9kHdJ9-bHZ8DA-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/gzmo-lubo-everything-i-do?in=saxurn/sets/untitled-playlist)
 
-**Artist**: Filthy 
+**Artist**: LUBO 
 
-**Track**: Filthy - Defender Of Illusions
+**Track**: GZMO & LUBO - Everything i do
 
-Last updated at 8/15/2026, 7:59:47 PM
+Last updated at 8/15/2026, 8:01:25 PM
