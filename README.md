@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yCyPQSYAOkzwSbY-MZjyRA-t500x500.png">](https://soundcloud.com/underscores/peace)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izukTB8cnu9kHdJ9-bHZ8DA-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/gzmo-lubo-everything-i-do?in=saxurn/sets/untitled-playlist/)
 
-**Artist**: underscores 
+**Artist**: LUBO 
 
-**Track**: The Peace
+**Track**: GZMO & LUBO - Everything i do
 
-Last updated at 8/16/2026, 7:39:18 AM
+Last updated at 8/16/2026, 7:42:19 AM
