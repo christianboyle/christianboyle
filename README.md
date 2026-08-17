@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izukTB8cnu9kHdJ9-bHZ8DA-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/gzmo-lubo-everything-i-do?in=saxurn/sets/untitled-playlist/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h0npq0Vg1UyxvXnq-pX36ww-t500x500.jpg">](https://soundcloud.com/bemahbeats/snoop)
 
-**Artist**: LUBO 
+**Artist**: Bemah 
 
-**Track**: GZMO & LUBO - Everything i do
+**Track**: Drop It Like It's Hot (Bemah Flip)
 
-Last updated at 8/16/2026, 9:18:08 AM
+Last updated at 8/17/2026, 6:33:02 PM
