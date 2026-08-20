@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pdDxnb417MTVpRTy-Kz9heg-t500x500.jpg">](https://soundcloud.com/spacelabrecords/spaceocast-036-second-contact)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyxVb6JlsmAV9GkX-BS0aaA-t500x500.jpg">](https://soundcloud.com/bonkers-rave/bcxd-bonkers-beats-259)
 
-**Artist**: Second Contact  
+**Artist**: BCXD 
 
-**Track**: space•cast 036 - Second Contact
+**Track**: BCXD - Bonkers Beats 259
 
-Last updated at 8/19/2026, 8:35:10 AM
+Last updated at 8/19/2026, 8:17:30 PM
