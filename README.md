@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyxVb6JlsmAV9GkX-BS0aaA-t500x500.jpg">](https://soundcloud.com/bonkers-rave/bcxd-bonkers-beats-259)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CjmL3RSmCbQqevTS-L4JlIA-t500x500.jpg">](https://soundcloud.com/enomerr/step-deh-v28-mstr4)
 
-**Artist**: BCXD 
+**Artist**: Enomer 
 
-**Track**: BCXD - Bonkers Beats 259
+**Track**: Enomer - STEPPY BOI
 
-Last updated at 8/22/2026, 7:38:20 AM
+Last updated at 8/22/2026, 2:39:08 PM
