@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHvW4acNq1bfnPKU-I9rxnw-t500x500.jpg">](https://soundcloud.com/stemacmusic/ste-mac-hurricane-on-eh)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nPfYa0lBDSxVZEDw-a3xmEA-t500x500.jpg">](https://soundcloud.com/droptalk/doechi-anxiety-droptalk-remix)
 
-**Artist**: Ste Mac 
+**Artist**: DropTalk 
 
-**Track**: Ste Mac - Hurricane On Eh
+**Track**: Doechi - Anxiety (DropTalk Remix)
 
-Last updated at 8/22/2026, 3:23:18 PM
+Last updated at 8/22/2026, 3:24:53 PM
