@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cu6wqIHtC2c2Tj5y-lE3W3Q-t500x500.jpg">](https://soundcloud.com/steff-little/steff-little-set-me-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aHvW4acNq1bfnPKU-I9rxnw-t500x500.jpg">](https://soundcloud.com/stemacmusic/ste-mac-hurricane-on-eh)
 
-**Artist**: Steff Little  
+**Artist**: Ste Mac 
 
-**Track**: Steff Little - Set Me Free
+**Track**: Ste Mac - Hurricane On Eh
 
-Last updated at 8/22/2026, 3:19:13 PM
+Last updated at 8/22/2026, 3:23:18 PM
