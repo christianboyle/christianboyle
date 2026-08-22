@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ICRryyRZ5yg6Frmy-6JywLg-t500x500.jpg">](https://soundcloud.com/project_88/pure-north-east-mix-three-by-project-88)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyxVb6JlsmAV9GkX-BS0aaA-t500x500.jpg">](https://soundcloud.com/bonkers-rave/bcxd-bonkers-beats-259)
 
-**Artist**: Project 88 - High & Heskey 
+**Artist**: BCXD 
 
-**Track**: PURE NORTH EAST: MIX THREE By Project 88
+**Track**: BCXD - Bonkers Beats 259
 
-Last updated at 8/21/2026, 8:08:00 AM
+Last updated at 8/22/2026, 7:38:20 AM
