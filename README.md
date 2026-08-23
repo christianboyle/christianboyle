@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6RvgmlMPXtQ19Pdp-SjTn7w-t500x500.jpg">](https://soundcloud.com/1sunsuu/funnylol?in=saxurn/sets/conch-glitter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3yCyPQSYAOkzwSbY-MZjyRA-t500x500.png">](https://soundcloud.com/underscores/peace?in=saxurn/sets/conch-glitter)
 
-**Artist**: sunsuu  。。。 
+**Artist**: underscores 
 
-**Track**: funny lol 有趣的。ft. @starryryn (minok0)
+**Track**: The Peace
 
-Last updated at 8/23/2026, 11:24:56 AM
+Last updated at 8/23/2026, 11:26:46 AM
