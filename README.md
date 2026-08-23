@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cB2spKeGwyW6O0Gz-g4ByHg-t500x500.jpg">](https://soundcloud.com/toxicbassmusic/hellrave)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izukTB8cnu9kHdJ9-bHZ8DA-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/gzmo-lubo-everything-i-do?in=saxurn/sets/conch-glitter)
 
-**Artist**: TOXIC, HEXXA 
+**Artist**: LUBO 
 
-**Track**: HELLRAVE w/HEXXA
+**Track**: GZMO & LUBO - Everything i do
 
-Last updated at 8/23/2026, 7:29:21 AM
+Last updated at 8/23/2026, 10:29:25 AM
