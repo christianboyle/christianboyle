@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-izukTB8cnu9kHdJ9-bHZ8DA-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/gzmo-lubo-everything-i-do?in=saxurn/sets/conch-glitter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9mS2Fy22dUCXsyO-b9wXWg-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/trixy-take-me-and-run?in=saxurn/sets/conch-glitter)
 
-**Artist**: LUBO 
+**Artist**: TRIXY 
 
-**Track**: GZMO & LUBO - Everything i do
+**Track**: Trixy - Take Me and Run
 
-Last updated at 8/23/2026, 10:29:25 AM
+Last updated at 8/23/2026, 10:32:30 AM
