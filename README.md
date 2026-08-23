@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NNBrZVcr19x0jGqF-tDFQrQ-t500x500.jpg">](https://soundcloud.com/dj-niteflyone/samuel-moriero-never-say-dj)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cB2spKeGwyW6O0Gz-g4ByHg-t500x500.jpg">](https://soundcloud.com/toxicbassmusic/hellrave)
 
-**Artist**: DJ NITEFLYØNE 
+**Artist**: TOXIC, HEXXA 
 
-**Track**: Samuel Moriero - Never Say (DJ NITEFLYØNE Rmx)
+**Track**: HELLRAVE w/HEXXA
 
-Last updated at 8/22/2026, 3:28:13 PM
+Last updated at 8/23/2026, 7:29:21 AM
