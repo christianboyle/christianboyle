@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M9mS2Fy22dUCXsyO-b9wXWg-t500x500.jpg">](https://soundcloud.com/djtrixyofficial/trixy-take-me-and-run?in=saxurn/sets/conch-glitter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-ZdyE9H3NEBKrQOMm-r0O84Q-t500x500.jpg">](https://soundcloud.com/jgt100/twinbeats-2-times-cover-remix?in=saxurn/sets/conch-glitter)
 
-**Artist**: TRIXY 
+**Artist**: JGT | JUST GOOD TUNES  
 
-**Track**: Trixy - Take Me and Run
+**Track**: TwinBeats - 2 Times (Cover Remix)
 
-Last updated at 8/23/2026, 10:32:30 AM
+Last updated at 8/23/2026, 10:35:30 AM
