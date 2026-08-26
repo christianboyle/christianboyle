@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vlyw53kIOg0GxGVf-wyocEw-t500x500.jpg">](https://soundcloud.com/dj-outburst/world-of-obsession-records)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aLg6VWNocIp22Qs4-sxGd0w-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-north-east-beltas)
 
-**Artist**: Outburst 
+**Artist**: Agent Blue 
 
-**Track**: World Of Obsession Records Production Mixed By Outburst
+**Track**: Agent Blue - North East Beltas Vol 1
 
-Last updated at 8/25/2026, 8:02:43 AM
+Last updated at 8/26/2026, 11:37:25 AM
