@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aLg6VWNocIp22Qs4-sxGd0w-t500x500.jpg">](https://soundcloud.com/natepattaz/agent-blue-north-east-beltas)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cB2spKeGwyW6O0Gz-g4ByHg-t500x500.jpg">](https://soundcloud.com/toxicbassmusic/frozen-signal)
 
-**Artist**: Agent Blue 
+**Artist**: TOXIC, CVSS 
 
-**Track**: Agent Blue - North East Beltas Vol 1
+**Track**: FROZEN SIGNAL FT. CVSS
 
-Last updated at 8/26/2026, 11:37:25 AM
+Last updated at 8/26/2026, 4:58:14 PM
