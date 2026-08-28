@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zBLjV7ovie802axn-oe8sFw-t500x500.png">](https://soundcloud.com/vybzmccsumi/rite-bak-someone-hop-on-this)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yyxVb6JlsmAV9GkX-BS0aaA-t500x500.jpg">](https://soundcloud.com/bonkers-rave/bcxd-bonkers-beats-259)
 
-**Artist**: McCsumi 
+**Artist**: BCXD 
 
-**Track**: Rite Bak [SOMEONE HOP ON THIS BEAT DM ME LET'S ROCK TF OUT]
+**Track**: BCXD - Bonkers Beats 259
 
-Last updated at 8/27/2026, 6:21:39 PM
+Last updated at 8/27/2026, 8:16:10 PM
