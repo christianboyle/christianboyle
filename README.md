@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wIrgcBdSTllvlzcJ-GV0mKA-t500x500.jpg">](https://soundcloud.com/c8o/nohome)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XhCOe0MqGGUWuOCT-4XNQIw-t500x500.jpg">](https://soundcloud.com/fntsyhill/taliban-prod-juco-ewo-ghoz)
 
-**Artist**: c8o 
+**Artist**: fntsy 
 
-**Track**: no home
+**Track**: taliban
 
-Last updated at 8/30/2026, 5:48:07 PM
+Last updated at 8/30/2026, 5:50:07 PM
