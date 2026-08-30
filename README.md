@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-U5QhMsTKZDHObLcF-JK1GrA-t500x500.jpg">](https://soundcloud.com/djstevenjay/a-taste-of-italy-vol-2-master)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5OBpCi8ATxzgVP3-U81pDA-t500x500.jpg">](https://soundcloud.com/meridiyn/tate-mcrae-you-broke-me-first)
 
-**Artist**: DJ Steven Jay 
+**Artist**: Meridiyn 
 
-**Track**: a taste of italy vol 2
+**Track**: Tate McRae - You Broke Me First (Meridiyn Flip)
 
-Last updated at 8/29/2026, 3:24:49 PM
+Last updated at 8/30/2026, 5:40:02 PM
