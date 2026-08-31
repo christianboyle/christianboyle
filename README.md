@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-PkFUawdFJOz3JbBz-JEIYWA-t500x500.jpg">](https://soundcloud.com/sevenelevendubs/old-is-kooler-free-dl)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTEHyoou8asJoA9Z-hGGj1w-t500x500.jpg">](https://soundcloud.com/undefined/out-of-luck-tape)
 
-**Artist**: SEVEN ELEVEN 
+**Artist**: goblinsosa 
 
-**Track**: OLD IS KOOLER [FREE DL]
+**Track**: OUT OF LUCK  ( FULL TAPE )
 
-Last updated at 8/30/2026, 8:52:16 PM
+Last updated at 8/30/2026, 8:53:27 PM
