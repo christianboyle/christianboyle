@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MW38tWpmscMRRdzO-xKVOzw-t500x500.jpg">](https://soundcloud.com/itschorp/at-night-chorp-x-stoop-noise-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxeQtjhEcsfGv3yY-kszB6Q-t500x500.png">](https://soundcloud.com/2dy4/perry-wayne-bodies-2dy4-remix)
 
-**Artist**: CHORP 
+**Artist**: PERRY WAYNE 
 
-**Track**: AT NIGHT - CHORP X STOOP NOISE
+**Track**: PERRY WAYNE - BODIES (2DY4 REMIX)
 
-Last updated at 8/30/2026, 8:38:56 PM
+Last updated at 8/30/2026, 8:39:56 PM
