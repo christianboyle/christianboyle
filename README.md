@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ft0Z8N6xDO9myweH-qkVJGA-t500x500.jpg">](https://soundcloud.com/rhiannonroze/festival-szn-rhiannon-roze)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6hzptcKJFNrhZO1h-EbyY7A-t500x500.png">](https://soundcloud.com/hayzus_119/fly)
 
-**Artist**: Rhiannon Roze 
+**Artist**: Hayzüs Musa Keita 
 
-**Track**: FESTIVAL SZN ❤️‍🔥 Rhiannon Roze Live @ Bring Your Love Fest
+**Track**: Fly
 
-Last updated at 8/30/2026, 8:46:26 PM
+Last updated at 8/30/2026, 8:47:27 PM
