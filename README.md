@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6hzptcKJFNrhZO1h-EbyY7A-t500x500.png">](https://soundcloud.com/hayzus_119/fly)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTEHyoou8asJoA9Z-hGGj1w-t500x500.jpg">](https://soundcloud.com/undefined/out-of-luck-tape)
 
-**Artist**: Hayzüs Musa Keita 
+**Artist**: goblinsosa 
 
-**Track**: Fly
+**Track**: OUT OF LUCK  ( FULL TAPE )
 
-Last updated at 8/30/2026, 8:47:27 PM
+Last updated at 8/30/2026, 8:48:28 PM
