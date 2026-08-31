@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ht1n07BrMP2eYo9f-r4G7Ig-t500x500.jpg">](https://soundcloud.com/saint-baek/what-the-fuck-is-up-4)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Cg39mVyPvvjMoNfk-itjiMQ-t500x500.jpg">](https://soundcloud.com/aboy_m80/kesha-blow-aboy-m80-remix)
 
-**Artist**: SAINT MILLER 
+**Artist**: ABOY M80 
 
-**Track**: what the fuck is up
+**Track**: Kesha - Blow [ABOY M80 Remix]
 
-Last updated at 8/30/2026, 8:34:56 PM
+Last updated at 8/30/2026, 8:35:56 PM
