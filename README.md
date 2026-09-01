@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fKWdKc2segLUFmb5-tQzUeg-t500x500.jpg">](https://soundcloud.com/charlottemoyer/60-minutes-of-euphoria)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxeQtjhEcsfGv3yY-kszB6Q-t500x500.png">](https://soundcloud.com/2dy4/perry-wayne-bodies-2dy4-remix)
 
-**Artist**: Charlotte Moyer 
+**Artist**: PERRY WAYNE 
 
-**Track**: A Mix of Pure Euphoria
+**Track**: PERRY WAYNE - BODIES (2DY4 REMIX)
 
-Last updated at 8/31/2026, 7:35:25 PM
+Last updated at 8/31/2026, 8:50:13 PM
