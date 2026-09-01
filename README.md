@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TTEHyoou8asJoA9Z-hGGj1w-t500x500.jpg">](https://soundcloud.com/bongerloud/out-of-luck-tape)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fKWdKc2segLUFmb5-tQzUeg-t500x500.jpg">](https://soundcloud.com/charlottemoyer/60-minutes-of-euphoria)
 
-**Artist**: goblinsosa 
+**Artist**: Charlotte Moyer 
 
-**Track**: OUT OF LUCK  ( FULL TAPE )
+**Track**: A Mix of Pure Euphoria
 
-Last updated at 8/31/2026, 7:54:22 AM
+Last updated at 8/31/2026, 7:35:25 PM
