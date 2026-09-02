@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmJQUP2rKvX6f8PP-h3pzXQ-t500x500.jpg">](https://soundcloud.com/2minok0/classic)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-7NmheCbhyze4eouU-Kgablg-t500x500.jpg">](https://soundcloud.com/paul-maxwell-476935967/maxi-finny-back-2-back)
 
-**Artist**: min, sk8zay, stylas 
+**Artist**: BOUNTASTIC 
 
-**Track**: classic (⋋▂⋌)
+**Track**: MAXi & FINNY BACK 2 BACK
 
-Last updated at 9/1/2026, 8:34:33 PM
+Last updated at 9/2/2026, 7:58:27 AM
