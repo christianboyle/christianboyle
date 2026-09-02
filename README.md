@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jxeQtjhEcsfGv3yY-kszB6Q-t500x500.png">](https://soundcloud.com/2dy4/perry-wayne-bodies-2dy4-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zmJQUP2rKvX6f8PP-h3pzXQ-t500x500.jpg">](https://soundcloud.com/2minok0/classic)
 
-**Artist**: PERRY WAYNE 
+**Artist**: min, sk8zay, stylas 
 
-**Track**: PERRY WAYNE - BODIES (2DY4 REMIX)
+**Track**: classic (⋋▂⋌)
 
-Last updated at 9/1/2026, 7:23:55 AM
+Last updated at 9/1/2026, 8:13:31 PM
