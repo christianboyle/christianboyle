@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJaP3wm2gSneWMYA-qtKgbw-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/phrey-do-my-hair)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3B7uvuKBjGQo6ku-rpYQMw-t500x500.jpg">](https://soundcloud.com/deltachildmusic/repent)
 
-**Artist**: Phrey 
+**Artist**: delta child 
 
-**Track**: Phrey - Do My Hair
+**Track**: repent
 
-Last updated at 9/4/2026, 9:57:48 AM
+Last updated at 9/4/2026, 10:01:03 AM
