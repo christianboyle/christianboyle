@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jf13uHeVqqhUtH6p-zctsCg-t500x500.jpg">](https://soundcloud.com/aceonearth/future-forest-nest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FdxHFGiaFWFL6uWn-c9hhWQ-t500x500.jpg">](https://soundcloud.com/bncybncy/i-think-i-love-you)
 
-**Artist**: Ace On Earth 
+**Artist**: Mikey Davies 
 
-**Track**: Future Forest 2026 | Nest Stage
+**Track**: Mikey Davies - I Think I Love You
 
-Last updated at 9/3/2026, 8:01:56 AM
+Last updated at 9/4/2026, 9:54:58 AM
