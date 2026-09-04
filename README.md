@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WYLC5Q2Snqyid5WM-o3x3Xw-t500x500.jpg">](https://soundcloud.com/hardromance-label/mixed-feelings-move-my-body-hrva01)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJaP3wm2gSneWMYA-qtKgbw-t500x500.jpg">](https://soundcloud.com/oblyskmusicgroup/phrey-do-my-hair)
 
-**Artist**: MIXED FEELINGS, Hard Romance 
+**Artist**: Phrey 
 
-**Track**: MIXED FEELINGS - Move My Body [HRVA01]
+**Track**: Phrey - Do My Hair
 
-Last updated at 9/4/2026, 9:56:03 AM
+Last updated at 9/4/2026, 9:57:48 AM
