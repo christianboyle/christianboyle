@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pcKt7dYemiSQSDPk-414Edw-t500x500.jpg">](https://soundcloud.com/patch-base/dj-coco-bounce-vol-9-1k-f)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gCnIpITFXyDw6uOB-ytmy4w-t500x500.jpg">](https://soundcloud.com/auryxbass/diamonds-inside)
 
-**Artist**: DJ COCO  
+**Artist**: AURYX 
 
-**Track**: DJ COCO -BOUNCE VOL.9-1K FOLLOWERS
+**Track**: Diamonds Inside
 
-Last updated at 9/6/2026, 9:53:07 AM
+Last updated at 9/6/2026, 9:54:07 AM
