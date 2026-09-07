@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tWlqGpXIpONNUGvF-iIvXgg-t500x500.png">](https://soundcloud.com/gazsummers/gaz-summers-know-my-worth-2026?in=saxurn/sets/jerrys-apt/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tItijCk9vQW6j6Ey-sc7yiQ-t500x500.jpg">](https://soundcloud.com/smashdwubz/okay)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: SMASH'D 
 
-**Track**: Gaz Summers - Know My Worth (2026 Update)(SC CLIP)
+**Track**: OKAY
 
-Last updated at 9/7/2026, 9:46:08 AM
+Last updated at 9/7/2026, 10:11:23 AM
