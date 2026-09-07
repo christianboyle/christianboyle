@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jf13uHeVqqhUtH6p-zctsCg-t500x500.jpg">](https://soundcloud.com/aceonearth/future-forest-nest)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MkzQ2qw7oglAEj61-uqxI7g-t500x500.jpg">](https://soundcloud.com/frank-zozky/bet-my-heart-3-wav)
 
-**Artist**: Ace On Earth 
+**Artist**: Frank Zozky 
 
-**Track**: Future Forest 2026 | Nest Stage
+**Track**: Bet My Heart
 
-Last updated at 9/7/2026, 9:30:57 AM
+Last updated at 9/7/2026, 9:32:57 AM
