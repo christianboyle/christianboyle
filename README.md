@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gngkd69aureb1Hpq-CfM2GQ-t500x500.jpg">](https://soundcloud.com/afterstoryx/winter)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fWINhLhw9PaZ3G0g-hHRtVA-t500x500.jpg">](https://soundcloud.com/align_music/hate-that-i-made-you-love-me)
 
-**Artist**: afterstory 
+**Artist**: ALIGN 
 
-**Track**: neoprada + akura - last winter (hazel, rage, revert)
+**Track**: Ariana Grande - hate that i made you love me (ALIGN Flip)
 
-Last updated at 9/7/2026, 10:12:27 AM
+Last updated at 9/7/2026, 10:13:33 AM
