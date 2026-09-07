@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tItijCk9vQW6j6Ey-sc7yiQ-t500x500.jpg">](https://soundcloud.com/smashdwubz/okay)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gngkd69aureb1Hpq-CfM2GQ-t500x500.jpg">](https://soundcloud.com/afterstoryx/winter)
 
-**Artist**: SMASH'D 
+**Artist**: afterstory 
 
-**Track**: OKAY
+**Track**: neoprada + akura - last winter (hazel, rage, revert)
 
-Last updated at 9/7/2026, 10:11:23 AM
+Last updated at 9/7/2026, 10:12:27 AM
