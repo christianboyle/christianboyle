@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cu6wqIHtC2c2Tj5y-lE3W3Q-t500x500.jpg">](https://soundcloud.com/steff-little/steff-little-set-me-free?in=saxurn/sets/untitled-playlist/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CjmL3RSmCbQqevTS-L4JlIA-t500x500.jpg">](https://soundcloud.com/enomerr/step-deh-v28-mstr4?in=saxurn/sets/untitled-playlist)
 
-**Artist**: Steff Little  
+**Artist**: Enomer 
 
-**Track**: Steff Little - Set Me Free
+**Track**: Enomer - STEPPY BOI
 
-Last updated at 9/7/2026, 9:37:17 AM
+Last updated at 9/7/2026, 9:38:17 AM
