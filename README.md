@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fWINhLhw9PaZ3G0g-hHRtVA-t500x500.jpg">](https://soundcloud.com/align_music/hate-that-i-made-you-love-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tItijCk9vQW6j6Ey-sc7yiQ-t500x500.jpg">](https://soundcloud.com/smashdwubz/okay)
 
-**Artist**: ALIGN 
+**Artist**: SMASH'D 
 
-**Track**: Ariana Grande - hate that i made you love me (ALIGN Flip)
+**Track**: OKAY
 
-Last updated at 9/7/2026, 10:13:33 AM
+Last updated at 9/7/2026, 10:37:59 AM
