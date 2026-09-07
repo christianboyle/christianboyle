@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iVytGHf4GPZ9n8Bx-2AL4CQ-t500x500.jpg">](https://soundcloud.com/bauti_music/otr-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTJDI1ntSgRUokD4-oepsfg-t500x500.jpg">](https://soundcloud.com/beetlejuke/whipped-cream-2u-beetlejuke-2)
 
-**Artist**: bauti 
+**Artist**: Beetlejuke 
 
-**Track**: ON THE RADAR SET
+**Track**: Whipped Cream - 2U (Beetlejuke & Gabriella Remix)
 
-Last updated at 9/7/2026, 9:26:22 AM
+Last updated at 9/7/2026, 9:27:27 AM
