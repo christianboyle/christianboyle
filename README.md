@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoXU3BtI69zJ3zXO-bWb9Sw-t500x500.jpg">](https://soundcloud.com/razrwav/nova-twins-n-o-v-a-razrwav?in=saxurn/sets/untitled-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53fvJOVhKvSng0T7-RyR5BA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/p3pper-jibaan-again-in-my-mind)
 
-**Artist**: RAZRWAV 
+**Artist**: NCS 
 
-**Track**: NOVA TWINS - N.O.V.A (RAZRWAV BOOTLEG)
+**Track**: P3PPER, Jibaan - Again (In My Mind) [NCS Release]
 
-Last updated at 9/7/2026, 9:40:27 AM
+Last updated at 9/7/2026, 9:42:17 AM
