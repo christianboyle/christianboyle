@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-CjmL3RSmCbQqevTS-L4JlIA-t500x500.jpg">](https://soundcloud.com/enomerr/step-deh-v28-mstr4?in=saxurn/sets/untitled-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5OBpCi8ATxzgVP3-U81pDA-t500x500.jpg">](https://soundcloud.com/meridiyn/tate-mcrae-you-broke-me-first?in=saxurn/sets/untitled-playlist)
 
-**Artist**: Enomer 
+**Artist**: Meridiyn 
 
-**Track**: Enomer - STEPPY BOI
+**Track**: Tate McRae - You Broke Me First (Meridiyn Flip)
 
-Last updated at 9/7/2026, 9:38:17 AM
+Last updated at 9/7/2026, 9:39:22 AM
