@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dQXGYyuyF2BcNf9D-Jih3hA-t500x500.jpg">](https://soundcloud.com/agedcheddar4/westvirginia)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cu6wqIHtC2c2Tj5y-lE3W3Q-t500x500.jpg">](https://soundcloud.com/steff-little/steff-little-set-me-free?in=saxurn/sets/untitled-playlist/)
 
-**Artist**: acres 
+**Artist**: Steff Little  
 
-**Track**: west virginia prod lyn stompingplastic
+**Track**: Steff Little - Set Me Free
 
-Last updated at 9/7/2026, 9:36:12 AM
+Last updated at 9/7/2026, 9:37:17 AM
