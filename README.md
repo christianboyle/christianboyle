@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-f2CnnCfH0aWDCsOy-F8UZvA-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-cool-with-the)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5yTPx11zQSl8NxxP-oiXGzQ-t500x500.png">](https://soundcloud.com/bauti_music/okok_bauti_dabow_flip)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: bauti, Dabow 
 
-**Track**: Dj Ainzi - Cool With The Monsters
+**Track**: Fred Again.. - OK OK (bauti & Dabow flip)
 
-Last updated at 9/7/2026, 9:24:22 AM
+Last updated at 9/7/2026, 9:25:22 AM
