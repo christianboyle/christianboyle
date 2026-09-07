@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53fvJOVhKvSng0T7-RyR5BA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/p3pper-jibaan-again-in-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ijGeqaJb8yRrmC0Y-SxiCTQ-t500x500.jpg">](https://soundcloud.com/cba_tbh/morgan-seatree-beat-is-1)
 
-**Artist**: NCS 
+**Artist**: cba_tbh 
 
-**Track**: P3PPER, Jibaan - Again (In My Mind) [NCS Release]
+**Track**: Morgan Seatree - Beat is Jumping (cba_tbh remix)
 
-Last updated at 9/7/2026, 9:42:17 AM
+Last updated at 9/7/2026, 9:43:28 AM
