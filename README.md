@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vzDRrpg9EzIUhfmx-8Zolmw-t500x500.jpg">](https://soundcloud.com/barongfamily/rexy-dexy-rejection-freak?in=saxurn/sets/apartment-5b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIq567fycEmqUu2V-SSD0iw-t500x500.png">](https://soundcloud.com/prettypinkhorrorstory/my-friends-over-you-pretty)
 
-**Artist**: REXY=DEXY, Rejection 
+**Artist**: Pretty Pink Horror Story 
 
-**Track**: REXY=DEXY, Rejection - Freak!
+**Track**: My Friends Over You - Pretty Pink Horror Story, Demitiri Medina
 
-Last updated at 9/7/2026, 10:47:49 AM
+Last updated at 9/7/2026, 5:08:32 PM
