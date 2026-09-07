@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G5OBpCi8ATxzgVP3-U81pDA-t500x500.jpg">](https://soundcloud.com/meridiyn/tate-mcrae-you-broke-me-first?in=saxurn/sets/untitled-playlist)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YoXU3BtI69zJ3zXO-bWb9Sw-t500x500.jpg">](https://soundcloud.com/razrwav/nova-twins-n-o-v-a-razrwav?in=saxurn/sets/untitled-playlist)
 
-**Artist**: Meridiyn 
+**Artist**: RAZRWAV 
 
-**Track**: Tate McRae - You Broke Me First (Meridiyn Flip)
+**Track**: NOVA TWINS - N.O.V.A (RAZRWAV BOOTLEG)
 
-Last updated at 9/7/2026, 9:39:22 AM
+Last updated at 9/7/2026, 9:40:27 AM
