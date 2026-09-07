@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTJDI1ntSgRUokD4-oepsfg-t500x500.jpg">](https://soundcloud.com/beetlejuke/whipped-cream-2u-beetlejuke-2?in=saxurn/sets/apartment-5b/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G4bxWy3Xn7TTqUOE-ffeGMQ-t500x500.jpg">](https://soundcloud.com/outforce/zerogravity)
 
-**Artist**: Beetlejuke 
+**Artist**: Outforce 
 
-**Track**: Whipped Cream - 2U (Beetlejuke & Gabriella Remix)
+**Track**: Outforce - Zero Gravity
 
-Last updated at 9/7/2026, 5:13:05 PM
+Last updated at 9/7/2026, 5:14:25 PM
