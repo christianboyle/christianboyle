@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIq567fycEmqUu2V-SSD0iw-t500x500.png">](https://soundcloud.com/prettypinkhorrorstory/my-friends-over-you-pretty)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XbPkhj2cym6nzVy2-LHyhiA-t500x500.jpg">](https://soundcloud.com/greyfate/callin)
 
-**Artist**: Pretty Pink Horror Story 
+**Artist**: greyfate, DEVOWR. 
 
-**Track**: My Friends Over You - Pretty Pink Horror Story, Demitiri Medina
+**Track**: DEVOWR. x greyfate - Callin'
 
-Last updated at 9/7/2026, 5:18:48 PM
+Last updated at 9/9/2026, 7:42:07 AM
