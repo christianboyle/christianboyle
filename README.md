@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XbPkhj2cym6nzVy2-LHyhiA-t500x500.jpg">](https://soundcloud.com/greyfate/callin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4LjtyPm6W1Gul7R-DLxkAQ-t500x500.jpg">](https://soundcloud.com/mickjay67/mickjay-makina-mix-glasgow)
 
-**Artist**: greyfate, DEVOWR. 
+**Artist**: MickJay 
 
-**Track**: DEVOWR. x greyfate - Callin'
+**Track**: MickJay - Makina Mix (Glasgow Rave Records)
 
-Last updated at 9/9/2026, 7:42:07 AM
+Last updated at 9/9/2026, 1:19:40 PM
