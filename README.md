@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AWXvU4mAgoXszzj0-zwUuTg-t500x500.jpg">](https://soundcloud.com/suitsandsnares/v-1x-4i)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53fvJOVhKvSng0T7-RyR5BA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/p3pper-jibaan-again-in-my-mind)
 
-**Artist**: Suits & Snares 
+**Artist**: NCS 
 
-**Track**: V-1X - 4i  (Free Download)
+**Track**: P3PPER, Jibaan - Again (In My Mind) [NCS Release]
 
-Last updated at 9/11/2026, 3:40:02 PM
+Last updated at 9/11/2026, 3:41:30 PM
