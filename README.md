@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4LjtyPm6W1Gul7R-DLxkAQ-t500x500.jpg">](https://soundcloud.com/mickjay67/mickjay-makina-mix-glasgow)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fAxtQd9enIelt3Jf-g1eIzA-t500x500.jpg">](https://soundcloud.com/musicbymetzo/melodic-vibes-mediterranean-6)
 
-**Artist**: MickJay 
+**Artist**: METZO 
 
-**Track**: MickJay - Makina Mix (Glasgow Rave Records)
+**Track**: Melodic Vibes Mediterranean Vol 32 Organic Progressive
 
-Last updated at 9/11/2026, 7:04:25 AM
+Last updated at 9/11/2026, 7:29:25 AM
