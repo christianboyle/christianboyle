@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTJDI1ntSgRUokD4-oepsfg-t500x500.jpg">](https://soundcloud.com/beetlejuke/whipped-cream-2u-beetlejuke-2?in=saxurn/sets/apartment-5b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XbPkhj2cym6nzVy2-LHyhiA-t500x500.jpg">](https://soundcloud.com/greyfate/callin?in=saxurn/sets/apartment-5b)
 
-**Artist**: Beetlejuke 
+**Artist**: greyfate, DEVOWR. 
 
-**Track**: Whipped Cream - 2U (Beetlejuke & Gabriella Remix)
+**Track**: DEVOWR. x greyfate - Callin'
 
-Last updated at 9/11/2026, 2:47:09 PM
+Last updated at 9/11/2026, 2:49:34 PM
