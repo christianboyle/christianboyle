@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q8LG5so9xCSCGwgk-C5y3zQ-t500x500.jpg">](https://soundcloud.com/4urc/clique-prod-heyjt-k0l)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-FBkQDeV3SpjkbLv3-LHGaMQ-t500x500.jpg">](https://soundcloud.com/gawmmusic/subtronics-bird-phone-gawm-1)
 
-**Artist**: xurco 
+**Artist**: SUBTRONICS,GAWM 
 
-**Track**: clique prod heyjt k0L
+**Track**: SUBTRONICS - BIRD PHONE (GAWM FLIP)
 
-Last updated at 9/11/2026, 4:05:53 PM
+Last updated at 9/11/2026, 4:07:03 PM
