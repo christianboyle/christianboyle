@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Zj42Kz5kOGTalLc6-wnn8cA-t500x500.jpg">](https://soundcloud.com/mindsplitter/stink-mode-mind-splitter-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGQ7jzysrbsGFnhX-S7jTVw-t500x500.jpg">](https://soundcloud.com/hardstylepopstar/naturally)
 
-**Artist**: Mind Splitter 
+**Artist**: hardstylepopstar 
 
-**Track**: STINK MODE (Mind Splitter Remix)
+**Track**: ✧༺NATURALLY༻✧ HARDSTYLE
 
-Last updated at 9/11/2026, 10:13:38 AM
+Last updated at 9/11/2026, 10:14:43 AM
