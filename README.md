@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vzDRrpg9EzIUhfmx-8Zolmw-t500x500.jpg">](https://soundcloud.com/barongfamily/rexy-dexy-rejection-freak?in=saxurn/sets/apartment-5b/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pTJDI1ntSgRUokD4-oepsfg-t500x500.jpg">](https://soundcloud.com/beetlejuke/whipped-cream-2u-beetlejuke-2?in=saxurn/sets/apartment-5b)
 
-**Artist**: REXY=DEXY, Rejection 
+**Artist**: Beetlejuke 
 
-**Track**: REXY=DEXY, Rejection - Freak!
+**Track**: Whipped Cream - 2U (Beetlejuke & Gabriella Remix)
 
-Last updated at 9/11/2026, 2:44:54 PM
+Last updated at 9/11/2026, 2:47:09 PM
