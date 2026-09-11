@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fAxtQd9enIelt3Jf-g1eIzA-t500x500.jpg">](https://soundcloud.com/musicbymetzo/melodic-vibes-mediterranean-6)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4WrSQzHbJpMf82t-j3RmYA-t500x500.jpg">](https://soundcloud.com/undefined/ribz-amaru-ultra-acid-3)
 
-**Artist**: METZO 
+**Artist**: Fatal Energy Records 
 
-**Track**: Melodic Vibes Mediterranean Vol 32 Organic Progressive
+**Track**: Ribz & Amaru - Ultra Acid Fantasy (B.O.W. Remix)
 
-Last updated at 9/11/2026, 7:29:25 AM
+Last updated at 9/11/2026, 9:57:33 AM
