@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVzRlVd3ZHBGG6CO-xyAOzA-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/light-it-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NUWLiSxuCBh9btkS-TZLh7w-t500x500.jpg">](https://soundcloud.com/sublabmusic/darkest-hour)
 
-**Artist**: Bounce Jackerz 
+**Artist**: Sublab 
 
-**Track**: light it up
+**Track**: DARKEST HOUR
 
-Last updated at 9/11/2026, 10:06:43 AM
+Last updated at 9/11/2026, 10:07:43 AM
