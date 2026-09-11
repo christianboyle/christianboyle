@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsDoE1Yy71wdXBd6-hR1yOw-t500x500.jpg">](https://soundcloud.com/cheekytracks/groovin-pf)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VVzRlVd3ZHBGG6CO-xyAOzA-t500x500.jpg">](https://soundcloud.com/bouncejackerz2/light-it-up)
 
-**Artist**: Jake Taylor 
+**Artist**: Bounce Jackerz 
 
-**Track**: Jake Taylor - Groovin (On The Floor) (Pump Fiction remix)
+**Track**: light it up
 
-Last updated at 9/11/2026, 10:05:27 AM
+Last updated at 9/11/2026, 10:06:43 AM
