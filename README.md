@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hN8eIWJXEP3zaG9S-GmEGAw-t500x500.jpg">](https://soundcloud.com/stinny-stone/hard)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MsDoE1Yy71wdXBd6-hR1yOw-t500x500.jpg">](https://soundcloud.com/cheekytracks/groovin-pf)
 
-**Artist**: STINNY STONE \(★ω★)/ 
+**Artist**: Jake Taylor 
 
-**Track**: Hard
+**Track**: Jake Taylor - Groovin (On The Floor) (Pump Fiction remix)
 
-Last updated at 9/11/2026, 10:04:27 AM
+Last updated at 9/11/2026, 10:05:27 AM
