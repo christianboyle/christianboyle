@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uGQ7jzysrbsGFnhX-S7jTVw-t500x500.jpg">](https://soundcloud.com/hardstylepopstar/naturally)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JozplhBikNNN87GJ-jRFzAQ-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/bezerk-fall-into-you)
 
-**Artist**: hardstylepopstar 
+**Artist**: Rewired Records 
 
-**Track**: ✧༺NATURALLY༻✧ HARDSTYLE
+**Track**: Calzo - Fall Into You
 
-Last updated at 9/11/2026, 10:14:43 AM
+Last updated at 9/11/2026, 10:15:43 AM
