@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SDVgL7gCKXJzA0yW-7yLi0Q-t500x500.jpg">](https://soundcloud.com/hiddenaudiosexclusive/magic-ft-sk8zay-prod-1sewzz)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-c8g1PtYziXnql0cR-M2jq8A-t500x500.png">](https://soundcloud.com/noertheboy/easy-for-them-noer-the-boy-edit?in=saxurn/sets/apartment-5a/)
 
-**Artist**: slover, sk8zay 
+**Artist**: Noer the Boy 
 
-**Track**: magic ft sk8zay prod 1sewzz [hidden audios exclusive]
+**Track**: Rohaan - Easy for them (Noer the Boy Edit) [CLIP]
 
-Last updated at 9/11/2026, 10:16:43 AM
+Last updated at 9/11/2026, 2:42:52 PM
