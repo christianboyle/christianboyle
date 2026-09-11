@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-L4WrSQzHbJpMf82t-j3RmYA-t500x500.jpg">](https://soundcloud.com/undefined/ribz-amaru-ultra-acid-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-estfai2zx4nzDnXy-tmupbw-t500x500.jpg">](https://soundcloud.com/fromthaguttah-records/shreztah-8-bit-thug-thaguttahfiles-v1-30)
 
-**Artist**: Fatal Energy Records 
+**Artist**: FromThaGuttah Records 
 
-**Track**: Ribz & Amaru - Ultra Acid Fantasy (B.O.W. Remix)
+**Track**: Shreztah - 8 Bit Thug
 
-Last updated at 9/11/2026, 9:57:33 AM
+Last updated at 9/11/2026, 10:01:53 AM
