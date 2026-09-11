@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cbfGsKWIfiv3vFeU-tbXAhg-t500x500.jpg">](https://soundcloud.com/natepattaz/digital-industries-celestials)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q8LG5so9xCSCGwgk-C5y3zQ-t500x500.jpg">](https://soundcloud.com/4urc/clique-prod-heyjt-k0l)
 
-**Artist**: Agent Blue | Mad Trax | Makina Arena 
+**Artist**: xurco 
 
-**Track**: Digital Industries - Celestials
+**Track**: clique prod heyjt k0L
 
-Last updated at 9/11/2026, 4:01:43 PM
+Last updated at 9/11/2026, 4:05:53 PM
