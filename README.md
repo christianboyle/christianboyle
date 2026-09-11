@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53fvJOVhKvSng0T7-RyR5BA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/p3pper-jibaan-again-in-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-tdId17zJOmu727ge-qSRQfw-t500x500.jpg">](https://soundcloud.com/joshuarsm/alaloo)
 
-**Artist**: NCS 
+**Artist**: JUSH 
 
-**Track**: P3PPER, Jibaan - Again (In My Mind) [NCS Release]
+**Track**: ALALOO
 
-Last updated at 9/11/2026, 3:41:30 PM
+Last updated at 9/11/2026, 3:52:38 PM
