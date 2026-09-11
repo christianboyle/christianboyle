@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JraVzgMyJJLEZsY6-AdUtMQ-t500x500.jpg">](https://soundcloud.com/beauzworld/beauz-lockdown-caroline-roxy-go-baddie-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ciyq6L6LezPufXsD-U2J0IQ-t500x500.jpg">](https://soundcloud.com/kyros_f/like-the-way-it-sounds)
 
-**Artist**: BEAUZ, Lockdown, Caroline Roxy 
+**Artist**: Kyros 
 
-**Track**: GO BADDIE
+**Track**: Like The Way It Sounds
 
-Last updated at 9/11/2026, 10:09:03 AM
+Last updated at 9/11/2026, 10:10:33 AM
