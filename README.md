@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Buvsbf5ByutcbX3Q-MIgbvw-t500x500.jpg">](https://soundcloud.com/v1xmusic/v-1x-y444)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hN8eIWJXEP3zaG9S-GmEGAw-t500x500.jpg">](https://soundcloud.com/stinny-stone/hard)
 
-**Artist**: V-1X 
+**Artist**: STINNY STONE \(★ω★)/ 
 
-**Track**: Y444
+**Track**: Hard
 
-Last updated at 9/11/2026, 10:03:28 AM
+Last updated at 9/11/2026, 10:04:27 AM
