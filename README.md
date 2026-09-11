@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MZWlrJwdOKzsRxZ6-i08isA-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/back-to-basics-back-998957943)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QBzIq0d9NWwxHTFz-Juw7Lg-t500x500.jpg">](https://soundcloud.com/kennasteven1980/jay-black-finally-wicked)
 
-**Artist**: Dj Des 
+**Artist**: KLUBB EFEKT / SECTION 18 / RISKIT / KODE 4 
 
-**Track**: Back to Basics , Back to the Old Skool  ( Volume 14  Mokum Records )
+**Track**: Jay Black - Finally Wicked
 
-Last updated at 9/11/2026, 4:08:43 PM
+Last updated at 9/11/2026, 4:09:43 PM
