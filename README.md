@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53fvJOVhKvSng0T7-RyR5BA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/p3pper-jibaan-again-in-my-mind)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XbPkhj2cym6nzVy2-LHyhiA-t500x500.jpg">](https://soundcloud.com/greyfate/callin)
 
-**Artist**: NCS 
+**Artist**: greyfate, DEVOWR. 
 
-**Track**: P3PPER, Jibaan - Again (In My Mind) [NCS Release]
+**Track**: DEVOWR. x greyfate - Callin'
 
-Last updated at 9/12/2026, 6:56:44 AM
+Last updated at 9/12/2026, 7:00:22 AM
