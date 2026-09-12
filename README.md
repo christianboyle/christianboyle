@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QBzIq0d9NWwxHTFz-Juw7Lg-t500x500.jpg">](https://soundcloud.com/kennasteven1980/jay-black-finally-wicked)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-53fvJOVhKvSng0T7-RyR5BA-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/p3pper-jibaan-again-in-my-mind)
 
-**Artist**: KLUBB EFEKT / SECTION 18 / RISKIT / KODE 4 
+**Artist**: NCS 
 
-**Track**: Jay Black - Finally Wicked
+**Track**: P3PPER, Jibaan - Again (In My Mind) [NCS Release]
 
-Last updated at 9/11/2026, 4:09:43 PM
+Last updated at 9/12/2026, 6:56:44 AM
