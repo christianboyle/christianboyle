@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnIDJ4SjmVF3Q3Oy-hxuTvQ-t500x500.jpg">](https://soundcloud.com/nannamakina/nanna-makina-creamfields-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lHky4bNUlu74fy85-kTX4Qg-t500x500.jpg">](https://soundcloud.com/iamhvrcrft/hvrcrft-x-layne-tadesse-time-2)
 
-**Artist**: Nanna Makina 
+**Artist**: HVRCRFT  
 
-**Track**: Nanna Makina Creamfields 2026
+**Track**: CYNDI LAUPER - TIME AFTER TIME (HVRCRFT x LAYNE FLIP)
 
-Last updated at 9/13/2026, 6:47:38 AM
+Last updated at 9/13/2026, 9:51:39 AM
