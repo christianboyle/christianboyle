@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lHky4bNUlu74fy85-kTX4Qg-t500x500.jpg">](https://soundcloud.com/iamhvrcrft/hvrcrft-x-layne-tadesse-time-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-E70RXCczZQeiQn97-H3hzzA-t500x500.jpg">](https://soundcloud.com/ridgezbass/sh26)
 
-**Artist**: HVRCRFT  
+**Artist**: ᨒRIDGEZᨒ 
 
-**Track**: CYNDI LAUPER - TIME AFTER TIME (HVRCRFT x LAYNE FLIP)
+**Track**: Sound Haven 2026 Set - RIDGEZ
 
-Last updated at 9/14/2026, 9:15:34 AM
+Last updated at 9/15/2026, 7:24:22 AM
