@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCZWiE0bhBkc20TQ-orS39A-t500x500.jpg">](https://soundcloud.com/wkd-sounds/bounce-nrg-ized-20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-yKShpbG9THyu1Vf5-yxQVcQ-t500x500.jpg">](https://soundcloud.com/user-560250574/rec005-1)
 
-**Artist**: WkdSounds™ - Vennootschap 
+**Artist**: EDEN FAYE MUSIC ✅ 
 
-**Track**: BOUNCE NRG-IZED 20
+**Track**: TRANSENSUAL EPISODE 1
 
-Last updated at 9/17/2026, 6:23:03 AM
+Last updated at 9/17/2026, 6:24:49 AM
