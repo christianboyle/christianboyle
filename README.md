@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1l0Oe1FtJrcJ3gNu-zrD9uA-t500x500.jpg">](https://soundcloud.com/galla-1/vol-35-english-vs-spanish)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BCZWiE0bhBkc20TQ-orS39A-t500x500.jpg">](https://soundcloud.com/wkd-sounds/bounce-nrg-ized-20)
 
-**Artist**: DJ OBLIVION 
+**Artist**: WkdSounds™ - Vennootschap 
 
-**Track**: VOL 35 English VS Spanish Makina PT 4
+**Track**: BOUNCE NRG-IZED 20
 
-Last updated at 9/17/2026, 6:22:04 AM
+Last updated at 9/17/2026, 6:23:03 AM
