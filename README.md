@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XR8JztRzb6KRDX0T-EN3PIg-t500x500.jpg">](https://soundcloud.com/nullrecuk/null-mix-19-fergie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-q4j4FDJOEWSCIO3f-0UJzLA-t500x500.jpg">](https://soundcloud.com/karlodee93/karl-odee-dmb-vs-agent-blue-vs)
 
-**Artist**: NullRec 
+**Artist**: DJKARLODEE 
 
-**Track**: Null Mix 19 | Fergie
+**Track**: KARL ODEE // DMB VS AGENT BLUE VS STATIC // JUST WING IT VOL.1
 
-Last updated at 9/18/2026, 3:36:12 PM
+Last updated at 9/18/2026, 3:37:11 PM
