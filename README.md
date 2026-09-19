@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-h5dS8rGZktpq6N9z-4g5yYg-t500x500.jpg">](https://soundcloud.com/kenny-2-1/kenny-hayes-change-vocal-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BmIxVwaAM2lM71tm-KsA79Q-t500x500.jpg">](https://soundcloud.com/hgods/esdeekid-rockwave-hgods-remix)
 
-**Artist**: Kenny Hayes 
+**Artist**: HGods 
 
-**Track**: KENNY HAYES - Change [Vocal Mix]
+**Track**: Esdeekid - Rockwave (HGods Remix)
 
-Last updated at 9/19/2026, 10:54:53 AM
+Last updated at 9/19/2026, 10:56:02 AM
