@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-M6ENK3yB3D85B2Cq-n8s9zw-t500x500.jpg">](https://soundcloud.com/hardcorehooligan78/ramos-b2b-supreme-hh-vs-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qSTcW0TeH01qGYBK-gkUVcg-t500x500.jpg">](https://soundcloud.com/akashahofficial/bangbang)
 
-**Artist**: Hardcore Hooligan™️ 
+**Artist**: STAR SEED, AKASHAH 
 
-**Track**: Ramos B2B Supreme @ HH vs Slinky - Round 3 - Opera House Bournemouth (05/12/2005)
+**Track**: STAR SEED & AKASHAH - Bang Bang (My Baby Shot Me Down)
 
-Last updated at 9/19/2026, 10:57:23 AM
+Last updated at 9/19/2026, 10:58:22 AM
