@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XbPkhj2cym6nzVy2-LHyhiA-t500x500.jpg">](https://soundcloud.com/greyfate/callin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzU5c8EhiO27UoZV-MWsmZw-t500x500.jpg">](https://soundcloud.com/41rossco/fl34)
 
-**Artist**: greyfate, DEVOWR. 
+**Artist**: DJ.Rossco 
 
-**Track**: DEVOWR. x greyfate - Callin'
+**Track**: 16.9.26
 
-Last updated at 9/20/2026, 7:42:27 AM
+Last updated at 9/20/2026, 11:58:13 AM
