@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qSTcW0TeH01qGYBK-gkUVcg-t500x500.jpg">](https://soundcloud.com/akashahofficial/bangbang)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XbPkhj2cym6nzVy2-LHyhiA-t500x500.jpg">](https://soundcloud.com/greyfate/callin)
 
-**Artist**: STAR SEED, AKASHAH 
+**Artist**: greyfate, DEVOWR. 
 
-**Track**: STAR SEED & AKASHAH - Bang Bang (My Baby Shot Me Down)
+**Track**: DEVOWR. x greyfate - Callin'
 
-Last updated at 9/19/2026, 10:58:22 AM
+Last updated at 9/19/2026, 7:19:10 PM
