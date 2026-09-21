@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GzU5c8EhiO27UoZV-MWsmZw-t500x500.jpg">](https://soundcloud.com/41rossco/fl34)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iYgCCg3uPpNLiJKx-h2g7ig-t500x500.jpg">](https://soundcloud.com/stratisbambam/coyote-my-love)
 
-**Artist**: DJ.Rossco 
+**Artist**: INF3RNUS 
 
-**Track**: 16.9.26
+**Track**: Coyote My Love
 
-Last updated at 9/20/2026, 11:58:13 AM
+Last updated at 9/21/2026, 7:20:07 AM
