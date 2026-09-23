@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooERPpko0ADVtfXJ-hK5jLw-t500x500.jpg">](https://soundcloud.com/h3aly/8-ball-b2b-healy-techno-noize)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x5oFapIxNHaKaukn-SnaE5w-t500x500.jpg">](https://soundcloud.com/monta-musica/breakdown-lxve-love-me-not)
 
-**Artist**: Healy B2B 8 Ball 
+**Artist**: Monta Musica 
 
-**Track**: Healy B2B 8 Ball @ Techno Noize Christmas Event 2025
+**Track**: BREAKDOWN & LXVE - Love me not
 
-Last updated at 9/22/2026, 6:20:35 AM
+Last updated at 9/23/2026, 6:17:48 AM
