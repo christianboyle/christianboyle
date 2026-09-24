@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1eIzXi41vQ9BV6yy-mh5Yxg-t500x500.jpg">](https://soundcloud.com/valleriamusic/bounce)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IuyliAP6yEEtpwre-atdvWQ-t500x500.png">](https://soundcloud.com/vowlmusic/vowl-x-barnacle-boi-if-onlyy)
 
-**Artist**: Valleria 
+**Artist**: vowl., BARNACLE BOI 
 
-**Track**: Bounce
+**Track**: vowl. x BARNACLE BOI - if only
 
-Last updated at 9/24/2026, 6:17:00 AM
+Last updated at 9/24/2026, 6:18:01 AM
