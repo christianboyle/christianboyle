@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dMeG7OQunsYIBS80-1DqrlQ-t500x500.jpg">](https://soundcloud.com/bangerangnetwork/bn100)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-61AaoKaZrkiLrH0l-S01rsQ-t500x500.jpg">](https://soundcloud.com/monta-musica/assault-start-the-machine)
 
-**Artist**: Sascha Nell, HHMR & Mel  
+**Artist**: Monta Musica 
 
-**Track**: Sascha Nell, HHMR & Mel - Feel Again
+**Track**: Assault - Start The Machine
 
-Last updated at 9/24/2026, 6:19:05 AM
+Last updated at 9/24/2026, 6:20:05 AM
