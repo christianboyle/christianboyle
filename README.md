@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWKZS9ghzz9UdU3h-ayz4kw-t500x500.jpg">](https://soundcloud.com/david-doak/doaky-dj-jas-l-414251266)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZVZQ16eHjc86apZS-86DSIQ-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/brutal-kuts-that-happy)
 
-**Artist**: Doaky Dj Jas L Dazzy B 
+**Artist**: DRIFT 
 
-**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 40 Featuring Dazzy B(Tracklist In Description)
+**Track**: BRUTAL KUTS - THAT HAPPY HARDCORE SOUND - VOLUME 9 (MIXED BY DRIFT) TRACKLISTED
 
-Last updated at 9/25/2026, 9:08:09 PM
+Last updated at 9/25/2026, 9:23:04 PM
