@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-43PlHcW4C03iJJLG-dhY77A-t500x500.jpg">](https://soundcloud.com/mick-hack-400828575/classic-makina-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wWKZS9ghzz9UdU3h-ayz4kw-t500x500.jpg">](https://soundcloud.com/david-doak/doaky-dj-jas-l-414251266)
 
-**Artist**: Mick Hack 
+**Artist**: Doaky Dj Jas L Dazzy B 
 
-**Track**: Classic Makina set
+**Track**: Doaky & Dj Jas L - Bouncy Bangerz Vol 40 Featuring Dazzy B(Tracklist In Description)
 
-Last updated at 9/24/2026, 6:21:22 AM
+Last updated at 9/25/2026, 9:08:09 PM
