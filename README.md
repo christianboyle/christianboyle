@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qyIWyINiNqr29DEZ-aoW2Ww-t500x500.jpg">](https://soundcloud.com/recallrecords/final-boss)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnIDJ4SjmVF3Q3Oy-hxuTvQ-t500x500.jpg">](https://soundcloud.com/nannamakina/nanna-makina-creamfields-2026)
 
-**Artist**: DEWZIX 
+**Artist**: Nanna Makina 
 
-**Track**: DEWZIX - Final Boss
+**Track**: Nanna Makina Creamfields 2026
 
-Last updated at 9/29/2026, 6:55:30 PM
+Last updated at 9/29/2026, 6:57:39 PM
