@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ER5Eh1rB6muyuYpQ-po8aoQ-t500x500.jpg">](https://soundcloud.com/ninety4n/nickatnight)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5BSrSjLBeNZiQgxn-z6Ta1g-t500x500.jpg">](https://soundcloud.com/zenselekta/zen-selekta-at-soundhaven-2026)
 
-**Artist**: NINETY4N 
+**Artist**: Zen Selekta 
 
-**Track**: Nick@Night Vol. 1
+**Track**: ZEN SELEKTA LIVE AT SOUNDHAVEN 2026
 
-Last updated at 9/29/2026, 6:23:19 AM
+Last updated at 9/29/2026, 6:54:19 PM
