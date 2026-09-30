@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-IdujMiC7t1nq-0-t500x500.jpg">](https://soundcloud.com/wandw/impacto-makina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-VaN1yQXuHUMn3Kcf-SDpgPw-t500x500.jpg">](https://soundcloud.com/nannamakina/nanna-makina-sunrise-set-south)
 
-**Artist**: W&W, Schak, DJ Skryker 
+**Artist**: Nanna Makina 
 
-**Track**: Impacto (Makina)
+**Track**: Nanna Makina Sunrise Set South Shields
 
-Last updated at 9/29/2026, 8:38:46 PM
+Last updated at 9/29/2026, 8:39:53 PM
