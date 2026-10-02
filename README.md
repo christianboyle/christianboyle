@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T4GwrXMzIqjLrodM-Qf9zoA-t500x500.jpg">](https://soundcloud.com/gazsummers/darren-styles-miss-you-gaz?in=saxurn/sets/switch-up/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w50VFZxWk8Z1uyh8-XGnzfQ-t500x500.jpg">](https://soundcloud.com/pearsy_beats/blp-kosher-jack-and-jill?in=saxurn/sets/switch-up/)
 
-**Artist**: Gaz Summers (uk hardcore dj/producer) 
+**Artist**: pearsy. 
 
-**Track**: Darren Styles - Miss You (Gaz Summers Remix)
+**Track**: BLP Kosher - Jack and Jill (pearsy. flip)
 
-Last updated at 10/2/2026, 2:42:19 PM
+Last updated at 10/2/2026, 2:46:09 PM
