@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXNjBcDpM3mYM1TS-CcyWew-t500x500.jpg">](https://soundcloud.com/careinq/dont-tell-me-maple-remix-1?in=saxurn/sets/switch-up/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DLasDKlgxcj9uqc9-wSNa6A-t500x500.png">](https://soundcloud.com/monta-musica/dmb-spark-remix?in=saxurn/sets/switch-up/)
 
-**Artist**: Maple 
+**Artist**: Monta Musica 
 
-**Track**: Avril Lavigne - Don't Tell Me (Maple Remix)
+**Track**: DMB - Spark (REMIX)
 
-Last updated at 10/2/2026, 2:32:19 PM
+Last updated at 10/2/2026, 2:36:09 PM
