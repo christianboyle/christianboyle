@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3PIzXYoifQWnhsuS-hu5qhg-t500x500.jpg">](https://soundcloud.com/natepattaz/ali-overdrive-right-time-down?in=saxurn/sets/switch-up/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-T4GwrXMzIqjLrodM-Qf9zoA-t500x500.jpg">](https://soundcloud.com/gazsummers/darren-styles-miss-you-gaz?in=saxurn/sets/switch-up/)
 
-**Artist**: Agent Blue | Mad Trax | Makina Arena 
+**Artist**: Gaz Summers (uk hardcore dj/producer) 
 
-**Track**: Ali Overdrive - Right Time  ( Down Mix ) 140 BPM
+**Track**: Darren Styles - Miss You (Gaz Summers Remix)
 
-Last updated at 10/2/2026, 2:39:09 PM
+Last updated at 10/2/2026, 2:42:19 PM
