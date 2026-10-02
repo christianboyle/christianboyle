@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MMGLbCXLfyTk5qOz-7y2leQ-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-october-2026-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-45L6YPNLVHxnoAfu-LYyJMg-t500x500.jpg">](https://soundcloud.com/gdubz/og-mixtape-vol-2)
 
-**Artist**: Outburst 
+**Artist**: G Dubz 
 
-**Track**: Outburst - October 2026 Hardcore Mix
+**Track**: OG Mixtape Vol 2 (G Dubz Music)
 
-Last updated at 10/2/2026, 6:15:32 AM
+Last updated at 10/2/2026, 6:16:56 AM
