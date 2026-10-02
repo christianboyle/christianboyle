@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sBdc3vyTzLqCKKM8-WfPd1g-t500x500.jpg">](https://soundcloud.com/lucasdileo1/uicideboy-2009-reggie-bush?in=saxurn/sets/switch-up/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aXNjBcDpM3mYM1TS-CcyWew-t500x500.jpg">](https://soundcloud.com/careinq/dont-tell-me-maple-remix-1?in=saxurn/sets/switch-up/)
 
-**Artist**: Lucas DiLeo , $uicideboy$ 
+**Artist**: Maple 
 
-**Track**: $uicideboy$ - 2009 Reggie Bush (Lucas DiLeo Flip)
+**Track**: Avril Lavigne - Don't Tell Me (Maple Remix)
 
-Last updated at 10/2/2026, 2:28:49 PM
+Last updated at 10/2/2026, 2:32:19 PM
