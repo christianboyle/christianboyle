@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gVgcyq2xXChMCYVB-Tgzecg-t500x500.jpg">](https://soundcloud.com/hard_hooks/bounce-full-send-003)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sBdc3vyTzLqCKKM8-WfPd1g-t500x500.jpg">](https://soundcloud.com/lucasdileo1/uicideboy-2009-reggie-bush?in=saxurn/sets/switch-up/)
 
-**Artist**: Hard Hooks 
+**Artist**: Lucas DiLeo , $uicideboy$ 
 
-**Track**: Bounce Full Send // 003 ⭐️
+**Track**: $uicideboy$ - 2009 Reggie Bush (Lucas DiLeo Flip)
 
-Last updated at 10/2/2026, 2:26:39 PM
+Last updated at 10/2/2026, 2:28:49 PM
