@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w50VFZxWk8Z1uyh8-XGnzfQ-t500x500.jpg">](https://soundcloud.com/pearsy_beats/blp-kosher-jack-and-jill?in=saxurn/sets/switch-up/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gJZDREyIo28eL8WY-cmhnyA-t500x500.jpg">](https://soundcloud.com/cltxx/premiere-cltx-baila?in=saxurn/sets/switch-up/)
 
-**Artist**: pearsy. 
+**Artist**: CLTX 
 
-**Track**: BLP Kosher - Jack and Jill (pearsy. flip)
+**Track**: CLTX - Baila
 
-Last updated at 10/2/2026, 2:46:09 PM
+Last updated at 10/2/2026, 2:48:24 PM
