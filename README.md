@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DLasDKlgxcj9uqc9-wSNa6A-t500x500.png">](https://soundcloud.com/monta-musica/dmb-spark-remix?in=saxurn/sets/switch-up/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3PIzXYoifQWnhsuS-hu5qhg-t500x500.jpg">](https://soundcloud.com/natepattaz/ali-overdrive-right-time-down?in=saxurn/sets/switch-up/)
 
-**Artist**: Monta Musica 
+**Artist**: Agent Blue | Mad Trax | Makina Arena 
 
-**Track**: DMB - Spark (REMIX)
+**Track**: Ali Overdrive - Right Time  ( Down Mix ) 140 BPM
 
-Last updated at 10/2/2026, 2:36:09 PM
+Last updated at 10/2/2026, 2:39:09 PM
