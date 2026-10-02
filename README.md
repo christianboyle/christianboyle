@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jioz70emqFdzPyyg-cabtQg-t500x500.jpg">](https://soundcloud.com/djtommyd88/florida-breaks-mix-tommy-d-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MMGLbCXLfyTk5qOz-7y2leQ-t500x500.jpg">](https://soundcloud.com/dj-outburst/outburst-october-2026-hardcore)
 
-**Artist**: Dj Tommy D 
+**Artist**: Outburst 
 
-**Track**: florida breaks mix Tommy d and Madcats
+**Track**: Outburst - October 2026 Hardcore Mix
 
-Last updated at 10/1/2026, 6:08:02 AM
+Last updated at 10/2/2026, 6:15:32 AM
