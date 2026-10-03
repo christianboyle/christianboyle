@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-oyFpzuEAJC2W5pPy-jOe2sQ-t500x500.jpg">](https://soundcloud.com/user-182428590/kick-back-makina)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vEF6yyutszfE1MJ6-ToKsCA-t500x500.jpg">](https://soundcloud.com/hard_hooks/bounce-001)
 
-**Artist**: MCK 
+**Artist**: Hard Hooks 
 
-**Track**: KICK BACK - MAKINA
+**Track**: Bounce Full Send // 001 ⭐️
 
-Last updated at 10/2/2026, 2:57:49 PM
+Last updated at 10/3/2026, 1:12:02 PM
