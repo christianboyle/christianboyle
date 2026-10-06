@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rsOy7IO6rFAwBFf5-Yf6BZg-t500x500.jpg">](https://soundcloud.com/west-coast-residencyedits/snow-tha-product-bzrp-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Ahf3dfzUQWdhs7Uj-pzIwDQ-t500x500.jpg">](https://soundcloud.com/eternalmusicc/just-dance-eternal-flip)
 
-**Artist**: West Coast Residency Edits, Everettz 
+**Artist**: ETERNAL 
 
-**Track**: Bizarrap & Snow tha Product - Bzrp Music Sessions, Vol. 39 (Everettz Remix)
+**Track**: LADY GAGA - JUST DANCE (ETERNAL FLIP)
 
-Last updated at 10/6/2026, 6:18:27 AM
+Last updated at 10/6/2026, 6:19:27 AM
