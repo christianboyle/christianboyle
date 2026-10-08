@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fB6zrFIOQuSoC1Qe-EsnPAg-t500x500.jpg">](https://soundcloud.com/s3rl/move-with-you-vvvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGnsXSvSuEttqcU2-AQQabA-t500x500.jpg">](https://soundcloud.com/user-415548850/my-bonkers-birthday-mix)
 
-**Artist**: S3RL 
+**Artist**: Dj Ganty 
 
-**Track**: Move With You (VVVIP)
+**Track**: My Bonkers Birthday Mix!
 
-Last updated at 10/7/2026, 7:24:01 PM
+Last updated at 10/8/2026, 6:20:59 AM
