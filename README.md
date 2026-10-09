@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XN6osK9mjNivRrQ9-F6jGvQ-t500x500.jpg">](https://soundcloud.com/djkyleharrison/westlife-my-love-dj-lllen-kyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-3tl11A8dJLJEQwp5-ffVBLg-t500x500.jpg">](https://soundcloud.com/thatfoxdub/why-do-i-care-so-much-6)
 
-**Artist**: Westlife, DJ Allen, Kyle Harrison 
+**Artist**: F.o.x 
 
-**Track**: Westlife - My Love (DJ Λllen & Kyle Harrison Bootleg) *Copyright Preview*
+**Track**: Why Do I Care so Much
 
-Last updated at 10/9/2026, 8:57:45 AM
+Last updated at 10/9/2026, 9:04:00 AM
