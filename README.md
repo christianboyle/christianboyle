@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-r5rl2mGl4iyBysyr-IFZioQ-t500x500.jpg">](https://soundcloud.com/seanbeing/curse-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ooERPpko0ADVtfXJ-hK5jLw-t500x500.jpg">](https://soundcloud.com/h3aly/8-ball-b2b-healy-techno-noize)
 
-**Artist**: Seán Being 
+**Artist**: Healy B2B 8 Ball 
 
-**Track**: Curse It
+**Track**: Healy B2B 8 Ball @ Techno Noize Christmas Event 2025
 
-Last updated at 10/9/2026, 11:01:50 AM
+Last updated at 10/9/2026, 1:42:53 PM
