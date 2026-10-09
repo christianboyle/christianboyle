@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PY3ommRMBpDbIZ8y-WuKyCw-t500x500.jpg">](https://soundcloud.com/flybassmusic/oracle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21GTUuGOENvOxLxm-mA09nA-t500x500.jpg">](https://soundcloud.com/djpulsepodcast/techno-is-dead-tribal-church)
 
-**Artist**: FLY 
+**Artist**: Dj Pulse 
 
-**Track**: ORACLE
+**Track**: End of techno  (tribal church)
 
-Last updated at 10/8/2026, 8:07:17 PM
+Last updated at 10/8/2026, 8:15:42 PM
