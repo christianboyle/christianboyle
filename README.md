@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gb6UqgoXkhSkw88A-M3ysAA-t500x500.png">](https://soundcloud.com/domeofdoom/dabow-quiero-el-bass-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0gjaKQkqNHDVxyDX-twbFkQ-t500x500.jpg">](https://soundcloud.com/jamzbondmusic/hitmon-jamz-bond)
 
-**Artist**: DOMEOFDOOM 
+**Artist**: Jamz Bond 
 
-**Track**: Dabow - Quiero El Bass
+**Track**: Hitmon - Jamz Bond
 
-Last updated at 10/8/2026, 7:57:05 PM
+Last updated at 10/8/2026, 7:58:05 PM
