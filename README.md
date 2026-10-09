@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NzIink2TigYo-0-t500x500.jpg">](https://soundcloud.com/tidyofficial/tidy-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sTVOmdv2WNenW29e-o6WRNw-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-bounce-god-part-4)
 
-**Artist**: Technikal 
+**Artist**: Dj Ainzi (Donk House Records) 
 
-**Track**: Tidy Up
+**Track**: Dj Ainzi - Bounce God Part 4 (Full Album)
 
-Last updated at 10/9/2026, 9:14:11 AM
+Last updated at 10/9/2026, 9:19:00 AM
