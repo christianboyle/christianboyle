@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hgV3sslO3tHa00FU-j4jXCw-t500x500.png">](https://soundcloud.com/undefined/taggy-runaway)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y2sDQO1V9i3BoJL9-fG8Ekw-t500x500.jpg">](https://soundcloud.com/monta-musica/agent-blue-tornado)
 
-**Artist**: TAGGY 
+**Artist**: Monta Musica 
 
-**Track**: Taggy - Runaway
+**Track**: AGENT BLUE - Tornado
 
-Last updated at 10/8/2026, 8:00:42 PM
+Last updated at 10/8/2026, 8:01:47 PM
