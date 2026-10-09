@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utPblSUupiv16KMj-6muhaQ-t500x500.jpg">](https://soundcloud.com/split_bass/hollow-split-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7bBvArU3zRMA8ql-3M88DQ-t500x500.jpg">](https://soundcloud.com/hector-romero-morte/rawstyle-2026-07-29)
 
-**Artist**: SPLiT 
+**Artist**: HEKTOR 
 
-**Track**: Of The Trees, LYNY - Hollow (SPLiT Flip)
+**Track**: RAWSTYLE (2026-07-29)
 
-Last updated at 10/8/2026, 8:19:08 PM
+Last updated at 10/8/2026, 8:24:27 PM
