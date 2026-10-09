@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-V7bBvArU3zRMA8ql-3M88DQ-t500x500.jpg">](https://soundcloud.com/hector-romero-morte/rawstyle-2026-07-29)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A4of9PsUBQwsrzBb-H3YyYg-t500x500.jpg">](https://soundcloud.com/renegadesystem/renegade-system-heaven-is-a)
 
-**Artist**: HEKTOR 
+**Artist**: Renegade System 
 
-**Track**: RAWSTYLE (2026-07-29)
+**Track**: Renegade System - Heaven Is A Place On Earth (Original 96 Mix)
 
-Last updated at 10/9/2026, 6:19:12 AM
+Last updated at 10/9/2026, 8:47:00 AM
