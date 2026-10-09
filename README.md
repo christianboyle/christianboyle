@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BGnsXSvSuEttqcU2-AQQabA-t500x500.jpg">](https://soundcloud.com/user-415548850/my-bonkers-birthday-mix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gb6UqgoXkhSkw88A-M3ysAA-t500x500.png">](https://soundcloud.com/domeofdoom/dabow-quiero-el-bass-3)
 
-**Artist**: Dj Ganty 
+**Artist**: DOMEOFDOOM 
 
-**Track**: My Bonkers Birthday Mix!
+**Track**: Dabow - Quiero El Bass
 
-Last updated at 10/8/2026, 6:20:59 AM
+Last updated at 10/8/2026, 7:57:05 PM
