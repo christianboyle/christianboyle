@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-A4of9PsUBQwsrzBb-H3YyYg-t500x500.jpg">](https://soundcloud.com/renegadesystem/renegade-system-heaven-is-a)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l8wHbhZnG2BCX5jj-czcfqw-t500x500.jpg">](https://soundcloud.com/o-s-t-music/blights-master-1-2)
 
-**Artist**: Renegade System 
+**Artist**: Lovefear + Barrett Avner 
 
-**Track**: Renegade System - Heaven Is A Place On Earth (Original 96 Mix)
+**Track**: Blights
 
-Last updated at 10/9/2026, 8:47:00 AM
+Last updated at 10/9/2026, 8:48:50 AM
