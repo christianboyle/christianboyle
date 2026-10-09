@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l8wHbhZnG2BCX5jj-czcfqw-t500x500.jpg">](https://soundcloud.com/o-s-t-music/blights-master-1-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HKkRyBI8iDdhc1az-B0ZjFg-t500x500.jpg">](https://soundcloud.com/yellowclaw/yellow-claw-acyan-hot-like?in=acyanmusic/sets/yellow-claw-jesus-loves-trap)
 
-**Artist**: Lovefear + Barrett Avner 
+**Artist**: Yellow Claw 
 
-**Track**: Blights
+**Track**: Yellow Claw & Acyan - HOT LIKE THIS (Acyan & Zachary Remix)
 
-Last updated at 10/9/2026, 8:48:50 AM
+Last updated at 10/9/2026, 8:50:20 AM
