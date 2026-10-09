@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-21GTUuGOENvOxLxm-mA09nA-t500x500.jpg">](https://soundcloud.com/djpulsepodcast/techno-is-dead-tribal-church)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0uPaeIjhjtRvqjyj-RffpIg-t500x500.jpg">](https://soundcloud.com/dj-heeley/heeley-live-your-life)
 
-**Artist**: Dj Pulse 
+**Artist**: Heeley 
 
-**Track**: End of techno  (tribal church)
+**Track**: Heeley - Live Your Life
 
-Last updated at 10/8/2026, 8:15:42 PM
+Last updated at 10/8/2026, 8:16:42 PM
