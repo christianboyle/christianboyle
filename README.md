@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-x1MlJl5V0Vz3pf5i-2pAyZQ-t500x500.jpg">](https://soundcloud.com/jukaamusic/talk2me-w-pluko)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kV9zElwVSoyT8pVb-hnpkqA-t500x500.jpg">](https://soundcloud.com/elibrownbeats/frequency-w-dimension?in=dimension_uk/sets/frequency-eli-brown-dimension)
 
-**Artist**: Jukaa 
+**Artist**: Eli brown, Dimension 
 
-**Track**: pluko & Jukaa - TALK2ME
+**Track**: Eli Brown & Dimension - Frequency
 
-Last updated at 10/9/2026, 8:52:49 AM
+Last updated at 10/9/2026, 8:53:49 AM
