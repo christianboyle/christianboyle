@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NS79ip9Ez4bo24ab-WzHIFw-t500x500.jpg">](https://soundcloud.com/brett-gordon-9/all-my-colors)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-utPblSUupiv16KMj-6muhaQ-t500x500.jpg">](https://soundcloud.com/split_bass/hollow-split-flip)
 
-**Artist**: Brett Gordon 
+**Artist**: SPLiT 
 
-**Track**: All My Colors
+**Track**: Of The Trees, LYNY - Hollow (SPLiT Flip)
 
-Last updated at 10/8/2026, 8:17:57 PM
+Last updated at 10/8/2026, 8:19:08 PM
