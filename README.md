@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PbwZLKkL0qoSLV5q-OxDKkg-t500x500.jpg">](https://soundcloud.com/sub49records/average-citizens-bassline-criminal)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5ZJ3qE6Zb2Rn1WhT-4MH1Sw-t500x500.jpg">](https://soundcloud.com/starrynn/grave)
 
-**Artist**: Average Citizens, Kxne 
+**Artist**: starry, renexy 
 
-**Track**: AVERAGE CITIZENS | BASSLINE CRIMINAL FEAT. KXNE [Sub 49 Records]
+**Track**: grave ft renexy (bonus)
 
-Last updated at 10/10/2026, 3:35:37 PM
+Last updated at 10/10/2026, 3:36:32 PM
