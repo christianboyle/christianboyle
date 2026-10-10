@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-33j1droRSUVg5SAd-O3ywzg-t500x500.jpg">](https://soundcloud.com/natepattaz/mad-trax-guest-mix-volume-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1RjinyBTyekzoZQM-L4Zrzw-t500x500.png">](https://soundcloud.com/iambossmode/itsfine)
 
-**Artist**: Mad Trax | Makina Arena 
+**Artist**: Boss Mode 
 
-**Track**: Mad Trax Guest Mix Volume 3 | Arcane | Makina
+**Track**: Boss Mode - IT'S FINE (FREE DOWNLOAD)
 
-Last updated at 10/10/2026, 6:19:19 AM
+Last updated at 10/10/2026, 3:30:42 PM
