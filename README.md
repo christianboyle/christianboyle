@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1RjinyBTyekzoZQM-L4Zrzw-t500x500.png">](https://soundcloud.com/iambossmode/itsfine)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B41kqcdhWw5zkzyt-0O5Dpg-t500x500.jpg">](https://soundcloud.com/jawnra/downtempo-diaries-vol-1)
 
-**Artist**: Boss Mode 
+**Artist**: JAWNRA 
 
-**Track**: Boss Mode - IT'S FINE (FREE DOWNLOAD)
+**Track**: DOWNTEMPO DIARIES VOL. 1
 
-Last updated at 10/10/2026, 3:30:42 PM
+Last updated at 10/10/2026, 3:31:47 PM
