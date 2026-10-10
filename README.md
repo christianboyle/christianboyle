@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-B41kqcdhWw5zkzyt-0O5Dpg-t500x500.jpg">](https://soundcloud.com/jawnra/downtempo-diaries-vol-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GMyurjy1ZI50GBy5-PVISWw-t500x500.jpg">](https://soundcloud.com/natepattaz/moonbase-1)
 
-**Artist**: JAWNRA 
+**Artist**: Mad Trax | Makina Arena 
 
-**Track**: DOWNTEMPO DIARIES VOL. 1
+**Track**: MOONBASE
 
-Last updated at 10/10/2026, 3:31:47 PM
+Last updated at 10/10/2026, 3:32:46 PM
