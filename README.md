@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iEVYX2H4yllXz8PK-ktjciQ-t500x500.jpg">](https://soundcloud.com/lucuna-dubstep/lucuna-space-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1htq8tDOmoEzUubt-xHBRFQ-t500x500.jpg">](https://soundcloud.com/41rossco/yl9)
 
-**Artist**: LUCUNA 
+**Artist**: DJ.Rossco 
 
-**Track**: LUCUNA - SPACE
+**Track**: 10.10.26
 
-Last updated at 10/10/2026, 3:38:37 PM
+Last updated at 10/10/2026, 5:59:14 PM
