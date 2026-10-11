@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pLRXQqpZwubML1Od-IGot6g-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/drift-steven-straub-in-my)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cWCQjlqCEqll1j19-nhhOWw-t500x500.jpg">](https://soundcloud.com/thetophinator/living-proof-1)
 
-**Artist**: DRIFT 
+**Artist**: Topher Ryan 
 
-**Track**: DRIFT & STEVEN STRAUB - IN MY MEMORIES (REMAKE) FREE DOWNLOAD ***HIT THE BUY BUTTON***
+**Track**: Living Proof
 
-Last updated at 10/11/2026, 9:17:27 AM
+Last updated at 10/11/2026, 9:19:02 AM
