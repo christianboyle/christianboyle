@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cWCQjlqCEqll1j19-nhhOWw-t500x500.jpg">](https://soundcloud.com/thetophinator/living-proof-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GvbkyECLb3xfj0Mz-AtLzsw-t500x500.jpg">](https://soundcloud.com/nicholas-lumsden-3929183/vickis-bounce-set-vol-2-mixed)
 
-**Artist**: Topher Ryan 
+**Artist**: Nicko Lumsden New 
 
-**Track**: Living Proof
+**Track**: Vicki's Bounce Set Vol 2 Mixed by DJ Nicko
 
-Last updated at 10/11/2026, 9:19:02 AM
+Last updated at 10/11/2026, 10:58:11 AM
