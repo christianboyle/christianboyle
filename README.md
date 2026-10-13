@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GvbkyECLb3xfj0Mz-AtLzsw-t500x500.jpg">](https://soundcloud.com/nicholas-lumsden-3929183/vickis-bounce-set-vol-2-mixed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ARrBsVRNgE9ycNQr-JvhkOw-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/boomtown2026)
 
-**Artist**: Nicko Lumsden New 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Vicki's Bounce Set Vol 2 Mixed by DJ Nicko
+**Track**: 2 Sick Puppiez Live @ Boomtown 2026  - Gabber Kebabber
 
-Last updated at 10/12/2026, 6:18:01 AM
+Last updated at 10/13/2026, 6:17:32 AM
