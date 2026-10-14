@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-9phxwBLeEqACQguB-VuTBsw-t500x500.jpg">](https://soundcloud.com/ferg94music/react-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-py5acQJizcleDw5Q-jWJvyQ-t500x500.jpg">](https://soundcloud.com/user-202286394-991268468/spinee-w-princess-elf-bar)
 
-**Artist**: Ferg 94/Spinball 
+**Artist**: NTS Latest 
 
-**Track**: Switch Disco feat. Ella Henderson - React (Ferg 94 Remix)
+**Track**: Spinee w/ Princess Elf Bar 150826
 
-Last updated at 10/13/2026, 7:56:19 PM
+Last updated at 10/13/2026, 8:49:39 PM
