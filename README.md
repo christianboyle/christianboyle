@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-py5acQJizcleDw5Q-jWJvyQ-t500x500.jpg">](https://soundcloud.com/user-202286394-991268468/spinee-w-princess-elf-bar)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OWLzBQaFLnTUe8r-anE1lA-t500x500.jpg">](https://soundcloud.com/undefined/doof-doof-untz-untz-vvvip)
 
-**Artist**: NTS Latest 
+**Artist**: S3RL 
 
-**Track**: Spinee w/ Princess Elf Bar 150826
+**Track**: Doof Doof Untz Untz (VVVIP)
 
-Last updated at 10/14/2026, 6:09:23 AM
+Last updated at 10/14/2026, 7:33:55 PM
