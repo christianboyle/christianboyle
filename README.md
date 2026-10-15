@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OWLzBQaFLnTUe8r-anE1lA-t500x500.jpg">](https://soundcloud.com/undefined/doof-doof-untz-untz-vvvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yOGhRWpAepKO0JJh-wig1RA-t500x500.jpg">](https://soundcloud.com/deejay-denny-2/makina-mix-3rd-october-2026)
 
-**Artist**: S3RL 
+**Artist**: Dj Denny 
 
-**Track**: Doof Doof Untz Untz (VVVIP)
+**Track**: Makina Mix October 2026
 
-Last updated at 10/14/2026, 7:33:55 PM
+Last updated at 10/14/2026, 8:13:15 PM
