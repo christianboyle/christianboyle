@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JCUC7Sz9yhtDxbPt-NFD67w-t500x500.jpg">](https://soundcloud.com/ravelibrary123/dj-shimamura-guntank2009)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cglSLhOLLzpm3zWS-ebs7GQ-t500x500.jpg">](https://soundcloud.com/nellyofficial2020/dj-nelly-crazykaos-14-10-26-2)
 
-**Artist**: Rave Library 
+**Artist**: Tracks Mixed by DJ Nelly 
 
-**Track**: DJ Shimamura - Guntank2009
+**Track**: DJ Nelly CrazyKaos 14-10-26 2 Hours
 
-Last updated at 10/17/2026, 2:56:48 PM
+Last updated at 10/17/2026, 2:58:08 PM
