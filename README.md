@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ARrBsVRNgE9ycNQr-JvhkOw-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/boomtown2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiNBVebXGgLSPHI3-iUxLxg-t500x500.jpg">](https://soundcloud.com/uglylungs/wbp_uglylungsremix)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: UGLY LUNGS, THREE SIX MAFIA  
 
-**Track**: 2 Sick Puppiez Live @ Boomtown 2026  - Gabber Kebabber
+**Track**: WEED, BLOW, PILLS (UGLY LUNGS REMIX)
 
-Last updated at 10/17/2026, 12:23:19 PM
+Last updated at 10/17/2026, 2:55:48 PM
