@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-hSRBdSS90X5gPR7G-kycMSg-t500x500.jpg">](https://soundcloud.com/intake-music-998517119/m_intk_mklof2_herr-krank-sc)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ARrBsVRNgE9ycNQr-JvhkOw-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/boomtown2026)
 
-**Artist**: Intake Paris 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Herr Krank - Intake Paris - DJ Set
+**Track**: 2 Sick Puppiez Live @ Boomtown 2026  - Gabber Kebabber
 
-Last updated at 10/16/2026, 10:37:11 AM
+Last updated at 10/17/2026, 12:23:19 PM
