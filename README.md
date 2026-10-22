@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFgwy30EOdXLsM9L-BV9VTQ-t500x500.jpg">](https://soundcloud.com/david-doak/dj-jas-l-bouncy-mix-vol-14)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lnJ97MUZZHtXNgRJ-22EChw-t500x500.jpg">](https://soundcloud.com/sunoramusic/suncture-hour-on-ibiza-global)
 
-**Artist**: DJ Jas L 
+**Artist**: Sunora 
 
-**Track**: DJ Jas L - BOUNCY MIX VOL 14 (Sing Along Anthems)
+**Track**: SUNCTURE HOUR on Ibiza Global Radio // Episode 001: Sunora
 
-Last updated at 10/22/2026, 6:13:26 AM
+Last updated at 10/22/2026, 6:21:17 AM
