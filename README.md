@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSD5lT3MS40HAyQR-jipGrw-t500x500.jpg">](https://soundcloud.com/user-372178750/dj-culture-northeast-makina-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFgwy30EOdXLsM9L-BV9VTQ-t500x500.jpg">](https://soundcloud.com/david-doak/dj-jas-l-bouncy-mix-vol-14)
 
-**Artist**: Dj Culture 
+**Artist**: DJ Jas L 
 
-**Track**: DJ CULTURE - NORTHEAST MAKINA MIX - HALLOWEEN 2026
+**Track**: DJ Jas L - BOUNCY MIX VOL 14 (Sing Along Anthems)
 
-Last updated at 10/21/2026, 6:19:27 AM
+Last updated at 10/22/2026, 6:13:26 AM
