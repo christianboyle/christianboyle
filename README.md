@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iP5YKA6idCFGnd3L-ZHGfUg-t500x500.jpg">](https://soundcloud.com/hector-romero-morte/hardstyle-rawstyle-2026-08-20)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jBgtAJqXFX0O8dWn-9iMdiA-t500x500.jpg">](https://soundcloud.com/user-202286394-991268468/club-aerobics-w-164491977)
 
-**Artist**: HEKTOR 
+**Artist**: NTS Latest 
 
-**Track**: HARDSTYLE & RAWSTYLE (2026-08-20)
+**Track**: Club Aerobics w/ Bianca Oblivion & Denham Audio 221026
 
-Last updated at 10/22/2026, 6:23:32 AM
+Last updated at 10/23/2026, 6:21:12 AM
