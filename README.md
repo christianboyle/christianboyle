@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-djwb5uSF5j7y0bge-izkcoQ-t500x500.png">](https://soundcloud.com/david-rust-dj/david-rust-b2b-david-forbes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uPt0yDGgzBlCzFnf-qP8ENw-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/olly-james-frqncy-extended-3)
 
-**Artist**: David Rust, David Forbes 
+**Artist**: Olly James 
 
-**Track**: David Rust b2b David Forbes @ Doof in The Park 26"
+**Track**: Olly James - FRQNCY (Extended Mix)
 
-Last updated at 10/23/2026, 3:32:13 PM
+Last updated at 10/23/2026, 3:35:34 PM
