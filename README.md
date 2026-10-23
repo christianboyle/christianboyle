@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uPt0yDGgzBlCzFnf-qP8ENw-t500x500.jpg">](https://soundcloud.com/ollyjamesmusic/olly-james-frqncy-extended-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bXN4o5ML3crqbQc1-IFNkVQ-t500x500.png">](https://soundcloud.com/powertrancerec/david-rust-all-i-do)
 
-**Artist**: Olly James 
+**Artist**: David Rust 
 
-**Track**: Olly James - FRQNCY (Extended Mix)
+**Track**: David Rust - All I Do
 
-Last updated at 10/23/2026, 3:35:34 PM
+Last updated at 10/23/2026, 4:14:08 PM
