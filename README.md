@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-djwb5uSF5j7y0bge-izkcoQ-t500x500.png">](https://soundcloud.com/david-rust-dj/david-rust-b2b-david-forbes)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-242EcZmOZfyKayc7-Sv7yJg-t500x500.jpg">](https://soundcloud.com/dodgeyboy85/01-journey)
 
-**Artist**: David Rust, David Forbes 
+**Artist**: Dodge 
 
-**Track**: David Rust b2b David Forbes @ Doof in The Park 26"
+**Track**: The journey 💙
 
-Last updated at 10/24/2026, 6:10:15 AM
+Last updated at 10/24/2026, 6:11:15 AM
