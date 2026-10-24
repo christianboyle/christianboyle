@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-iyszXjPJXTKd9h07-fMew4Q-t500x500.jpg">](https://soundcloud.com/jgt100/jgt-summer-on-the-road)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzuXeB3yK8vUCWA9-pZZmtw-t500x500.jpg">](https://soundcloud.com/mrwildfire/mr-wildfire-choosing-me)
 
-**Artist**: JGT | JUST GOOD TUNES 
+**Artist**: Mr. WildFire 
 
-**Track**: JGT - Summer on the road
+**Track**: Mr. WildFire - Choosing Me feat. Baila Authorata [Free Download]
 
-Last updated at 10/24/2026, 8:03:22 AM
+Last updated at 10/24/2026, 8:08:34 AM
