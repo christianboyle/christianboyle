@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HzuXeB3yK8vUCWA9-pZZmtw-t500x500.jpg">](https://soundcloud.com/mrwildfire/mr-wildfire-choosing-me)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lCaAcmNff2JtdUjV-mSti8w-t500x500.jpg">](https://soundcloud.com/ravelibrary123/wriggler-bascombe-burn-by-the)
 
-**Artist**: Mr. WildFire 
+**Artist**: Rave Library 
 
-**Track**: Mr. WildFire - Choosing Me feat. Baila Authorata [Free Download]
+**Track**: Wriggler Bascombe - Burn By The Fire
 
-Last updated at 10/24/2026, 8:08:34 AM
+Last updated at 10/24/2026, 8:11:34 AM
