@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-242EcZmOZfyKayc7-Sv7yJg-t500x500.jpg">](https://soundcloud.com/dodgeyboy85/01-journey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l3OgbA0flypXl8tS-HUytOA-t500x500.jpg">](https://soundcloud.com/millirecs/svge-green-light)
 
-**Artist**: Dodge 
+**Artist**: SVGE 
 
-**Track**: The journey 💙
+**Track**: SVGE - GREEN LIGHT [FREE DL]
 
-Last updated at 10/24/2026, 6:11:15 AM
+Last updated at 10/24/2026, 7:40:43 AM
