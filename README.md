@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WplH8M468ja3n2wg-YzybrA-t500x500.jpg">](https://soundcloud.com/kuh-tee-uh/dance2dubstep)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-l6V6fNBhbI43wT8L-FDY6PA-t500x500.jpg">](https://soundcloud.com/bitbird/just-my-type)
 
-**Artist**: Kuhteeuh 
+**Artist**: Bishu, PROP 
 
-**Track**: Dance 2 Dubstep
+**Track**: JUST MY TYPE
 
-Last updated at 10/24/2026, 8:18:29 AM
+Last updated at 10/24/2026, 8:19:44 AM
