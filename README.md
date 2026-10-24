@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-diuuoRIZyQgN5zTX-jiJTzw-t500x500.jpg">](https://soundcloud.com/ravelibrary123/tom-and-jerry-slam)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-iyszXjPJXTKd9h07-fMew4Q-t500x500.jpg">](https://soundcloud.com/jgt100/jgt-summer-on-the-road)
 
-**Artist**: Rave Library 
+**Artist**: JGT | JUST GOOD TUNES 
 
-**Track**: Tom And Jerry - Slam
+**Track**: JGT - Summer on the road
 
-Last updated at 10/24/2026, 7:59:37 AM
+Last updated at 10/24/2026, 8:03:22 AM
