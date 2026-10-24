@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-cr6QwlzD5om1scRu-rioX8A-t500x500.jpg">](https://soundcloud.com/craigconnelly/mark-sherry-sarah-howells)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5aOkPxryfizeVj3m-YQsmjA-t500x500.jpg">](https://soundcloud.com/hector-romero-morte/microbeats-vol-8-2026-10-24)
 
-**Artist**: Mark Sherry, Sarah Howells, Craig Connelly 
+**Artist**: HEKTOR 
 
-**Track**: Mark Sherry & Sarah Howells - Heroes (Craig Connelly Remix)
+**Track**: MicroBeats Vol.8 (2026-10-24)
 
-Last updated at 10/24/2026, 7:45:01 AM
+Last updated at 10/24/2026, 7:46:56 AM
