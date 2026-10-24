@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bXN4o5ML3crqbQc1-IFNkVQ-t500x500.png">](https://soundcloud.com/powertrancerec/david-rust-all-i-do)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-djwb5uSF5j7y0bge-izkcoQ-t500x500.png">](https://soundcloud.com/david-rust-dj/david-rust-b2b-david-forbes)
 
-**Artist**: David Rust 
+**Artist**: David Rust, David Forbes 
 
-**Track**: David Rust - All I Do
+**Track**: David Rust b2b David Forbes @ Doof in The Park 26"
 
-Last updated at 10/23/2026, 4:14:08 PM
+Last updated at 10/24/2026, 6:10:15 AM
