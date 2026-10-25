@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xVK2b2zRyLmntK59-6yWmZw-t500x500.jpg">](https://soundcloud.com/twisted-bounce/twisted-makina-vol-1-quickie)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z4fpBwxJH7q2zHRL-hgb3vA-t500x500.jpg">](https://soundcloud.com/paulsirrell/paul-sirrell-good-old-days-1)
 
-**Artist**: DJ MAXIE (TWISTED BOUNCE) 
+**Artist**: Paul Sirrell 
 
-**Track**: TWISTED MAKINA VOL.1  (QUICKIE MIX)
+**Track**: Paul Sirrell - Good Old Days
 
-Last updated at 10/25/2026, 10:05:08 AM
+Last updated at 10/25/2026, 10:26:58 AM
