@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rotRC0L02amgCRb8-Ij5gog-t500x500.png">](https://soundcloud.com/paulsirrell/paul-sirrell-rockin-free-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSD5lT3MS40HAyQR-jipGrw-t500x500.jpg">](https://soundcloud.com/user-372178750/dj-culture-northeast-makina-3)
 
-**Artist**: Paul Sirrell 
+**Artist**: Dj Culture 
 
-**Track**: Paul Sirrell - Rockin' Free
+**Track**: DJ CULTURE - NORTHEAST MAKINA MIX - HALLOWEEN 2026
 
-Last updated at 10/25/2026, 10:37:49 AM
+Last updated at 10/26/2026, 6:14:03 AM
