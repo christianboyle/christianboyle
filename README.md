@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AWD4yiDJUUvl5oye-v25OWw-t500x500.jpg">](https://soundcloud.com/dj_shelby/donky-blinders-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XMngAhLbepXHHDow-H7kmLg-t500x500.jpg">](https://soundcloud.com/the-r_y_e/nobody-gives-a-f-k-volume-2)
 
-**Artist**: DJ Shelby 
+**Artist**: THE R.Y.E 
 
-**Track**: Donky Blinders 26
+**Track**: Nobody Gives a F**k Volume 2
 
-Last updated at 10/26/2026, 6:22:04 AM
+Last updated at 10/26/2026, 6:23:09 AM
