@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-DSD5lT3MS40HAyQR-jipGrw-t500x500.jpg">](https://soundcloud.com/user-372178750/dj-culture-northeast-makina-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-AWD4yiDJUUvl5oye-v25OWw-t500x500.jpg">](https://soundcloud.com/dj_shelby/donky-blinders-26)
 
-**Artist**: Dj Culture 
+**Artist**: DJ Shelby 
 
-**Track**: DJ CULTURE - NORTHEAST MAKINA MIX - HALLOWEEN 2026
+**Track**: Donky Blinders 26
 
-Last updated at 10/26/2026, 6:14:03 AM
+Last updated at 10/26/2026, 6:22:04 AM
