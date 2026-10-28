@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yC3IiAZYJGZykgCl-BXzklQ-t500x500.jpg">](https://soundcloud.com/ravelibrary123/double-r-shadows)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-79XtK8XdiMVTzRow-kBZYdg-t500x500.jpg">](https://soundcloud.com/lostmindsfestival/darren-styles-main-stage-set)
 
-**Artist**: Rave Library 
+**Artist**: Lost Minds Festival 
 
-**Track**: Double R - Shadows
+**Track**: Darren Styles  - Main Stage -  Lost Minds 2026
 
-Last updated at 10/28/2026, 6:10:52 AM
+Last updated at 10/28/2026, 6:18:04 AM
