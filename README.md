@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Tdl0EqGVHRB29og0-RRzcjQ-t500x500.jpg">](https://soundcloud.com/user-371974001/makina-october-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yC3IiAZYJGZykgCl-BXzklQ-t500x500.jpg">](https://soundcloud.com/ravelibrary123/double-r-shadows)
 
-**Artist**: Cal_Farrance 
+**Artist**: Rave Library 
 
-**Track**: Makina October 2026
+**Track**: Double R - Shadows
 
-Last updated at 10/27/2026, 6:21:43 AM
+Last updated at 10/28/2026, 6:10:52 AM
