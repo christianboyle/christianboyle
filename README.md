@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kE274cr7VMsTOqiO-zGUC8w-t500x500.jpg">](https://soundcloud.com/user-415548850/in-trance-we-trust-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EnNz8Bt8iYVb03bL-KkYzUA-t500x500.jpg">](https://soundcloud.com/mickjay67/mickjay-makina-nov26)
 
-**Artist**: Dj Ganty 
+**Artist**: MickJay 
 
-**Track**: In Trance We Trust 5
+**Track**: MickJay - Makina Nov'26
 
-Last updated at 10/29/2026, 8:58:22 AM
+Last updated at 10/29/2026, 11:03:22 AM
