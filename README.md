@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6zf46ryfWxWW8K7H-TxZYDA-t500x500.jpg">](https://soundcloud.com/technowereld/premiere-lady-maru-hard-u)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kE274cr7VMsTOqiO-zGUC8w-t500x500.jpg">](https://soundcloud.com/user-415548850/in-trance-we-trust-5)
 
-**Artist**: Techno Wereld, Lady Maru, Michael Katana, Anita Kaye  
+**Artist**: Dj Ganty 
 
-**Track**: Premiere: Lady Maru - Hard U Ready (Michael Katana X Anita Kaye Remix) [TM008]
+**Track**: In Trance We Trust 5
 
-Last updated at 10/29/2026, 6:13:44 AM
+Last updated at 10/29/2026, 8:58:22 AM
