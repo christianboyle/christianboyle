@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jci2ysXLO1SizWPs-ErNdxw-t500x500.jpg">](https://soundcloud.com/adam_mohican/adam-mohican-westfest-2025-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCqjTOn4hRxaT0dL-RksWpA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/chainsaw)
 
-**Artist**: Adam Mohican 
+**Artist**: OOTORO & Basstrick  
 
-**Track**: Adam Mohican - Westfest 2025
+**Track**: OOTORO & Basstrick - CHAINSAW
 
-Last updated at 10/30/2026, 7:14:22 PM
+Last updated at 10/30/2026, 7:16:13 PM
