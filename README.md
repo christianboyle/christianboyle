@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-31HUJnskfZYYjzY0-u4iD6A-t500x500.jpg">](https://soundcloud.com/zomboy/zomboy-build-me-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhjj7hPyixR7Uur4-jyeaBQ-t500x500.jpg">](https://soundcloud.com/playtimeofficial/wiwek-skrillex-killa-playtime)
 
-**Artist**: Zomboy 
+**Artist**: Wiwek & Skrillex 
 
-**Track**: Zomboy - Build Me Up
+**Track**: Wiwek x Skrillex x Elliphant - Killa (PlayTime Remix)
 
-Last updated at 10/30/2026, 7:12:07 PM
+Last updated at 10/30/2026, 7:13:07 PM
