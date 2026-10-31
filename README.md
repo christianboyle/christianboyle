@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-NnIDJ4SjmVF3Q3Oy-hxuTvQ-t500x500.jpg">](https://soundcloud.com/nannamakina/nanna-makina-creamfields-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-riU0jdOoiOyhrJ1J-kTvbQg-t500x500.jpg">](https://soundcloud.com/skinnylimbs/wavey-davey-thanks-for-9k)
 
-**Artist**: Nanna Makina 
+**Artist**: Skinny Limbs 
 
-**Track**: Nanna Makina Creamfields 2026
+**Track**: Wavey Davey (Thanks for 9k)
 
-Last updated at 10/30/2026, 7:08:57 PM
+Last updated at 10/30/2026, 7:11:07 PM
