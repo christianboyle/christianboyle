@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhjj7hPyixR7Uur4-jyeaBQ-t500x500.jpg">](https://soundcloud.com/playtimeofficial/wiwek-skrillex-killa-playtime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Jci2ysXLO1SizWPs-ErNdxw-t500x500.jpg">](https://soundcloud.com/adam_mohican/adam-mohican-westfest-2025-mp3)
 
-**Artist**: Wiwek & Skrillex 
+**Artist**: Adam Mohican 
 
-**Track**: Wiwek x Skrillex x Elliphant - Killa (PlayTime Remix)
+**Track**: Adam Mohican - Westfest 2025
 
-Last updated at 10/30/2026, 7:13:07 PM
+Last updated at 10/30/2026, 7:14:22 PM
