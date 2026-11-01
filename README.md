@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCqjTOn4hRxaT0dL-RksWpA-t500x500.jpg">](https://soundcloud.com/undefined/chainsaw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VJfrNNpbsGvoXz2s-4tbxOA-t500x500.jpg">](https://soundcloud.com/melodicdancegroove/rodri-frango-enough)
 
-**Artist**: OOTORO & Basstrick  
+**Artist**: ZANS 
 
-**Track**: OOTORO & Basstrick - CHAINSAW
+**Track**: Darude - The Sandstorm (ZANS Remix)
 
-Last updated at 11/1/2026, 3:25:24 PM
+Last updated at 11/1/2026, 5:46:22 PM
