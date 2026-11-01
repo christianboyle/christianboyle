@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-sLACgzLZW1Z7l7iA-b0dDBg-t500x500.jpg">](https://soundcloud.com/hard_hooks/4wayb2b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCqjTOn4hRxaT0dL-RksWpA-t500x500.jpg">](https://soundcloud.com/undefined/chainsaw)
 
-**Artist**: Hard Hooks, DJ Finny, DJ Grazie, Daz Mooney 
+**Artist**: OOTORO & Basstrick  
 
-**Track**: DJ Finny Vs DJ Grazie Vs Daz Mooney Vs Hard Hooks
+**Track**: OOTORO & Basstrick - CHAINSAW
 
-Last updated at 11/1/2026, 6:45:49 AM
+Last updated at 11/1/2026, 3:25:24 PM
