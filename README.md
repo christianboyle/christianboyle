@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDrclZS1QjHty57O-tenALw-t500x500.png">](https://soundcloud.com/bignutchuckbeats/misery-business-homemade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-70GeetknXYz8apq9-rpdpvg-t500x500.jpg">](https://soundcloud.com/ravelibrary123/bayders-crew-bassheads)
 
-**Artist**: Big Nut Chuck 
+**Artist**: Rave Library 
 
-**Track**: Misery Business (Homemade Spaceship x Big Nut Chuck Remix) - Paramore
+**Track**: Bayders Crew - Bassheads Lickweed
 
-Last updated at 11/2/2026, 6:20:51 AM
+Last updated at 11/2/2026, 8:14:08 AM
