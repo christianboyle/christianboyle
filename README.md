@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qfQYTkocc6A7dbzj-e0yzFQ-t500x500.jpg">](https://soundcloud.com/nighthavvkmusic/charli-xcx-ft-john-cale-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lp3ZEcUb2tiKj8RH-QzT2ZA-t500x500.jpg">](https://soundcloud.com/ion_music/ion-block-business)
 
-**Artist**: NIGHTHAVVK 
+**Artist**: ION 
 
-**Track**: CHARLI XCX ft JOHN CALE - HOUSE (NIGHTHAVVK REMIX)
+**Track**: ION - BLOCK BUSINESS
 
-Last updated at 11/2/2026, 9:12:54 AM
+Last updated at 11/2/2026, 9:21:44 AM
