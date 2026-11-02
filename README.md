@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Da7ZxsHglMLdH97C-XmdS2A-t500x500.jpg">](https://soundcloud.com/undefined/ddlm7)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDrclZS1QjHty57O-tenALw-t500x500.png">](https://soundcloud.com/bignutchuckbeats/misery-business-homemade)
 
-**Artist**: Boombox Cartel 
+**Artist**: Big Nut Chuck 
 
-**Track**: DIA DE LOS MUERTOS 7
+**Track**: Misery Business (Homemade Spaceship x Big Nut Chuck Remix) - Paramore
 
-Last updated at 11/1/2026, 5:47:22 PM
+Last updated at 11/2/2026, 6:20:51 AM
