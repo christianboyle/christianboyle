@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-kgAe9tPw4yygy7gz-uoMWxA-t500x500.jpg">](https://soundcloud.com/sozinbeats/rev-2)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDrclZS1QjHty57O-tenALw-t500x500.png">](https://soundcloud.com/bignutchuckbeats/misery-business-homemade)
 
-**Artist**: SOZIN 
+**Artist**: Big Nut Chuck 
 
-**Track**: REV 2 (Audio/Visual Set) [EDM/Bass Music][ALL ORIGINALS/REMIXES/COLLABS)
+**Track**: Misery Business (Homemade Spaceship x Big Nut Chuck Remix) - Paramore
 
-Last updated at 11/3/2026, 8:15:47 AM
+Last updated at 11/4/2026, 6:16:39 AM
