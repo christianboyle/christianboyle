@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RTo833WlFWbeztbX-yBCL3Q-t500x500.jpg">](https://soundcloud.com/shizzlomusic/quavo-takeoff-hotel-lobby-shizz-lo-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fQdJ4MN42gS2SjzX-G3GPxg-t500x500.jpg">](https://soundcloud.com/ravelibrary123/the-hypnotist-hardcore-u-know)
 
-**Artist**: Shizz Lo 
+**Artist**: Rave Library 
 
-**Track**: Quavo & Takeoff - Hotel Lobby (Shizz Lo Flip)
+**Track**: The Hypnotist - Hardcore U Know The Score
 
-Last updated at 11/4/2026, 11:02:19 AM
+Last updated at 11/4/2026, 5:32:54 PM
