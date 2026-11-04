@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDrclZS1QjHty57O-tenALw-t500x500.png">](https://soundcloud.com/bignutchuckbeats/misery-business-homemade)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-5Euzm3urxQX1oWVF-Gy3ntA-t500x500.jpg">](https://soundcloud.com/dylan-sky-264565536/t-pain-up-down-dylan-sky-remix)
 
-**Artist**: Big Nut Chuck 
+**Artist**: Dylan Sky 
 
-**Track**: Misery Business (Homemade Spaceship x Big Nut Chuck Remix) - Paramore
+**Track**: T-Pain - Up Down  (Dylan Sky Remix)
 
-Last updated at 11/4/2026, 6:25:09 AM
+Last updated at 11/4/2026, 10:56:09 AM
