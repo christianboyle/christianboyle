@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-XaIXxKxO3LS7HWMe-YJrh5Q-t500x500.jpg">](https://soundcloud.com/panteros666/panteros666-2hot2play)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-0vrUWxVrKxMg6aWt-4pwzNQ-t500x500.jpg">](https://soundcloud.com/bncybncy/foolininit8)
 
-**Artist**: Panteros666, 2HOT2PLAY 
+**Artist**: Initi8 
 
-**Track**: Panteros666, 2HOT2PLAY - Everybody Wanna Talk [FREE DL]
+**Track**: Initi8 - Foolin Me Twice
 
-Last updated at 11/4/2026, 5:37:50 PM
+Last updated at 11/4/2026, 7:32:03 PM
