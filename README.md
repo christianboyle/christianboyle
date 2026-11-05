@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-EGbIWDDtoae22x5D-toFByQ-t500x500.jpg">](https://soundcloud.com/djtommyd88/half-hr-of-hard-house-mixed-by)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ezv0cuzWpRXYynPm-ETAthA-t500x500.jpg">](https://soundcloud.com/arianne-granade/a-g-cook-2021-umru-remix-vs?in=arianne-granade/sets/a-g-cook-apple-vs-7g-silver)
 
-**Artist**: Dj Tommy D 
+**Artist**: plzplz 
 
-**Track**: HALF HR OF HARD HOUSE MIXED BY TOMMY DAVIS
+**Track**: A. G. Cook - 2021 (umru Remix) vs. the Darkness (Remix)
 
-Last updated at 11/5/2026, 8:16:23 AM
+Last updated at 11/5/2026, 10:24:14 AM
