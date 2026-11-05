@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SaRq15RMrnbF72px-411iLw-t500x500.jpg">](https://soundcloud.com/elation_northwest/tunes-volume-1-howard-b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gZaJFcUxWbOWR2C7-u9ilkw-t500x500.jpg">](https://soundcloud.com/solfiresounds/lucid-dreams-1)
 
-**Artist**: ELATION 
+**Artist**: Solfire 
 
-**Track**: TUNES - VOLUME 1 - HOWARD B
+**Track**: Lucid Dreams
 
-Last updated at 11/4/2026, 7:33:04 PM
+Last updated at 11/4/2026, 7:34:04 PM
