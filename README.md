@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UrmXzdy6P2D97eP2-yBaupA-t500x500.jpg">](https://soundcloud.com/swiftstix/turks-check)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6K05F1JL6xSwjPF-3Te12w-t500x500.jpg">](https://soundcloud.com/prod_pk/trim-pk)
 
-**Artist**: Swift Stix 
+**Artist**: pk (@prod_pk) 
 
-**Track**: TURKS / check
+**Track**: Trim (pk)
 
-Last updated at 11/4/2026, 7:47:44 PM
+Last updated at 11/4/2026, 7:48:46 PM
