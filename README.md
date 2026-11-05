@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4MiKqt7mcdBQxzsQ-4XuK9w-t500x500.jpg">](https://soundcloud.com/jedwill1999/placebo-effect-prod-goodbyex2002)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-03rgVKK5SayAUydX-BRs1qw-t500x500.jpg">](https://soundcloud.com/wearewavedash/byanymeans)
 
-**Artist**: Jedwill 
+**Artist**: WAVEDASH 
 
-**Track**: Placebo Effect (prod. goodbyex2002)
+**Track**: By Any Means
 
-Last updated at 11/5/2026, 2:51:07 PM
+Last updated at 11/5/2026, 2:52:27 PM
