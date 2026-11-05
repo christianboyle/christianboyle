@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8qIBxurUCkelKic-nuLmdw-t500x500.jpg">](https://soundcloud.com/edmfamily-2-0/toxic-wraith-a-different-way-free-download)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Lf9nTtj0BFkKzjQQ-b91rng-t500x500.png">](https://soundcloud.com/1revoh/peace-of-mind-ft-thrml)
 
-**Artist**: Toxic Wraith 
+**Artist**: revoh 
 
-**Track**: DJ Snake, Lauv - A Different Way (Toxic Wraith VIP Edit) [FREE DOWNLOAD]
+**Track**: PEACE OF MIND (ft. thrml)
 
-Last updated at 11/4/2026, 7:35:38 PM
+Last updated at 11/4/2026, 7:36:43 PM
