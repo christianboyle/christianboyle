@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6K05F1JL6xSwjPF-3Te12w-t500x500.jpg">](https://soundcloud.com/prod_pk/trim-pk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMBzSwtRlizyO4eQ-DqCc0w-t500x500.jpg">](https://soundcloud.com/djgarymc/misery-business-gary-mc-1)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: Dj Gary MC 
 
-**Track**: Trim (pk)
+**Track**: Misery Business - GARY MC Makina Remix
 
-Last updated at 11/5/2026, 6:14:47 AM
+Last updated at 11/5/2026, 6:19:37 AM
