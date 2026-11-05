@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZEplvLskZQM0fyP-G7TAqg-t500x500.jpg">](https://soundcloud.com/nrgtrax/nrg-trax-promo-mix-for)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-EGbIWDDtoae22x5D-toFByQ-t500x500.jpg">](https://soundcloud.com/djtommyd88/half-hr-of-hard-house-mixed-by)
 
-**Artist**: NRG Trax 
+**Artist**: Dj Tommy D 
 
-**Track**: NRG TRAX - PROMO MIX FOR TRANSMISSION
+**Track**: HALF HR OF HARD HOUSE MIXED BY TOMMY DAVIS
 
-Last updated at 11/5/2026, 6:20:37 AM
+Last updated at 11/5/2026, 8:04:01 AM
