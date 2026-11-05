@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SPL6Kg3d8hoY6WgJ-QoRsCw-t500x500.jpg">](https://soundcloud.com/sparemesoon/walkintheclub-w-chuy-1sunsuu)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-UrmXzdy6P2D97eP2-yBaupA-t500x500.jpg">](https://soundcloud.com/swiftstix/turks-check)
 
-**Artist**: velura556, Chuy! 
+**Artist**: Swift Stix 
 
-**Track**: WalkInTheClub w/chuy! (1sunsuu)
+**Track**: TURKS / check
 
-Last updated at 11/4/2026, 7:46:43 PM
+Last updated at 11/4/2026, 7:47:44 PM
