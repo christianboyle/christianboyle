@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zMBzSwtRlizyO4eQ-DqCc0w-t500x500.jpg">](https://soundcloud.com/djgarymc/misery-business-gary-mc-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YZEplvLskZQM0fyP-G7TAqg-t500x500.jpg">](https://soundcloud.com/nrgtrax/nrg-trax-promo-mix-for)
 
-**Artist**: Dj Gary MC 
+**Artist**: NRG Trax 
 
-**Track**: Misery Business - GARY MC Makina Remix
+**Track**: NRG TRAX - PROMO MIX FOR TRANSMISSION
 
-Last updated at 11/5/2026, 6:19:37 AM
+Last updated at 11/5/2026, 6:20:37 AM
