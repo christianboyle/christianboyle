@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xDE7YgS9aHhxnQaS-wQZbPw-t500x500.jpg">](https://soundcloud.com/alteria_cool/summmerends)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-o8qIBxurUCkelKic-nuLmdw-t500x500.jpg">](https://soundcloud.com/edmfamily-2-0/toxic-wraith-a-different-way-free-download)
 
-**Artist**: alteria 
+**Artist**: Toxic Wraith 
 
-**Track**: summer ends (kitz, thrml, himiko, yametsu, (01kon & bended)
+**Track**: DJ Snake, Lauv - A Different Way (Toxic Wraith VIP Edit) [FREE DOWNLOAD]
 
-Last updated at 11/4/2026, 7:37:43 PM
+Last updated at 11/4/2026, 7:39:49 PM
