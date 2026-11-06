@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-000084639625-cgnp1j-t500x500.jpg">](https://soundcloud.com/s3rl/s3rl-feat-tamika-nightcore-this-radio-edit-emfa-music)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAgfv4TXBnQ9szbH-pnlbbQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/sevag-h-roxbury-ncs-release)
 
-**Artist**: S3RL 
+**Artist**: NCS 
 
-**Track**: Nightcore This - S3RL Feat Tamika
+**Track**: Sevag H - Roxbury [NCS Release]
 
-Last updated at 11/6/2026, 6:16:09 AM
+Last updated at 11/6/2026, 11:00:03 AM
