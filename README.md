@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rAgfv4TXBnQ9szbH-pnlbbQ-t500x500.jpg">](https://soundcloud.com/nocopyrightsounds/sevag-h-roxbury-ncs-release)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9Fz7eNl92CPV8fg-EOYWNw-t500x500.jpg">](https://soundcloud.com/nullrecuk/static-reactor)
 
-**Artist**: NCS 
+**Artist**: NullRec 
 
-**Track**: Sevag H - Roxbury [NCS Release]
+**Track**: Static - Reactor
 
-Last updated at 11/6/2026, 11:00:03 AM
+Last updated at 11/7/2026, 7:53:20 AM
