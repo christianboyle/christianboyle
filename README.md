@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9Fz7eNl92CPV8fg-EOYWNw-t500x500.jpg">](https://soundcloud.com/nullrecuk/static-reactor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fS4zuyZWzdgxE3Ri-ihH7rg-t500x500.jpg">](https://soundcloud.com/41rossco/lr5)
 
-**Artist**: NullRec 
+**Artist**: DJ.Rossco 
 
-**Track**: Static - Reactor
+**Track**: 7.11.26
 
-Last updated at 11/7/2026, 7:53:20 AM
+Last updated at 11/8/2026, 8:34:42 AM
