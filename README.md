@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJaMB2z0yY7ztz9C-0XI8gA-t500x500.jpg">](https://soundcloud.com/spandau20/spnd20-by-denham-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-bJfWAHOuAz3zDzMZ-Op3GvQ-t500x500.jpg">](https://soundcloud.com/itshydraulix/hdx7stars26)
 
-**Artist**: SPANDAU20 | CROWD 
+**Artist**: Hydraulix 
 
-**Track**: SPND20 by Denham Audio
+**Track**: Hydraulix - Seven Stars 2026 (FULL SET)
 
-Last updated at 11/9/2026, 11:22:52 AM
+Last updated at 11/9/2026, 1:33:18 PM
