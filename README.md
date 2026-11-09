@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-fS4zuyZWzdgxE3Ri-ihH7rg-t500x500.jpg">](https://soundcloud.com/41rossco/lr5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-P7uLoG37gxFwkuz0-VfNunw-t500x500.jpg">](https://soundcloud.com/paul-johnny-johnston/bounce-back-to-trance-anthems)
 
-**Artist**: DJ.Rossco 
+**Artist**: Johnny (Paul Johnston) 
 
-**Track**: 7.11.26
+**Track**: Bounce Back To: Trance Anthems
 
-Last updated at 11/8/2026, 8:34:42 AM
+Last updated at 11/9/2026, 6:16:07 AM
