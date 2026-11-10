@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qER2TrPBhbcxkzl7-vx7slw-t500x500.jpg">](https://soundcloud.com/alyxtrick/dreamingtogether)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/charli-xcx-360-pk-flip)
 
-**Artist**: Alyx Trick 
+**Artist**: DJ PK 
 
-**Track**: BE YOURS (DREAMING TOGETHER)
+**Track**: charli xcx - 360 (pk flip)
 
-Last updated at 11/10/2026, 2:29:15 PM
+Last updated at 11/10/2026, 2:30:41 PM
