@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1wNQ9bCf1T0ygqeQ-U1zuPA-t500x500.jpg">](https://soundcloud.com/twinglockuser123/hydrated)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qER2TrPBhbcxkzl7-vx7slw-t500x500.jpg">](https://soundcloud.com/alyxtrick/dreamingtogether)
 
-**Artist**: twinglockuser123 
+**Artist**: Alyx Trick 
 
-**Track**: hydrated [db808]
+**Track**: BE YOURS (DREAMING TOGETHER)
 
-Last updated at 11/10/2026, 2:28:01 PM
+Last updated at 11/10/2026, 2:29:15 PM
