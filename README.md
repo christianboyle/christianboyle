@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OJaMB2z0yY7ztz9C-0XI8gA-t500x500.jpg">](https://soundcloud.com/spandau20/spnd20-by-denham-audio)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ejkYjPU3u0REtkjo-eOuIwA-t500x500.jpg">](https://soundcloud.com/terrabytez/daft-punk-one-more-time-3)
 
-**Artist**: SPANDAU20 | CROWD 
+**Artist**: TerraBytez 
 
-**Track**: SPND20 by Denham Audio
+**Track**: Daft Punk - One More Time (TerraBytez Corruption)
 
-Last updated at 11/10/2026, 11:20:21 AM
+Last updated at 11/10/2026, 1:54:22 PM
