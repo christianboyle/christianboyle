@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIyIazViEluHMhbk-wgsy8A-t500x500.jpg">](https://soundcloud.com/biophaze/pulse)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCBzB9zY9yylB0O7-VgQztQ-t500x500.jpg">](https://soundcloud.com/vondoo/felmax-the-scary-door-vondoo)
 
-**Artist**: GLVZE 
+**Artist**: VONDOO 
 
-**Track**: GLVZE - Pulse
+**Track**: Felmax - The Scary Door (VONDOO Remix)
 
-Last updated at 11/10/2026, 2:32:17 PM
+Last updated at 11/10/2026, 2:34:42 PM
