@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-JJsktD1aJTzGUuk6-WZOFOQ-t500x500.jpg">](https://soundcloud.com/dnzrecords/dj-neo-larger-than-life-free)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkDunvxzkwy3aGPX-cNiMqQ-t500x500.jpg">](https://soundcloud.com/pearsy_beats/glorilla-pooh-sheisty-mane-1)
 
-**Artist**: DJ Neo 
+**Artist**: pearsy. 
 
-**Track**: DJ Neo - Larger Than Life / FREE DOWNLOAD!
+**Track**: GloRilla & Pooh Sheisty - MANE (pearsy. flip)
 
-Last updated at 11/10/2026, 2:20:56 PM
+Last updated at 11/10/2026, 2:22:25 PM
