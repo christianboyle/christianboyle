@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/charli-xcx-360-pk-flip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIyIazViEluHMhbk-wgsy8A-t500x500.jpg">](https://soundcloud.com/biophaze/pulse)
 
-**Artist**: DJ PK 
+**Artist**: GLVZE 
 
-**Track**: charli xcx - 360 (pk flip)
+**Track**: GLVZE - Pulse
 
-Last updated at 11/10/2026, 2:30:41 PM
+Last updated at 11/10/2026, 2:32:17 PM
