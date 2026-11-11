@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nFLQC8HIeBh97yll-yg1bvA-t500x500.jpg">](https://soundcloud.com/user-751671231/adrippain-mp3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pM5OZLlnifKUvjRd-EDkGwQ-t500x500.jpg">](https://soundcloud.com/notsegan/think)
 
-**Artist**: GHO$TBOY 
+**Artist**: Segan 
 
-**Track**: break me down (prod.cut throat)
+**Track**: Kettama, Prospa - Think of You (Segan Edit)
 
-Last updated at 11/11/2026, 4:44:35 PM
+Last updated at 11/11/2026, 4:45:35 PM
