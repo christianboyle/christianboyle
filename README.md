@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RWayjbr1xltIMWVp-jAr3wA-t500x500.jpg">](https://soundcloud.com/kozmoz-remixes/skrillex-alvin-risk-try-it-out)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SRu9p2R6A5Tsi0J5-zrVPpA-t500x500.jpg">](https://soundcloud.com/geomcd/skydancer-geo-mcd)
 
-**Artist**: Skrillex, Alvin Risk 
+**Artist**: geo mcd 
 
-**Track**: Try It Out (Kozmoz X Vibe link Flip)
+**Track**: Skydancer - Geo Mcd
 
-Last updated at 11/11/2026, 10:29:40 AM
+Last updated at 11/11/2026, 10:31:45 AM
