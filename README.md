@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sz1IYPmiyNsUAoTS-7MphGQ-t500x500.jpg">](https://soundcloud.com/lynyou/speed)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GTconKcaLyQNa5d5-nsVh5w-t500x500.jpg">](https://soundcloud.com/lynyou/tidefreestyle)
 
 **Artist**: lynU 
 
-**Track**: Kim Petras - Need For Speed 【lynU bootleg】
+**Track**: Nowhere 2 run w/ kay
 
-Last updated at 11/11/2026, 8:37:58 AM
+Last updated at 11/11/2026, 8:41:13 AM
