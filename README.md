@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GTconKcaLyQNa5d5-nsVh5w-t500x500.jpg">](https://soundcloud.com/lynyou/tidefreestyle)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dIyIazViEluHMhbk-wgsy8A-t500x500.jpg">](https://soundcloud.com/biophaze/pulse)
 
-**Artist**: lynU 
+**Artist**: GLVZE 
 
-**Track**: Nowhere 2 run w/ kay
+**Track**: GLVZE - Pulse
 
-Last updated at 11/11/2026, 8:41:13 AM
+Last updated at 11/11/2026, 8:43:28 AM
