@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wCmEMD0QtMNz0Yi3-pBvjbw-t500x500.jpg">](https://soundcloud.com/user-265793708/on-da-record)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RWayjbr1xltIMWVp-jAr3wA-t500x500.jpg">](https://soundcloud.com/kozmoz-remixes/skrillex-alvin-risk-try-it-out)
 
-**Artist**: MËRO 
+**Artist**: Skrillex, Alvin Risk 
 
-**Track**: On Da Record
+**Track**: Try It Out (Kozmoz X Vibe link Flip)
 
-Last updated at 11/11/2026, 10:26:05 AM
+Last updated at 11/11/2026, 10:29:40 AM
