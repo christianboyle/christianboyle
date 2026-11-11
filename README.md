@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-e6K05F1JL6xSwjPF-3Te12w-t500x500.jpg">](https://soundcloud.com/prod_pk/trim-pk)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon)
 
-**Artist**: pk (@prod_pk) 
+**Artist**: thrml, xona 
 
-**Track**: Trim (pk)
+**Track**: screaming minion prod 01kon
 
-Last updated at 11/11/2026, 9:00:53 AM
+Last updated at 11/11/2026, 9:02:53 AM
