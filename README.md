@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5hZp9UcVHEESLK8-6kduzA-t500x500.jpg">](https://soundcloud.com/malfunktionmusic/avicii-levels-malfunktion-x-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCqjTOn4hRxaT0dL-RksWpA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/chainsaw)
 
-**Artist**: Avicii, Malfunktion, Azassin 
+**Artist**: OOTORO & Basstrick  
 
-**Track**: Avicii - Levels (Malfunktion X Azassin Remix)
+**Track**: OOTORO & Basstrick - CHAINSAW
 
-Last updated at 11/11/2026, 10:13:15 AM
+Last updated at 11/11/2026, 10:15:46 AM
