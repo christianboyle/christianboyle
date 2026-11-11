@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dNShEYgfsL12xnBI-K8GKzg-t500x500.jpg">](https://soundcloud.com/hannahlaingdj/hannah-laing-feat-rhys-from-the-sticks-4am-in-a-rave-preview)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Gh7zFpl5xgkrVjgV-lzPT6A-t500x500.jpg">](https://soundcloud.com/dancingdeadrecords/shakeyourbodyworkouttool)
 
-**Artist**: Hannah Laing 
+**Artist**: Komb, Quickdrop 
 
-**Track**: 4am In A Rave feat. rhys from the sticks
+**Track**: Komb & Quickdrop - Shake Your Body (Workout Tool)
 
-Last updated at 11/11/2026, 10:35:11 AM
+Last updated at 11/11/2026, 10:37:16 AM
