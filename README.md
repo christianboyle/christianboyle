@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyBx9BXWMzz375D0-8LAMEw-t500x500.jpg">](https://soundcloud.com/s3rl/dealer-vvvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pIco8Ya2rEKBn4BL-y2XNfw-t500x500.jpg">](https://soundcloud.com/wanton_music/post-malone-i-fall-apart-schranz-remix)
 
-**Artist**: S3RL 
+**Artist**: Wanton 
 
-**Track**: Dealer (VVVIP)
+**Track**: Post Malone - I fall apart (Remix)
 
-Last updated at 11/11/2026, 10:18:50 AM
+Last updated at 11/11/2026, 10:22:25 AM
