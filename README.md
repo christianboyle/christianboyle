@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9Fz7eNl92CPV8fg-EOYWNw-t500x500.jpg">](https://soundcloud.com/nullrecuk/static-reactor)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iDrclZS1QjHty57O-tenALw-t500x500.png">](https://soundcloud.com/bignutchuckbeats/misery-business-homemade)
 
-**Artist**: NullRec 
+**Artist**: Big Nut Chuck 
 
-**Track**: Static - Reactor
+**Track**: Misery Business (Homemade Spaceship x Big Nut Chuck Remix) - Paramore
 
-Last updated at 11/11/2026, 9:53:50 AM
+Last updated at 11/11/2026, 9:56:35 AM
