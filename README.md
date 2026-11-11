@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-j9Fz7eNl92CPV8fg-EOYWNw-t500x500.jpg">](https://soundcloud.com/nullrecuk/static-reactor)
 
-**Artist**: thrml, xona 
+**Artist**: NullRec 
 
-**Track**: screaming minion prod 01kon
+**Track**: Static - Reactor
 
-Last updated at 11/11/2026, 9:11:29 AM
+Last updated at 11/11/2026, 9:53:50 AM
