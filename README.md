@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCqjTOn4hRxaT0dL-RksWpA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/chainsaw)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyBx9BXWMzz375D0-8LAMEw-t500x500.jpg">](https://soundcloud.com/s3rl/dealer-vvvip)
 
-**Artist**: OOTORO & Basstrick  
+**Artist**: S3RL 
 
-**Track**: OOTORO & Basstrick - CHAINSAW
+**Track**: Dealer (VVVIP)
 
-Last updated at 11/11/2026, 10:15:46 AM
+Last updated at 11/11/2026, 10:18:50 AM
