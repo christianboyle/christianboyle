@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jkDunvxzkwy3aGPX-cNiMqQ-t500x500.jpg">](https://soundcloud.com/pearsy_beats/glorilla-pooh-sheisty-mane-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJVeE7xGpscSMtwg-Nl0uLA-t500x500.jpg">](https://soundcloud.com/mcgraf/wilk-mcgraf-can-you-feel-it)
 
-**Artist**: pearsy. 
+**Artist**: McGraf 
 
-**Track**: GloRilla & Pooh Shiesty - MANE (pearsy. flip)
+**Track**: Wilk & McGraf - Can You Feel It
 
-Last updated at 11/11/2026, 8:46:28 AM
+Last updated at 11/11/2026, 8:49:28 AM
