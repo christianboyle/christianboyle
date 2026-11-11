@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJVeE7xGpscSMtwg-Nl0uLA-t500x500.jpg">](https://soundcloud.com/mcgraf/wilk-mcgraf-can-you-feel-it)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Sz1IYPmiyNsUAoTS-7MphGQ-t500x500.jpg">](https://soundcloud.com/lynyou/speed)
 
-**Artist**: McGraf 
+**Artist**: lynU 
 
-**Track**: Wilk & McGraf - Can You Feel It
+**Track**: Kim Petras - Need For Speed 【lynU bootleg】
 
-Last updated at 11/11/2026, 7:54:56 AM
+Last updated at 11/11/2026, 8:37:58 AM
