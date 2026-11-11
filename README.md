@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-qhjj7hPyixR7Uur4-jyeaBQ-t500x500.jpg">](https://soundcloud.com/playtimeofficial/wiwek-skrillex-killa-playtime)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5hZp9UcVHEESLK8-6kduzA-t500x500.jpg">](https://soundcloud.com/malfunktionmusic/avicii-levels-malfunktion-x-1)
 
-**Artist**: Wiwek & Skrillex 
+**Artist**: Avicii, Malfunktion, Azassin 
 
-**Track**: Wiwek x Skrillex x Elliphant - Killa (PlayTime Remix)
+**Track**: Avicii - Levels (Malfunktion X Azassin Remix)
 
-Last updated at 11/11/2026, 10:09:55 AM
+Last updated at 11/11/2026, 10:13:15 AM
