@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2CninfcHnn0AGG8v-fiB9BA-t500x500.jpg">](https://soundcloud.com/hardcoreenergy/krym-this-is-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-iCxGy5I6udjzUfRf-w2WKPw-t500x500.jpg">](https://soundcloud.com/novascotia/nova-scotia-wherever-you-will)
 
-**Artist**: Hardcore Energy 
+**Artist**: Nova Scotia 
 
-**Track**: KRYM - This Is Hardcore
+**Track**: Nova Scotia - Wherever You Will Go
 
-Last updated at 11/12/2026, 12:07:19 PM
+Last updated at 11/12/2026, 3:39:13 PM
