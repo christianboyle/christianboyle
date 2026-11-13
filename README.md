@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klxZYDeyRpa6Jxsk-kFyTxg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/rr-preview-62d2c79a-43b2-4bea-a2af-3f1c8039548b)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PDQbUYHPwzWuzyut-RJJgng-t500x500.jpg">](https://soundcloud.com/boymeetsworlddj/silva-bumpa-on-2nite)
 
-**Artist**: Rewired Records 
+**Artist**: BOYMEETSWORLD 
 
-**Track**: JGS & INTENT - OverRide
+**Track**: Silva Bumpa - On 2nite (BOYMEETSWORLD & FRYLICK Remix)
 
-Last updated at 11/13/2026, 5:13:17 PM
+Last updated at 11/13/2026, 5:14:22 PM
