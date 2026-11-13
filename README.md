@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pM5OZLlnifKUvjRd-EDkGwQ-t500x500.jpg">](https://soundcloud.com/notsegan/think)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-lcaOhkZq9hWRUdlL-cyAlTg-t500x500.jpg">](https://soundcloud.com/p-yates/01-blackbox1-wav)
 
-**Artist**: Segan 
+**Artist**: Pickler 
 
-**Track**: Kettama, Prospa - Think of You (Segan Edit)
+**Track**: Live @ Black Box • Denver, CO • 5.23.26
 
-Last updated at 11/12/2026, 6:10:22 PM
+Last updated at 11/12/2026, 6:11:42 PM
