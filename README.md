@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Y8zbveU4xMcyC2wd-qS5KYQ-t500x500.jpg">](https://soundcloud.com/azauriel/work-remix-a-ap-ferg-ft-a-ap)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-klxZYDeyRpa6Jxsk-kFyTxg-t500x500.jpg">](https://soundcloud.com/rewiredrecordsuk/rr-preview-62d2c79a-43b2-4bea-a2af-3f1c8039548b)
 
-**Artist**: Azauriel 
+**Artist**: Rewired Records 
 
-**Track**: Work REMIX - A$AP Ferg ( ft. A$AP Rocky, French Montana, Trinidad James & ScHoolboy Q)-AZAURIEL FLIP
+**Track**: JGS & INTENT - OverRide
 
-Last updated at 11/13/2026, 5:12:17 PM
+Last updated at 11/13/2026, 5:13:17 PM
