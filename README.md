@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-C7yOllq4d3Wpahci-yIrHLw-t500x500.jpg">](https://soundcloud.com/ravelibrary123/ralphie-dee-off-me-fuckin-head)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-pM5OZLlnifKUvjRd-EDkGwQ-t500x500.jpg">](https://soundcloud.com/notsegan/think)
 
-**Artist**: Rave Library 
+**Artist**: Segan 
 
-**Track**: Ralphie Dee - Off Me Fucking Head
+**Track**: Kettama, Prospa - Think of You (Segan Edit)
 
-Last updated at 11/12/2026, 6:09:16 PM
+Last updated at 11/12/2026, 6:10:22 PM
