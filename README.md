@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GgVJOMc0lp5iB6vO-bXfxLw-t500x500.jpg">](https://soundcloud.com/kerry-jessica-batey/scouse-house)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TcysQDyBu3xWLQD6-25eMvw-t500x500.jpg">](https://soundcloud.com/phuturecollective/kill-your-utopia-paranoia)
 
-**Artist**: KJB 
+**Artist**: Kill Your Utopia, Phuture Collective ∞ 
 
-**Track**: SCOUSE HOUSE | THE LIVERPOOL YEARS
+**Track**: Kill Your Utopia - paranoia
 
-Last updated at 11/12/2026, 6:15:02 PM
+Last updated at 11/12/2026, 6:19:02 PM
