@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-2PDmHlzNMoxe9LQp-p6Q3zg-t500x500.jpg">](https://soundcloud.com/djainzi/dj-ainzi-if-i-die-young)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Mxgzl8mqDjvtOntZ-HxmLGw-t500x500.jpg">](https://soundcloud.com/natepattaz/mad-trax-guest-mix-volume-7)
 
-**Artist**: Dj Ainzi (Donk House Records) 
+**Artist**: Agent Blue | Mad Trax | Makina Arena 
 
-**Track**: Dj Ainzi - If I Die Young
+**Track**: Mad Trax Guest Mix Volume 7 | NRG | Classic Trance
 
-Last updated at 11/14/2026, 7:00:44 AM
+Last updated at 11/15/2026, 9:24:35 AM
