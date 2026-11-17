@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uFEBzFxkVOfVrdY8-NZCtzg-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/100-vinyl-vocal-uk-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-I0vvbhaHvVZkNGzz-fzaoTg-t500x500.jpg">](https://soundcloud.com/djjoecraig/2-dj-joe-craig-volume-2)
 
-**Artist**: Dj Des 
+**Artist**: djjoecraig 
 
-**Track**: 100%   Vinyl Vocal Uk Hardcore Slammers Advent Calender 2026 .....
+**Track**: 2.Dj Joe Craig - Volume 2 'Commercial Dance' 2002
 
-Last updated at 11/16/2026, 11:01:10 AM
+Last updated at 11/16/2026, 6:08:40 PM
