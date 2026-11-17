@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-juqxyLxz0bgjDW3w-yildig-t500x500.jpg">](https://soundcloud.com/astroeric/knockin)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PRrCiOoLQa3skryW-kR7d0A-t500x500.jpg">](https://soundcloud.com/ravelibrary123/equazion-hardcore-science)
 
-**Artist**: ASTRO ERIC, NAME DROP 
+**Artist**: Rave Library 
 
-**Track**: KNOCKIN' W/ NAME DROP
+**Track**: Equazion - Hardcore Science
 
-Last updated at 11/17/2026, 10:37:49 AM
+Last updated at 11/17/2026, 10:39:49 AM
