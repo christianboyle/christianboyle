@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w1GJZE71ly0WJmmz-d1Dc8Q-t500x500.jpg">](https://soundcloud.com/amplifiedbounce/linkin-park-numb-gzbo-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-HX0HID8ba3spJ8Tn-7IrOCQ-t500x500.jpg">](https://soundcloud.com/thorkay/dj-thor-k-featuring-full)
 
-**Artist**: LUBO 
+**Artist**: DJ Thor K 
 
-**Track**: Linkin Park - Numb (GZBO Remix)
+**Track**: DJ Thor K - Featuring Full Playlist Of  KRITIKAL MASS KEVIN & PERRY Remixes
 
-Last updated at 11/17/2026, 8:05:35 AM
+Last updated at 11/17/2026, 8:09:00 AM
