@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PdeC1zLtJ8OvBDJ5-XBcgQw-t500x500.jpg">](https://soundcloud.com/no-mercy-label/atb-dontstop-mrmachine?in=saxurn/sets/fracts-on-fracts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k7yTcU4yh4PaFOEK-BlREvQ-t500x500.jpg">](https://soundcloud.com/raw-rokit/butterflies-are-gone?in=saxurn/sets/fracts-on-fracts/)
 
-**Artist**: NO MERCY RECORDS 
+**Artist**: Raw Rokit 
 
-**Track**: ATB - Don't Stop (Mr.Machine Edit) [Free Download]
+**Track**: Butterflies Are Gone
 
-Last updated at 11/17/2026, 7:11:28 PM
+Last updated at 11/17/2026, 7:12:31 PM
