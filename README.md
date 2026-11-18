@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBiMPpTJ1aywgz8c-EytDrQ-t500x500.jpg">](https://soundcloud.com/slangdogs/recoil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Edb29zMra7zMhvsR-XIHPqw-t500x500.png">](https://soundcloud.com/thebvngr/the-legendary-set)
 
-**Artist**: Slang Dogs 
+**Artist**: THE BVNGR 
 
-**Track**: Recoil
+**Track**: The Legendary Set
 
-Last updated at 11/18/2026, 6:24:16 AM
+Last updated at 11/18/2026, 8:01:24 AM
