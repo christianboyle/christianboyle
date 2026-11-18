@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Edb29zMra7zMhvsR-XIHPqw-t500x500.png">](https://soundcloud.com/thebvngr/the-legendary-set)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-RuMMpvV3I2quljX1-rfGziQ-t500x500.jpg">](https://soundcloud.com/hate_music/premiere-maurer-komorebi)
 
-**Artist**: THE BVNGR 
+**Artist**: HATE, MAURER  
 
-**Track**: The Legendary Set
+**Track**: Premiere: MAURER — Komorebi [BOI026]
 
-Last updated at 11/18/2026, 11:31:43 AM
+Last updated at 11/18/2026, 11:32:53 AM
