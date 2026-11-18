@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SBVLPz8RnmxuT9Y4-ayAvLQ-t500x500.jpg">](https://soundcloud.com/deathsticksmusic/deathsticks-tantalus)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-plJxeGddR2YTW4el-yFyxrQ-t500x500.jpg">](https://soundcloud.com/dancefloorimpactresearch/proxyma-reve-lucide-pm-4)
 
-**Artist**: DEATHSTICKS 
+**Artist**: Dancefloor Impact Research 
 
-**Track**: DEATHSTICKS - TANTALUS
+**Track**: PROXYMA - Rêve Lucide (pm)
 
-Last updated at 11/18/2026, 11:35:38 AM
+Last updated at 11/18/2026, 11:38:23 AM
