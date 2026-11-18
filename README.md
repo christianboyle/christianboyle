@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uh6gZdrnu0NkbzF8-rRtb4A-t500x500.jpg">](https://soundcloud.com/veneno-lisbon/pi-ccolo-gasolina-club)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-dCqjTOn4hRxaT0dL-RksWpA-t500x500.jpg">](https://soundcloud.com/nightmoderecs/chainsaw?in=saxurn/sets/fracts-on-fracts)
 
-**Artist**: VENENOCORE.RECORDS 
+**Artist**: OOTORO & Basstrick  
 
-**Track**: pìccolo - Gasolina Club
+**Track**: OOTORO & Basstrick - CHAINSAW
 
-Last updated at 11/17/2026, 7:13:46 PM
+Last updated at 11/17/2026, 7:14:46 PM
