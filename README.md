@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-z5hZp9UcVHEESLK8-6kduzA-t500x500.jpg">](https://soundcloud.com/malfunktionmusic/avicii-levels-malfunktion-x-1?in=saxurn/sets/fracts-on-fracts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VyBx9BXWMzz375D0-8LAMEw-t500x500.jpg">](https://soundcloud.com/s3rl/dealer-vvvip?in=saxurn/sets/fracts-on-fracts)
 
-**Artist**: Avicii, Malfunktion, Azassin 
+**Artist**: S3RL 
 
-**Track**: Avicii - Levels (Malfunktion X Azassin Remix)
+**Track**: Dealer (VVVIP)
 
-Last updated at 11/17/2026, 7:37:49 PM
+Last updated at 11/17/2026, 7:40:19 PM
