@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-7dgFl6btv2Sxm629-9d3uCg-t500x500.jpg">](https://soundcloud.com/panteros666/panteros666-la-la-la?in=saxurn/sets/fracts-on-fracts)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k7yTcU4yh4PaFOEK-BlREvQ-t500x500.jpg">](https://soundcloud.com/raw-rokit/butterflies-are-gone?in=saxurn/sets/fracts-on-fracts)
 
-**Artist**: Panteros666 
+**Artist**: Raw Rokit 
 
-**Track**: Panteros666 - lalala (Around The World)
+**Track**: Butterflies Are Gone
 
-Last updated at 11/17/2026, 7:27:54 PM
+Last updated at 11/17/2026, 7:31:19 PM
