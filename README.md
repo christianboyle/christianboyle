@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ckfQrBHsLoKzb6yz-66SyfA-t500x500.jpg">](https://soundcloud.com/cruelintentionsmusic/w-w-schak-dj-skryker-impacto)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-aM5JCIbtKdF4PBdF-GtAg1Q-t500x500.jpg">](https://soundcloud.com/ssssombra/give-me-everything-flip)
 
-**Artist**: W&W, Schak, DJ Skryker 
+**Artist**: sombra 
 
-**Track**: W&W, Schak, DJ Skryker - Impacto (Makina) Cruel Intentions bootleg
+**Track**: give me everything flip
 
-Last updated at 11/17/2026, 7:16:56 PM
+Last updated at 11/17/2026, 7:18:11 PM
