@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-BdDZdyE7m2lYCTMI-uU5Fsw-t500x500.jpg">](https://soundcloud.com/iamyou_fm/deer-jade-shroomambo-iamyou014)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jyYyqIPJTztCQfpx-wHwcvw-t500x500.jpg">](https://soundcloud.com/renexy/perfect)
 
-**Artist**: Deer Jade 
+**Artist**: renexy 
 
-**Track**: Deer Jade - Shroomambo [IAMYOU014]
+**Track**: perfect
 
-Last updated at 11/18/2026, 11:39:33 AM
+Last updated at 11/18/2026, 11:42:28 AM
