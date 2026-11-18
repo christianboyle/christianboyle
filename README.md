@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k7yTcU4yh4PaFOEK-BlREvQ-t500x500.jpg">](https://soundcloud.com/raw-rokit/butterflies-are-gone?in=saxurn/sets/fracts-on-fracts/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Uh6gZdrnu0NkbzF8-rRtb4A-t500x500.jpg">](https://soundcloud.com/veneno-lisbon/pi-ccolo-gasolina-club)
 
-**Artist**: Raw Rokit 
+**Artist**: VENENOCORE.RECORDS 
 
-**Track**: Butterflies Are Gone
+**Track**: pìccolo - Gasolina Club
 
-Last updated at 11/17/2026, 7:12:31 PM
+Last updated at 11/17/2026, 7:13:46 PM
