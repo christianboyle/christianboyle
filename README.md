@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon?in=saxurn/sets/gen-5/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-csHi6jzOHfHH4EQo-jYw0Hw-t500x500.jpg">](https://soundcloud.com/rvstyy/go-kartz?in=saxurn/sets/gen-5/)
 
-**Artist**: thrml, xona 
+**Artist**: rvsty (prod quintuple) 
 
-**Track**: screaming minion prod 01kon
+**Track**: GO KARTZ
 
-Last updated at 11/19/2026, 5:07:13 PM
+Last updated at 11/19/2026, 5:09:12 PM
