@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OWLzBQaFLnTUe8r-anE1lA-t500x500.jpg">](https://soundcloud.com/s3rl/doof-doof-untz-untz-vvvip)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiNBVebXGgLSPHI3-iUxLxg-t500x500.jpg">](https://soundcloud.com/uglylungs/wbp_uglylungsremix)
 
-**Artist**: S3RL 
+**Artist**: UGLY LUNGS, THREE SIX MAFIA  
 
-**Track**: Doof Doof Untz Untz (VVVIP)
+**Track**: WEED, BLOW, PILLS (UGLY LUNGS REMIX)
 
-Last updated at 11/18/2026, 7:41:32 PM
+Last updated at 11/18/2026, 7:42:42 PM
