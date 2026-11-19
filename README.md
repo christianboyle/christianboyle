@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OiNBVebXGgLSPHI3-iUxLxg-t500x500.jpg">](https://soundcloud.com/uglylungs/wbp_uglylungsremix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-GTconKcaLyQNa5d5-nsVh5w-t500x500.jpg">](https://soundcloud.com/lynyou/tidefreestyle)
 
-**Artist**: UGLY LUNGS, THREE SIX MAFIA  
+**Artist**: lynU 
 
-**Track**: WEED, BLOW, PILLS (UGLY LUNGS REMIX)
+**Track**: Nowhere 2 run w/ kay
 
-Last updated at 11/18/2026, 7:42:42 PM
+Last updated at 11/18/2026, 7:44:01 PM
