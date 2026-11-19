@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZOmtc2qfLmXgem6O-MYFwHA-t500x500.jpg">](https://soundcloud.com/ravelibrary123/scott-brown-trance-sect-lost)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-csHi6jzOHfHH4EQo-jYw0Hw-t500x500.jpg">](https://soundcloud.com/rvstyy/go-kartz)
 
-**Artist**: Rave Library 
+**Artist**: rvsty (prod quintuple) 
 
-**Track**: Scott Brown - Trance Sect/Lost Generation (Kev Energy Megamix)
+**Track**: GO KARTZ
 
-Last updated at 11/18/2026, 7:50:14 PM
+Last updated at 11/18/2026, 7:51:39 PM
