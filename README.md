@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-TBiMPpTJ1aywgz8c-EytDrQ-t500x500.jpg">](https://soundcloud.com/slangdogs/recoil-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-k7yTcU4yh4PaFOEK-BlREvQ-t500x500.jpg">](https://soundcloud.com/raw-rokit/butterflies-are-gone)
 
-**Artist**: Slang Dogs 
+**Artist**: Raw Rokit 
 
-**Track**: Recoil
+**Track**: Butterflies Are Gone
 
-Last updated at 11/18/2026, 7:46:23 PM
+Last updated at 11/18/2026, 7:47:24 PM
