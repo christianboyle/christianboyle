@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vwj5oTSyWqDxpy0s-8wVUwA-t500x500.jpg">](https://soundcloud.com/lisahigham81/01-rec-2026-11-19)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon?in=saxurn/sets/gen-5/)
 
-**Artist**: Yes ii  
+**Artist**: thrml, xona 
 
-**Track**: Yes ii presents The Bounce Generation vol 83 feat Dj Crossley 🔥🔥
+**Track**: screaming minion prod 01kon
 
-Last updated at 11/19/2026, 3:31:10 PM
+Last updated at 11/19/2026, 5:07:13 PM
