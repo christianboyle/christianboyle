@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-csHi6jzOHfHH4EQo-jYw0Hw-t500x500.jpg">](https://soundcloud.com/rvstyy/go-kartz?in=saxurn/sets/1a1/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-X5YpvIWFYPpoi1Mk-VzGgyQ-t500x500.jpg">](https://soundcloud.com/rvstyy/the-backstage?in=saxurn/sets/1a1/)
 
-**Artist**: rvsty (prod quintuple) 
+**Artist**: rvsty, cluu 
 
-**Track**: GO KARTZ
+**Track**: the backstage (ft. cluu) [methboiswag]
 
-Last updated at 11/18/2026, 7:54:34 PM
+Last updated at 11/18/2026, 7:56:39 PM
