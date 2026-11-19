@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OWLzBQaFLnTUe8r-anE1lA-t500x500.jpg">](https://soundcloud.com/s3rl/doof-doof-untz-untz-vvvip)
 
-**Artist**: thrml, xona 
+**Artist**: S3RL 
 
-**Track**: screaming minion prod 01kon
+**Track**: Doof Doof Untz Untz (VVVIP)
 
-Last updated at 11/18/2026, 7:40:27 PM
+Last updated at 11/18/2026, 7:41:32 PM
