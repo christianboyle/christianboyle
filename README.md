@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-MtO0uoZl8uQirk1g-JQHDzA-t500x500.jpg">](https://soundcloud.com/lee-batchee-147371268/19-11-26)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ZjsuSLJ48zCHdWtE-ScbwkA-t500x500.jpg">](https://soundcloud.com/dj_force_86/valencia-1)
 
-**Artist**: batchee 
+**Artist**: Martin Force 
 
-**Track**: 19.11.26
+**Track**: Martin Force Valencia Sound 2
 
-Last updated at 11/19/2026, 2:52:49 PM
+Last updated at 11/19/2026, 2:54:39 PM
