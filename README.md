@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OTSvp2CsE5cPZa5T-IznRFg-t500x500.jpg">](https://soundcloud.com/melodicdancegroove/daft-punk-around-the-world?in=saxurn/sets/wind-faker/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgNKAKIyVSEoB6ry-kOvgag-t500x500.jpg">](https://soundcloud.com/ctrackbe/bonkersremix?in=saxurn/sets/wind-faker/)
 
-**Artist**: WESTEND 
+**Artist**: C-track, Dizzee Rascal, Armand Van Helden 
 
-**Track**: Daft Punk - Around  The  World  (WESTEND Edit)
+**Track**: Bonkers (C-track Remix)
 
-Last updated at 11/20/2026, 2:51:59 PM
+Last updated at 11/20/2026, 4:07:04 PM
