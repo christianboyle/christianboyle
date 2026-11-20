@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMYo0FeUNcUMSrAT-hua5Qg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/occyx-business-worm)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-gf2a56S2UoXHcPax-OZlyzA-t500x500.jpg">](https://soundcloud.com/sachsentrance/c-track-sachsentrance-podcast)
 
-**Artist**: Occyx 
+**Artist**: 🌹Sachsentrance 🌹 𝖘𝖆𝖈𝖍𝖘𝖊𝖓𝖙𝖗𝖆𝖓𝖈𝖊 🌹 
 
-**Track**: Occyx - Business Worm
+**Track**: C-TRACK - SACHSENTRANCE PODCAST #191
 
-Last updated at 11/20/2026, 9:08:16 AM
+Last updated at 11/20/2026, 9:11:51 AM
