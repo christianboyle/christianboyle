@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OTSvp2CsE5cPZa5T-IznRFg-t500x500.jpg">](https://soundcloud.com/melodicdancegroove/daft-punk-around-the-world)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PJLbGKzC0VL1aNMd-lg3P7w-t500x500.jpg">](https://soundcloud.com/callum-hewitt-25250334/diggin-deep-medicine-3)
 
-**Artist**: WESTEND 
+**Artist**: CAL 
 
-**Track**: Daft Punk - Around  The  World  (WESTEND Edit)
+**Track**: DIGGIN' DEEP - MEDICINE MEMORIES (Part 4)
 
-Last updated at 11/20/2026, 6:14:32 AM
+Last updated at 11/20/2026, 8:58:48 AM
