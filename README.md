@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jQ2SbVxd8ZqJSHKa-CjCx3A-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-dj-pleasure)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yO5vkzdg4J0yJedh-QgVVdA-t500x500.jpg">](https://soundcloud.com/dnzrecords/garbie-project-my-stupid-heart)
 
-**Artist**: DJ Pleasure 
+**Artist**: Garbie Project 
 
-**Track**: DJ PLEASURE - DJ Pleasure Revolution Records mix 🇬🇧
+**Track**: Garbie Project - My Stupid Heart
 
-Last updated at 11/20/2026, 9:02:48 AM
+Last updated at 11/20/2026, 9:03:48 AM
