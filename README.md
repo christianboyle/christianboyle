@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ys887NyHuzPoI69R-IHhhUw-t500x500.jpg">](https://soundcloud.com/jakazid/life-beyond-fracus-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jQ2SbVxd8ZqJSHKa-CjCx3A-t500x500.jpg">](https://soundcloud.com/user-318771271-928261520/dj-pleasure-dj-pleasure)
 
-**Artist**: JAKAZiD 
+**Artist**: DJ Pleasure 
 
-**Track**: Life Beyond (Fracus Remix)
+**Track**: DJ PLEASURE - DJ Pleasure Revolution Records mix 🇬🇧
 
-Last updated at 11/20/2026, 9:01:47 AM
+Last updated at 11/20/2026, 9:02:48 AM
