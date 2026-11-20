@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-PJLbGKzC0VL1aNMd-lg3P7w-t500x500.jpg">](https://soundcloud.com/callum-hewitt-25250334/diggin-deep-medicine-3)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-1q2QrECVN7joPfM8-uhJ0ZQ-t500x500.jpg">](https://soundcloud.com/officialdoil/burn-1)
 
-**Artist**: CAL 
+**Artist**: DOIL 
 
-**Track**: DIGGIN' DEEP - MEDICINE MEMORIES (Part 4)
+**Track**: BURN
 
-Last updated at 11/20/2026, 8:58:48 AM
+Last updated at 11/20/2026, 8:59:47 AM
