@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OeVzyDvyTj0d6Yy9-kk4y1g-t500x500.jpg">](https://soundcloud.com/iamwolfmagic/iwannadance-with-somebody)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-SMYo0FeUNcUMSrAT-hua5Qg-t500x500.jpg">](https://soundcloud.com/scuffedrecs/occyx-business-worm)
 
-**Artist**: wolfmagic 
+**Artist**: Occyx 
 
-**Track**: iwannadance (with somebody)
+**Track**: Occyx - Business Worm
 
-Last updated at 11/20/2026, 9:06:08 AM
+Last updated at 11/20/2026, 9:08:16 AM
