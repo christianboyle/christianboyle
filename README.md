@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4OWLzBQaFLnTUe8r-anE1lA-t500x500.jpg">](https://soundcloud.com/s3rl/doof-doof-untz-untz-vvvip?in=saxurn/sets/gen-5/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mimLaR2XmF1Ilh1G-tAhX2w-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-everlasting?in=saxurn/sets/gen-5/)
 
-**Artist**: S3RL 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Doof Doof Untz Untz (VVVIP)
+**Track**: 2 Sick Puppiez - Everlasting Love
 
-Last updated at 11/20/2026, 10:32:00 AM
+Last updated at 11/20/2026, 10:34:50 AM
