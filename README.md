@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-yJVeE7xGpscSMtwg-Nl0uLA-t500x500.jpg">](https://soundcloud.com/mcgraf/wilk-mcgraf-can-you-feel-it?in=saxurn/sets/gen-5)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-EYz15R3XfQNnsdfb-aoVoWw-t500x500.jpg">](https://soundcloud.com/djmag/premiere-seimei-carpainter?in=saxurn/sets/gen-5)
 
-**Artist**: McGraf 
+**Artist**: Seimei, Carpainter 
 
-**Track**: Wilk & McGraf - Can You Feel It
+**Track**: Premiere: Seimei & Carpainter 'Endless Rise'
 
-Last updated at 11/20/2026, 2:37:49 PM
+Last updated at 11/20/2026, 2:40:49 PM
