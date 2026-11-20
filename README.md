@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-nby8zBpQEkgdHsya-k7GEhQ-t500x500.png">](https://soundcloud.com/crumbpitmusic/bunt-trippin-crumb-pit-remix?in=saxurn/sets/wind-faker/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ys887NyHuzPoI69R-IHhhUw-t500x500.jpg">](https://soundcloud.com/jakazid/life-beyond-dj-noriken-remix?in=saxurn/sets/wind-faker/)
 
-**Artist**: BUNT. , Crumb Pit 
+**Artist**: JAKAZiD 
 
-**Track**: BUNT. , MAPEI - TRIPPIN (crumb pit remix)
+**Track**: Life Beyond (DJ Noriken Remix)
 
-Last updated at 11/20/2026, 4:10:09 PM
+Last updated at 11/20/2026, 4:12:09 PM
