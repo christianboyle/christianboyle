@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzZSydWqdOkTbCko-WSlfiA-t500x500.jpg">](https://soundcloud.com/madcoredubstep/disc-jockey)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-6lW1rndOaKE5mu6A-quLYRQ-t500x500.jpg">](https://soundcloud.com/squirrely-bass/late-night-snack-1)
 
-**Artist**: MADCORE 
+**Artist**: Squirrely Bass 
 
-**Track**: LYNY - Disc Jockey (MADCORE FLIP)
+**Track**: Late Night Snack
 
-Last updated at 11/22/2026, 11:41:12 AM
+Last updated at 11/22/2026, 11:42:12 AM
