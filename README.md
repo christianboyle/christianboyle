@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-uFEBzFxkVOfVrdY8-NZCtzg-t500x500.jpg">](https://soundcloud.com/dj-des-2009-1/100-vinyl-vocal-uk-hardcore)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-VHcuaLr7qRi1y34D-lK0FFA-t500x500.jpg">](https://soundcloud.com/djdanee/djs-murphy-x-dane-e-house-of)
 
-**Artist**: Dj Des 
+**Artist**: DANE E 
 
-**Track**: 100%   Vinyl Vocal Uk Hardcore Slammers Advent Calender 2026 .....
+**Track**: DJ's MURPHY x DANE E - House Of Horrors 2026 - TIBUK LIVE SET.
 
-Last updated at 11/21/2026, 2:52:18 PM
+Last updated at 11/22/2026, 10:32:28 AM
