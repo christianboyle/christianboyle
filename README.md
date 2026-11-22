@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-w2kuPpr3AUfwdfU1-QicI0w-t500x500.jpg">](https://soundcloud.com/ravelibrary123/dj-frantic-impulse-spiced-up)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeOzUWzlCK2C735p-zK2VFQ-t500x500.jpg">](https://soundcloud.com/officialyussi/secrets-yussi-remix)
 
-**Artist**: Rave Library 
+**Artist**: YUSSI 
 
-**Track**: DJ Frantic & Impulse - Spiced Up
+**Track**: TIESTO & KSHMR - SECRETS (YUSSI REMIX)
 
-Last updated at 11/22/2026, 11:39:11 AM
+Last updated at 11/22/2026, 11:40:11 AM
