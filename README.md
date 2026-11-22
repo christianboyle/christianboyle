@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-zeOzUWzlCK2C735p-zK2VFQ-t500x500.jpg">](https://soundcloud.com/officialyussi/secrets-yussi-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OzZSydWqdOkTbCko-WSlfiA-t500x500.jpg">](https://soundcloud.com/madcoredubstep/disc-jockey)
 
-**Artist**: YUSSI 
+**Artist**: MADCORE 
 
-**Track**: TIESTO & KSHMR - SECRETS (YUSSI REMIX)
+**Track**: LYNY - Disc Jockey (MADCORE FLIP)
 
-Last updated at 11/22/2026, 11:40:11 AM
+Last updated at 11/22/2026, 11:41:12 AM
