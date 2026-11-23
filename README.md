@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgNKAKIyVSEoB6ry-kOvgag-t500x500.jpg">](https://soundcloud.com/ctrackbe/bonkersremix?in=saxurn/sets/wind-faker/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWMdMXvgIn0xDXUG-8jx29w-t500x500.jpg">](https://soundcloud.com/bitbird/only-one?in=saxurn/sets/wind-faker/)
 
-**Artist**: C-track, Dizzee Rascal, Armand Van Helden 
+**Artist**: phritz, Jukaa 
 
-**Track**: Bonkers (C-track Remix)
+**Track**: Only one
 
-Last updated at 11/23/2026, 2:52:13 PM
+Last updated at 11/23/2026, 2:53:13 PM
