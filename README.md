@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YWMdMXvgIn0xDXUG-8jx29w-t500x500.jpg">](https://soundcloud.com/bitbird/only-one?in=saxurn/sets/wind-faker/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-OTSvp2CsE5cPZa5T-IznRFg-t500x500.jpg">](https://soundcloud.com/melodicdancegroove/daft-punk-around-the-world?in=saxurn/sets/wind-faker/)
 
-**Artist**: phritz, Jukaa 
+**Artist**: WESTEND 
 
-**Track**: Only one
+**Track**: Daft Punk - Around  The  World  (WESTEND Edit)
 
-Last updated at 11/23/2026, 2:53:13 PM
+Last updated at 11/23/2026, 2:54:26 PM
