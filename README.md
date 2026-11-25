@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-8dhz4rN1XJtISNNC-mlYncg-t500x500.jpg">](https://soundcloud.com/steven-major-106691550/bounce-feel-the-vibe-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon?in=saxurn/sets/gen-5)
 
-**Artist**: DJ STE MAJOR 
+**Artist**: thrml, xona 
 
-**Track**: BOUNCE 💥 FEEL THE VIBE 💥 2026  MIX    DJ STE MAJOR  : )
+**Track**: screaming minion prod 01kon
 
-Last updated at 11/25/2026, 10:24:10 AM
+Last updated at 11/25/2026, 10:25:11 AM
