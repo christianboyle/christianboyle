@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZnyVf9fXQfTqMOq-Nzyteg-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/special-d-come-with-me-drift?in=saxurn/sets/wind-faker/)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-Nvgx3faY3obr74N9-cCuy2g-t500x500.jpg">](https://soundcloud.com/prod_pk2/carly-rae-jepsen-call-me-maybe?in=saxurn/sets/wind-faker/)
 
-**Artist**: DRIFT & THE SCENE 
+**Artist**: DJ PK 
 
-**Track**: SPECIAL-D - COME WITH ME (DRIFT & THE SCENE REMIX) RADIO EDIT
+**Track**: Carly Rae Jepsen - Call Me Maybe (pk flip)
 
-Last updated at 11/24/2026, 6:43:49 PM
+Last updated at 11/24/2026, 6:47:39 PM
