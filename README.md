@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-wGUFS3C7371OgqSs-4NHGlw-t500x500.jpg">](https://soundcloud.com/dylan-woods-400699915/dj-deedub-diztruxshon-34th)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgNKAKIyVSEoB6ry-kOvgag-t500x500.jpg">](https://soundcloud.com/ctrackbe/bonkersremix?in=saxurn/sets/wind-faker/)
 
-**Artist**: DJ DEEDUB 
+**Artist**: C-track, Dizzee Rascal, Armand Van Helden 
 
-**Track**: DJ DEEDUB - Dizstruxshon 34th Birthday
+**Track**: Bonkers (C-track Remix)
 
-Last updated at 11/24/2026, 2:22:23 PM
+Last updated at 11/24/2026, 6:17:52 PM
