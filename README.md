@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mfuHqSBfZZT3UVO5-A0gS1Q-t500x500.jpg">](https://soundcloud.com/thrml/screaming-minion-prod-01kon)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-WgNKAKIyVSEoB6ry-kOvgag-t500x500.jpg">](https://soundcloud.com/ctrackbe/bonkersremix?in=saxurn/sets/wind-faker/)
 
-**Artist**: thrml, xona 
+**Artist**: C-track, Dizzee Rascal, Armand Van Helden 
 
-**Track**: screaming minion prod 01kon
+**Track**: Bonkers (C-track Remix)
 
-Last updated at 11/25/2026, 11:54:00 AM
+Last updated at 11/25/2026, 6:36:56 PM
