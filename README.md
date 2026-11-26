@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-rZnyVf9fXQfTqMOq-Nzyteg-t500x500.jpg">](https://soundcloud.com/tarrondjdriftbennett/special-d-come-with-me-drift)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-ElK05BwQPyYDP1iW-1iyaRg-t500x500.jpg">](https://soundcloud.com/user-578406259/bitchen-in-my-kitchen-vol-57)
 
-**Artist**: DRIFT & THE SCENE 
+**Artist**: Smokey 
 
-**Track**: SPECIAL-D - COME WITH ME (DRIFT & THE SCENE REMIX) RADIO EDIT
+**Track**: Bitchin In My Kitchen Vol 57 (Mixed By DJ Smokey)
 
-Last updated at 11/26/2026, 6:22:41 AM
+Last updated at 11/26/2026, 11:03:28 AM
