@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vaf51wgHCYdKIJZ0-3quYYw-t500x500.jpg">](https://soundcloud.com/nigel-moffett-943984113/ed-sheeran-peru-m-dee-21-klubb)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2q8UHyKCSBMlQ5P-yMyZGg-t500x500.jpg">](https://soundcloud.com/loudwerx/jungle-candle-flame-loudwerx)
 
-**Artist**: DJ MOFF-EL MOFF-M DEE 21-JM PROJECTZ. 
+**Artist**: LOUDWERX 
 
-**Track**: Ed Sheeran-Peru (M-Dee 21 & Klubb Efekt  Remix) (Sample)
+**Track**: Jungle - Candle Flame [LOUDWERX & WALDN Remix]
 
-Last updated at 11/27/2026, 7:44:59 AM
+Last updated at 11/27/2026, 7:45:58 AM
