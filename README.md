@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-QxrAHnz6vFahG83x-7S12rQ-t500x500.jpg">](https://soundcloud.com/rexy_dexy_music/crazy-in-love-rexy-dexy-remix)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-O9wzqiriJjEyZzho-krKdFg-t500x500.png">](https://soundcloud.com/3nightzmusic/vinecko)
 
-**Artist**: REXY=DEXY,  Beyoncé , JAY-Z 
+**Artist**: 3Nightz 
 
-**Track**: CRAZY IN LOVE (REXY=DEXY REMIX)
+**Track**: Vesna - Vínečko (Techno Remix)
 
-Last updated at 11/27/2026, 11:15:50 AM
+Last updated at 11/27/2026, 11:16:50 AM
