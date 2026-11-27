@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mWg3tJfTuRUcEzIj-XEKc7Q-t500x500.jpg">](https://soundcloud.com/spatrilsounds/vox-sola)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-xejF8oLHAP9W-0-t500x500.jpg">](https://soundcloud.com/shallnotfade/gangsta-girl-kellie-allen?in=shallnotfade/sets/body-action-remixes)
 
-**Artist**: Spatril 
+**Artist**: Groove Armada 
 
-**Track**: Vox Sola
+**Track**: Gangsta Girl (Kellie Allen Remix)
 
-Last updated at 11/27/2026, 11:19:51 AM
+Last updated at 11/27/2026, 11:20:56 AM
