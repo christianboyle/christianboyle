@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-jDgJdGfxEAxiobb8-VxMswQ-t500x500.jpg">](https://soundcloud.com/user-184838217/mini-makina-mix-1)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-4GanQCSJLdwzI9IR-Klzj1Q-t500x500.jpg">](https://soundcloud.com/hellgnar/choke-me-out)
 
-**Artist**: DJ WEECRUM 
+**Artist**: HELLGNAR 
 
-**Track**: mini makina mix #1
+**Track**: CHOKE ME OUT
 
-Last updated at 11/27/2026, 11:17:51 AM
+Last updated at 11/27/2026, 11:18:51 AM
