@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-G2q8UHyKCSBMlQ5P-yMyZGg-t500x500.jpg">](https://soundcloud.com/loudwerx/jungle-candle-flame-loudwerx)
+[<img align="left" width="100" src="https://i1.sndcdn.com/avatars-DHV1qsIW3MqWAmuE-1JBU1Q-t500x500.jpg">](https://soundcloud.com/pawsa/pawsa-worldwide_p-master_radio_4824-3)
 
-**Artist**: LOUDWERX 
+**Artist**: PAWSA 
 
-**Track**: Jungle - Candle Flame [LOUDWERX & WALDN Remix]
+**Track**: PAWSA - WORLDWIDE_P MASTER_RADIO_4824
 
-Last updated at 11/27/2026, 7:45:58 AM
+Last updated at 11/27/2026, 7:48:09 AM
