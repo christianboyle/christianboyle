@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-YCCNv1J49vSYB600-Yb6rrw-t500x500.jpg">](https://soundcloud.com/travelermusic/traveler-friendship-2026)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-Vaf51wgHCYdKIJZ0-3quYYw-t500x500.jpg">](https://soundcloud.com/nigel-moffett-943984113/ed-sheeran-peru-m-dee-21-klubb)
 
-**Artist**: TRAVELER 
+**Artist**: DJ MOFF-EL MOFF-M DEE 21-JM PROJECTZ. 
 
-**Track**: TRAVELER - Friendship 2026
+**Track**: Ed Sheeran-Peru (M-Dee 21 & Klubb Efekt  Remix) (Sample)
 
-Last updated at 11/27/2026, 6:28:16 AM
+Last updated at 11/27/2026, 7:44:59 AM
