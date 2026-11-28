@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-vFUhWhXn4fyfains-K7rVyA-t500x500.jpg">](https://soundcloud.com/djjanr/oceans-apart)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mimLaR2XmF1Ilh1G-tAhX2w-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-everlasting)
 
-**Artist**: Jan R 
+**Artist**: 2 Sick Puppiez 
 
-**Track**: Oceans Apart (Free DL)
+**Track**: 2 Sick Puppiez - Everlasting Love
 
-Last updated at 11/27/2026, 11:22:38 AM
+Last updated at 11/28/2026, 7:20:15 AM
