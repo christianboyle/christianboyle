@@ -1,9 +1,9 @@
 ## Currently Playing on SoundCloud
 
-[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-mimLaR2XmF1Ilh1G-tAhX2w-t500x500.jpg">](https://soundcloud.com/2sickpuppiez/2-sick-puppiez-everlasting)
+[<img align="left" width="100" src="https://i1.sndcdn.com/artworks-p9F7CUO0HZONB94h-g8JjNA-t500x500.jpg">](https://soundcloud.com/mickjay67/mickjay-makina-dec-26)
 
-**Artist**: 2 Sick Puppiez 
+**Artist**: MickJay 
 
-**Track**: 2 Sick Puppiez - Everlasting Love
+**Track**: MickJay - Makina Dec 26
 
-Last updated at 11/28/2026, 7:20:15 AM
+Last updated at 11/28/2026, 8:42:22 AM
